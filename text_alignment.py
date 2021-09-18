@@ -1,7 +1,7 @@
 import re
 
-sw_file = open("../data/swahili.sw","a", encoding = "utf-8")
-en_file = open("../data/english.en","a", encoding = "utf-8")
+sw_file = open("./data/raw/swahili.sw","r", encoding = "utf-8").read()
+en_file = open("./data/raw/english.en","r", encoding = "utf-8").read()
 
 def text_preprocessing(lang_file, file_name):
     # split at newline character
@@ -20,9 +20,13 @@ def text_preprocessing(lang_file, file_name):
         new_text2.append(re.sub(r'[^\w\s]','',line.lower()))
     # remove any empty sensences in the list
     new_text2 = list(filter(None, new_text2))
-    f = open("data/aligned/" + file_name, "w")
+    f = open("data/aligned/" + file_name, "w", encoding="utf-8")
     for line in new_text2: 
         # strip sentences of space either at the beginning or end
         f.write(line.lstrip())
         f.write("\n")
     f.close()
+
+text_preprocessing(sw_file,"swahili.sw")
+text_preprocessing(en_file,"english.en")
+
