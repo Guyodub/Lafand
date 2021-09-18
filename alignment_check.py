@@ -1,7 +1,7 @@
 import re
 
-sw_file = open("../data/swahili.sw","a", encoding = "utf-8")
-en_file = open("../data/english.en","a", encoding = "utf-8")
+sw_file = open("./data/aligned/swahili.sw","r", encoding = "utf-8").read()
+en_file = open("./data/aligned/english.en","r", encoding = "utf-8").read()
 
 def alignment_check(en_file, sw_file):
     en_file = en_file.split('\n')
@@ -11,7 +11,8 @@ def alignment_check(en_file, sw_file):
         print("Files are aligned!!")
     else:
         print(str(abs(len(en_file) - len(sw_file))) + " line(s) mismatch")
-        print("Below are the lines with mismatch")
+        print("Below is a line with mismatch")
+
         check_discrepancy(en_file,sw_file)
 
 def check_discrepancy(en_file, sw_file):
