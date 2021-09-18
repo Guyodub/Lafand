@@ -7,10 +7,10 @@ import xlrd
 # sw_url = "https://sw.globalvoices.org/2021/05/trinidad-na-tobago-yakaribia-kurekebisha-sheria-ya-fursa-sawa-kutambua-ushoga/"
 
 
-excel_file = "../Corpus_links.xlsx"
+excel_file = "../sw_en_corpus_links.xlsx"
 
-sw_file = open("swahili.sw","a", encoding = "utf-8")
-en_file = open("english.en","a", encoding = "utf-8")
+sw_file = open("../data/swahili.sw","a", encoding = "utf-8")
+en_file = open("../data/english.en","a", encoding = "utf-8")
 
 def scrap_text(url):
     r1 = requests.get(url)
