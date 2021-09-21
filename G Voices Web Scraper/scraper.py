@@ -9,8 +9,8 @@ import xlrd
 
 excel_file = "../sw_en_corpus_links.xlsx"
 
-sw_file = open("../data/swahili.sw","a", encoding = "utf-8")
-en_file = open("../data/english.en","a", encoding = "utf-8")
+sw_file = open("../data/raw/swahili.sw","a", encoding = "utf-8")
+en_file = open("../data/raw/english.en","a", encoding = "utf-8")
 
 def scrap_text(url):
     r1 = requests.get(url)
@@ -23,8 +23,17 @@ def scrap_text(url):
     print(txt)
     return txt
 
-def write_to_file(sw_text,en_text):
+def write_to_file(sw_text,en_text,number):
+    sw_file.write("\n")
+    sw_file.write("makala " +str(number))
+    sw_file.write("\n")
+
     sw_file.write(sw_text)
+
+    en_file.write("\n")
+    en_file.write("Article "+str(number))
+    en_file.write("\n")
+
     en_file.write(en_text)
 
 def read_from_spreadsheet(excel_file):
@@ -38,6 +47,6 @@ def read_from_spreadsheet(excel_file):
         sw_text = scrap_text(sw_url)
         en_text = scrap_text(en_url)
 
-        write_to_file(sw_text,en_text)
+        write_to_file(sw_text,en_text,i+1)
 
 read_from_spreadsheet(excel_file)
