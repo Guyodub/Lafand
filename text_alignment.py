@@ -18,7 +18,7 @@ def text_preprocessing(lang_file, file_name):
     
     for line in flat_text:
         new_text2.append(re.sub(r'[^\w\s]','',line))
-    # remove any empty sensences in the list
+    # remove any empty sentences in the list
     new_text2 = list(filter(None, new_text2))
     f = open("data/aligned/" + file_name, "w", encoding="utf-8")
     for line in new_text2: 
