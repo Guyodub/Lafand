@@ -1,26 +1,13 @@
 makala 2
-
-
-
 Tangazo la Netflix kwa ajili ya filamu ya Santana itakayokwenda hewani mnamo Agosti 28
 Picha imepigwa kwenye filamu
 Maneno yanayoonekana yanasema Ninataka Dias Santana na kaka yake wauawe 
 Kuanzia Agosti 28 filamu iliyozalishwa Angola itaonekana kwa mara ya kwanza katika orodha ya Netflix
 Ni filamu Dias Santana iliyotengenezwa kwa ushirikiano na Afrika Kusini
-O filme Santana uma coprodução entre Angola e a África do Sul de Maradona Dias dos Santos e Chris Roland que se estreou nos cinemas em 2015 com o título Dias Santana vai estar disponível no Netflix no dia 28 de Agosto
-NovoJornal Angolahttpst
-cogVhp4JFHWA
-Novo Jornal novojornalAO August 17 2020
 Filamu Santana imetarishwa kwa pamoja kati ya Angola na Afrika Kusini na Maradona Diad dos Santos na Chris Roland ambayo ilionyeshwa katika sinema mnamo 2015 kwa jina la Dias Santana itapatikana kwenye Netflix mnamo Agosti 28
 Filamu iliyoonyweshwa kwenye tamasha la filamu la Cannes mwaka 2015 inaelezea stori ya ndugu wawili Jenerali na Afisa wa polisi waliogundua utambulisho wa mtu aliyewaua wazazi wao mauaji yaliyotokea miongo kadhaa iliyopita
 Kulingana na chombo cha habari Observador filamu hiyo iliandaliwa na Giant Sables Media ya Angola na Zen HQ Films ya Afrika Kusini
 Mtayarishaji wa filamu wa Angola Jeremias Didalewa alituma ujumbe wa shukrani kwenye wasifu wake wa Instagram kwa kufanikiwa kufunga mpango huo na jukwaa
-Malta amigos e compatriotas
-Conseguimos fechar o deal com a Netflix
-Teremos o filme DIAS SANTANA primeiro filme Angolano na Netflix
-Um filme com uma produção Angolana 80Sul Africana 20
-História de uma família Angolana que começa em Angola e termina na África do Sul
-Com vários actores nacionais e internacionais
 Jamaa Marafiki na wenzetu
 Tuliweza kufunga mpango na Netflix
 Tutakua a filamu DIAS SANTANA filamu ya Angola kwenye Netflix
@@ -28,6 +15,7 @@ Filamu imetayarishwa kwa ushirikiano wa asilimia 80 kutoka Angola na asilimia 20
 Ni simulizi la familia linaloanzia Angola na kuishia Afrika Kusini
 Imejumuisha waigizaji kadhaa wa kitaifa na kimataifa
 Onyesho la filamu ya Angola linakuja mwezi mmoja baada ya filamu ya kwanza ya Msumbiji pia kuonekana kwenye orodha ya Netflix
+
 makala 3
 Picha Rasmi ya Rais wa Jamhuri ya Shirikisho la Naijeria Rais Muhammadu Buhari iliyopigwa na Bayo Omoboriowo via Wikimedia Commons Mei 29 2015 CC BYSA 4
 0
@@ -42,12 +30,7 @@ Wengi wa wale wanaoonesha utovu wa nidhamu leo walikuwa wadogo kuelewa uharibifu
 Picha ya twiti ya vitisho ya Rais wa Naijeria Buhari
 Twiti zilizojibu mapigo kwa matamshi hayo yaliyotolewa na Buhari aliyeonekana dhahiri kuwa na hasira akiwa katika Ikulu ya nchi hiyo makao makuu ya nchi Abuja kuhusu mwelekeo wa mashambulizi dhidi ya maafisa wa uchaguzi
 Ninadhani tumewapa jukwaa la kutosha
-Wamesema walichokitaka lakini sasa wanataka kuiangamiza nchi alisema akionekana kuwazungumzia watu hao wanaotaka kujitenga 
-Buhari made the statement himself
-pic
-twitter
-comCCX4d78SLk
-Karo Karovoni June 1 2021
+Wamesema walichokitaka lakini sasa wanataka kuiangamiza nchi alisema akionekana kuwazungumzia watu hao wanaotaka kujitenga
 Buhari amezungumza kwa kinywa chake
 Buhari jenerali mstaafu alikuwa jeshini wakati wa vita vya wenyewe kwa wenyewe nchini Naijeria
 Vita hivyo vibaya vilisababisha vifo vya zaidi ya watu milioni wa kabila la Igbo na wakazi wengine wa ukanda wa Mashariki kwa mujibu wa Chima J
@@ -56,25 +39,13 @@ Kwa Wanaijeria wengi vita vya kujitenga kwa jimbo la Biafra kwa ujumla huchukuli
 Dondoo Mwandishi anatoka kabila la Igbo
 Sera ya Twita kuhusu tabia za chuki inazuia twiti ambazo zinahubiri ghasia na kutishia watu kwa kigezo cha rangi kabila asili ya utaifa wa mtu
 Twiti za namna hiyo kama ya Buhari hufutwa na kampuni hiyo au watumiaji wenyewe hulazimisha kufuta maudhui yanayokwenda kinyume na sera
-
 Lai Mohammed waziri wa habari wa Naijeria alieleza kuondolewa kwa twiti ya rais huyo na kampuni hiyo ya mitandao ya kijamii kama tukio la kushukiwa sana 
-Twitters Mission In Nigeria Is Suspicious Says Lai Mohammed pic
-twitter
-com6hbAKsnjVM
-Channels Television channelstv June 2 2021
 Twiti zenye vitisho bado zinaonekana mtandaoni
-Uchunguzi uliofanywa na mtaalam wa mtandao ya kijamii wa Digital Africa Research Lab DigiAfricaLab unaonesha kwamba twiti ya vitisho iliyoandikwa na Buhari bado inaonekana kwenye akaunti kadhaa siku mbili baada ya kuwa imefutwa na Twita shauri ya kunukuliwa na watumiaji wengine 
-Over 30 hours after Twitter deleted a Tweet by Nigerian president MBuhari for violating its rules the deleted Tweet REMAINS VISIBLE across numerous timelines due to Quote Tweets
-DigiAfricaLab made this observation whilst signed in to different accounts on different devices pic
-twitter
-comKwUIVmzEoP
-Digital Africa Research Lab DigiAfricaLab June 3 2021
+Uchunguzi uliofanywa na mtaalam wa mtandao ya kijamii wa Digital Africa Research Lab DigiAfricaLab unaonesha kwamba twiti ya vitisho iliyoandikwa na Buhari bado inaonekana kwenye akaunti kadhaa siku mbili baada ya kuwa imefutwa na Twita shauri ya kunukuliwa na watumiaji wengine
 Zaidi ya saa 30 baada ya Twita kufuta twiti ya rais wa Naijeria MBuhari kwa kosa la kuvunja sheria twitiiliyofutwa BADO INAONEKANA kwenye akaunti nyingi mtandaoni kwa sababu ya kunukuliwa
 Kwa kuingia mtandao kwa kutumia akaunti tofauti kupitia vifaa tofauti DigiAfricaLab iliweza kuona zaidi ya twiti 17000 zilizonukuliwa na watumiaji kabla kampuni hiyo ya mtandao wa kijamii haijaifuta twiti hiyo kutoka kwenye akaunti ya MBuhari na NGRPresident zote zikiwa ni anuani za twita zilizohakikiwa zinazotumika na Rais Buhari
 Zaidi ya hayo DigiAfricaLab iliweza kubofya na kukuza twiti ya Rais Buhari iliypfutwa
-
 Twiti zilizofutwa zinaweza kuendelea kuonekana kwa watumiaji wa mtandao wa twita kwa sababu zana inayotumiwa na Twita API hutegemea zana za mitandao mingine inayounganisha kazi data za Twita kwa kupitia URL
-
 Sababu nyingine kwa mujibu wa  J
 D
 Biersdorfer wa New York Times ni kwamba twiti zilizofutwa zinaweza kuwa bado zinapatikana na hivyo kuonekana kwenye matokeo ya utafutaji mtandaoni  mpaka tovuti ihuishwe na nakala mpya ya twiti kwenye ukurasa mkuu wa akaunti husika
