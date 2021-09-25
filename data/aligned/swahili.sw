@@ -1,4 +1,4 @@
-makala 2
+Makala 2
 Tangazo la Netflix kwa ajili ya filamu ya Santana itakayokwenda hewani mnamo Agosti 28
 Picha imepigwa kwenye filamu
 Maneno yanayoonekana yanasema Ninataka Dias Santana na kaka yake wauawe 
@@ -16,7 +16,7 @@ Ni simulizi la familia linaloanzia Angola na kuishia Afrika Kusini
 Imejumuisha waigizaji kadhaa wa kitaifa na kimataifa
 Onyesho la filamu ya Angola linakuja mwezi mmoja baada ya filamu ya kwanza ya Msumbiji pia kuonekana kwenye orodha ya Netflix
 
-makala 3
+Makala 3
 Picha Rasmi ya Rais wa Jamhuri ya Shirikisho la Naijeria Rais Muhammadu Buhari iliyopigwa na Bayo Omoboriowo via Wikimedia Commons Mei 29 2015 CC BYSA 4
 0
 Serikali ya Naijeria imetangaza siku ya Ijumaa kwamba inaufungia mtandao wa Twita nchini humo siku kadhaa baada ya mtandao huo kufuta twiti hatari iliyoandikwa na Rais wa Naijeria Muhammadu Buhari iliyodai kwamba serikali itatumia nguvu dhidi ya kabila la Igbo
@@ -70,7 +70,7 @@ Ukishatweza utu wa watu inakuwa rahisi kuondoa ule wasiwasi wa kimaadili kuhusu 
 Kama hawaonekani kuwa binadamu ni rahisi kuhalalisha matendo ya vurugu dhidi yao
 Kuteza utu kwa mujibu wa Ozurumba kunafanya iwe rahisi kuondoa hali ya kuguswa kimaadili na vitendo vya mauaji ubaguzi au utesaji wa watu kwa sababu tu ya makabila yao
 
-makala 4
+Makala 4
 Picha na makeitkenya CC PDM 1
 0
 Mnamo Machi 27 mjadala mkali uliibuka kwenye mitandao ya kijamii ya Kenya juu ya matamshi yaliyotolewa hewani na watangazaji wa redio tatu wakati wa kipindi cha asubuhi Breakfast Show
@@ -126,7 +126,7 @@ Bila shaka basi mitandao ya kijamii imeibuka kama nafasi nzuri ya kufanya biasha
 Hii ni muhimu kwa uwezeshaji kiuchumi na kujulikana kwa wanawake  Chanzo The Elephant
 Inaonekana kwamba kwa wanawake kushiriki mazungumzo ya maana mkondoni juu ya mada zinazoathiri moja kwa moja maisha yao mtandao lazima uwe mahali salama zaidi kuliko ilivyo sasa
 
-makala 5
+Makala 5
 Bendera yenye rangi za upinde wa mvua
 Picha ya Marco Verch  kwenye mtandao wa Flickr CC BY 2
 0
@@ -149,17 +149,8 @@ Wakati huo huo mashoga wanaendelea si tu kukabiliana na ubaguzi lakini pia viten
 Katika tukio la hivi karibuni  kifo cha Marcus Anthony Singh mwanachama wa chama cha mashoga kwenye eneo analoishi kiliibua mjadala mzito mtandao kuhusu mazingira magumu ambayo mashoga wanakabiliana nayo hususani usalama wao sambamba na vitendo vya ubaguzi
 Mazungumzo hayo mengi yamekuwa yakifanyika kupitia teknolojia ya Twitter Spaces jukwaa la mazungumzo ya sauti linalowezesha mijadala na elimu salama
 Wakati Mwanasheria Mkuu wa Serikali Al Rawi hajatoa muda rasmi wa kufanyika mabadiliko hayo ya sheria kwa mashoga na washirika wao matumaini yanabaki kwamba huenda hatua zinazochukuliwa na makampuni binafsi kama Benki ya Scotiabank si muda mrefu zitaanza kuchukuliwa na serikali na hatimaye kuleta mabadiliko yenye sura ya jamii nzima
-makala 6
-Kwa wengi barani Ulaya na kwingineko Shindano la Uimbaji la Eurovision linafuatiliwa sana kila mwaka na mashabiki wake hukusanyika kwa makundi kulitazama shindano hilo
-Kwa wengine ni shindano linaloboa lisiloisha kwa zaidi ya miaka 65 zimekaa muda mrefu na kuchosha
-Lakini ulipende au usilipende hakuna mashaka kwamba shindano la Eurovisionna mwitikio linalousababishalinatoa mtazamo mzuri kuhusu Ulaya ya sasa siasa zake  taswira yake na tunu zake
-Ungana nasi Mei 20 saa 11mchana GMT kwa kipindi chetu cha Global Voices Insights mfululizo wa mazungumzo ambako Mhariri Mtendaji wa Global Voices Filip Noubel atakaa na Mhariri wa habari za Ulaya Mashariki Tanya Lokot na mhariri wa Ulaya ya Kati Filip Stojanovski kwa mazungumzo kuhusu shindano hilo la Eurovision kama suala la kiutamaduni na kisiasa
-Kipindi hiki pia kitaonesha mahojiano na washirikisha wawili wa shindano hilo ambao walitikisa pia kwenye maonesho ya  Rotterdam mnamo Mei 22
-Washiriki hao ni Benny Cristo anayeiwakilisha Jamhuri ya Czech na Vasil anayeiwakilisha Macedonia Kaskazini
-Kipindi hiki ni bure na kiko wazi kwa mtu yeyote na kitarushwa mubashara kwenye mitandao ya Facebook YouTube na Twitch
-Tunatarajia utaungana nasi siku hiyo bofya kiungo hiki kufahamu muda halisi kwa saa za nchini kwako
 
-makala 7
+Makala 6
 Duval Mhandisi wa Kifaransa na mwanzilishi wa Taasisi ya Gaël
 Picha imetumiwa kwa ruhusa
 Kwa kampuni za mtandao wa intaneti na teknolojia ukusanyaji wa taarifa za watumiaji wa mtandao wa intaneti umekuwa ni chanzo chao kikuu cha kujipatia kipato
@@ -188,7 +179,6 @@ Bila shaka yale yalikuwa maisha murua kabisa na yasiyo na haraka
 Vijana wanaweza kushangaa kuwa hadi nilipofikisha miaka mitano nyumbani hakukuwa na simu wala runinga
 Kuna wakati ninawaza kuwa niliishi maisha ya ulimwengu tofauti kabisa  na ambayo kwa sasa hayapo kabisa
 Kwa upande mwingine inafurahisha sana haswa tunapojaribu kuwaza ni jambo gani tunaweza kufanya kwa uwepo wa teknolojia za kisasa kama vile kuwasiliana na mtu aliye sehemu tofauti kabisa ya ulimwengu kupitia picha za video za ubora wa hali ya juu sambamba na kushuhudia magari ya umeme yasiyotumia petroli inayojaza mapafu yetu kwa moshi hatari
-
 Kwa wale wanaokumbuka ukiachilia raha na karaha za miaka ya kipindi cha mfumo wa analogia kwa sasa tunakabiliana na hatari kubwa ya utegemezi kwenye teknolojia ya habari
 Utafiti uliofanyika mwaka 2018 uliohusisha  matatizo ya kitabia ya watoto na mazoea yaliyopitiliza ya matumizi ya simu janja  ulibaini kuwa matumizi makubwa ya simu janja hupelekea matatizo kadha wa kadha yakiwemo Tatizo la Kukosa Umakini ADD na sonona
 Utafiti uliochapishwa mwaka 2020 na Common Sense Media ulibaini kuwa  asilimia 50 ya vijana katika jimbo la Los Angeles walisema wasingeweza kukaa bila kutumia simu janja zao 
@@ -205,7 +195,6 @@ Hivi ndivyo mfumo endeshi aliouunda unavyofanya kazi
 e ni mfumo endeshi msawazo wa kidigitali wa simu janja ambao hautumi taarifa yoyote kwenda Google kama vile unapoperuzi mahali ulipo na unaozingatia faragha ya mtumiaji
 Mfumo huu haukagui kwa namna yoyote taarifa binafsi za mtumiaji
 Unatoa pia huduma za msingi   za mtandaoni kama vile barua pepe hifadhi kalenda kuhifadhi mawasiliano  kila kitu kinachohusiana na mfumo endeshi wa simu janja
-
 Duval anasema kwamba linapokuja suala la taarifa binafsi za mtu Google na Apple wana malengo yanayofanana  taarifa hizi zinapalilia mfumo wa kibiashara wa Google ambao kimsingi unategemea  bilioni 8 hadi 12 kila mwaka kwa ajili ya kuweka kitumizi cha kuperuzi cha Google kwenye iPhones na iPads
 Duval aliongeza 
 Kwa kutumia iPhone mtumiaji anatuma wastani wa MB 6 za taarifa zake kwenda Google  kwa siku
@@ -214,9 +203,9 @@ Mbali na hivyo mfumo wa nje wa Apple umefungwa vilivyo na kukosekana kabisa kwa 
 Yapaswa tu kuwaamini
 Sisi kwa upande wetu  tunaruhusu kubadilisha sera ya faragha mifumo yote ya eOS na nyenzo za matengenezo za hifadhi ya mtandaoni vitu vilivyotumiwa katika uundaji wa mfumo huu zinapatikana bure
 Mfumo huu unaweza kuhojiwa na kukaguliwa na wataalam
-
 Katika mazingira ya ongezeko kubwa la matumizi ya simu janja  ni dhahiri kuwa sheria pekee hazitoshi katika kujenga uelewa na kuwapatia watumiaji nyenzo sahihi na maarifa ya kulinda taarifa zao  na hapa ndipo unapokuja umuhimu wa nyenzo za kidigitali zinazowasaidia watumiaji kuwajibika zaidi 
-makala 8
+
+Makala 7
 Taarifa na uelewa ni muhimu katika kujikinga na maambukizi ya UVIKO19
 Picha inawaonesha wafanyakazi wa afya nchini Kenya wakielimisha jamii kuhusu maambukizi ya UVIKO19
 Picha Victoria Nthenge na Trocaire ina leseni ya CC BY 2
@@ -228,19 +217,14 @@ Kupokelewa kwa chanjo hizo kulianzisha kampeni ya kutoa chanjo bure katika hospi
 Kutolewa kwa dawa hizo kuligawanywa katika hatua tatu watumishi wa afya na maafisa usalama na uhamiaji wananchi wenye umri zaidi ya miaka 58 na watu wazima wenye changamoto mbalimbali za afya na wananchi wengine wanaoishi kwenye mazingira hatarishi kama wale wanaoishi kwenye makazi yasiyo rasmi
 Nchi hiyo inategemea kupokea dozi milioni 24 kupitia utaratibu wa  COVAX
 Kwa mujibu wa jarida la The Washington Post Kenya inalenga kuchanja asimilia 50 ya wananchi wake ifikapo Juni 2022 kwa ushirikiano kati ya mradi wa COVAX na misaada kutoka mataifa mengine
-
 Kwenye taarifa yake kwa vyombo vya habari Mwakilishi wa UNICEF nchini Kenya Maniza Zaman alipongeza kuwasili kwa chanjo za kwanza nchini Kenya
 Kufuatilia kuwasili kwa chanjo hizi UNICEF na washirika wake wanapongeza ahadi ya COVAX kuhakikisha kuwa watu wanaotoka kwenye nchi zisizo na uwezo mkubwa kiuchumi hawaachwi nyuma kwenye mpango huu wa kimataifa wa kuokoa maisha ya watu kwa chanjo alisema
 Hata hivyo mpango huu wa tatu ulivurugika mara baada ya zoezi kuanza kwa sababu ya uamuzi wa dakika za mwisho wa kuharakisha awamu ya pili ya mpango huyo kama namna ya kukabiliana na wimbi la tatu la maambukizi maslahi ya kisiasa yanayokinzana na serikali kushindwa kuwasiliana na kuwajulisha wananchi
 Katika makala yake inayohoji kile kinachoendelea kwenye mpango wa chanjo ya UVIKO19 nchini Kenya Patrick Gathara mwandishi anayeishi Kenya na mchoraji wa katuni za siasa aliyepata tuzo mbali mbali alisema
-Politicians loudly and selfservingly argued that they should be given priority to inspire confidence among the population even though the Ministry of Health was reporting encountering little resistance
-Because the state had ignored the need to explain its plan to the population there was widespread confusion about where and when people were expected to be in line
 Kwa sauti kubwa na ubinafsi wanasiasa walidai kwamba wao ndio wanaopaswa kupewa kipaumbele ili kuwajengea imani wananchi ingawa Wizara ya Afya tayari ilisharipoti kutokuwepo kwa upinzani mkubwa wa chanjo hiyo
 Kwa kuwa serikali imepuuza takwa la kueleza mpango wake kwa wananchi kulikuwa na mkanganyiko mkubwa kuhusu wapi na lini watu wanatarajiwa kusimama kwenye mstari
 Pamoja na maelekezo ya serikali  kuwapa kipaumbele wananchi wenye umri wa zaidi ya miaka 58  vyombo vya habari nchini Kenya viliripoti kwamba wafanyabiashara na wanasiasa wasio kwenye kundi la umri huu wamekuwa wakipata huduma kinyume na utaratibu hali inayoonesha ubaguzi mkubwa wa masikini unaofanywa na wenye fedha
 Wakati huo huo wazee wanaostahili na Wakenya maskini ambao hawana mtandao wa watu wa kuwasaidia na wasio na fedha za kuhonga  huonekana wakingoja kwenye mstari siku zote kuanzia saa 11 alfajiri na kuishia kuombwa warudi siku nyingine kwa sababu dawa zimeisha kwa mujibu wa habari iliyoandikwa na jarida la The Washington Post
-They have another door for their friends Mary Njoroge 58 one of the teachers told The Washington Post
-Without a godfather to help you through this process what are you supposed to do
 Wana mlango mwingine kwa marafiki zao Mary Njoroge 58 mmoja wa walimu aliliambia The Washngton Post
 Bila kuwa na mtu wa kukusaidia kukamilisha mchakato wote utafanya nini
 Tukio kama hilo liliripotiwa kwenye hospitali nyingine ya serikali na _Sativa mtumiaji wa Twita anayeishi Nairobi ambaye pia ni Mkenya
@@ -248,17 +232,14 @@ Kwenye uzi huo wa Twita alielezea kile ambacho shangazi yake alikutana nacho m
 Wakati wazee wakisubiri mstarini muuguzi aliita majina na vijana walikuja mbele na wakatangulia kupata chanjo
 Shangazi yake alipouliza nini kinaendelea muuguzi alimpa namba ya simu ambayo angeweza kutumia fedha alisema kwenye uzi huo wa Twitter
 Kufuatia taarifa za kuongezeka kwa hamasa ya watu kwa kampeni hiyo ya chanjo Waziri wa Afya wa Kenya Mutahi Kagwe aliviambia vyombo vya habari
-I think somewhere along the line we seem to have developed some confusion that anybody can walk into a vaccination centre and get vaccines
-I want to make it very clear those carrying out vaccination will have to account for every dose that they have used and that dose that they have used must be matched against an eligible person
 Nadhani tumefika mahali tumetengeneza hali ya sintofahamu kwamba mtu yeyote anaweza kwenda kwenye kituo cha kutolea chanjo na kupata huduma
 Ninataka kuliweka suala hili vizuri wale wanaotoa huduma ya chanjo watatoa hesabu ya kila dawa waliyoitumia na kwamba dawa zilizotumika lazima zioanishwe na mtu anayestahili huduma hiyo
 Rais wa Chama cha Taifa cha Wauguzi nchini Kenya Alfred Obengo aliwaomba Wakenya wasio kwenye orodha ya kipaumbele kuepuka kusimama kwenye foleni ya chanjo
 Akifafanua namna serikali ya Kenya ingeweza kuepuka mkanganyiko huo katika kutekeleza mpango huo  Gathara anahitimisha makala yake kwa kusema
-Much of this could have been avoided if the Kenyan government and its global partners including the World Health Organization and Western governments treated Kenyans as partners in the rollout rather than colonial subjects to be brutalised and exploited
-Sadly for Kenyans their colonial state does not know how to act any differently
 Tungeweza kuepuka kadhia hii kama serikali ya Kenya na washirika wake duniani ikiwa ni pamoja na Shirika la Afya Duniani na serikali za nchi za magharibi zingefanya kazi na Kenya kama mbia wa mpango huu na sio koloni linalotendewa ukatili na kunyonywa
 Inasikitisha sana kwa Wakenya nchi yao ambayo ni koloni haifahamu namna nyingine ya kufanya
-makala 9
+
+Makala 8
 Mwezi Desemba mwaka jana dunia yote ilijielekeza nchini Argentina ambako utoaji mimba uliruhusiwa rasmi kisheria nchini humo
 Lakini je ni kwa kiwango gani wasichana na wanawake wanalazimishwa kuwa wazazi katika sehemu nyingine duniani
 Tazama au sikiliza kipindi hiki cha Global Voices Insights kilichoruka hewani mubashara tarehe 7 Aprili ambapo mhariri wetu wa Amerika Kusini Melissa Vida anafanya mazungumzo kuhusu haki za uzazi na wataalam na wanaharakati wafuatao
@@ -267,24 +248,20 @@ Anafundisha Chuo Kikuu cha Brasilia lakini pia akitafiti katika Chuo Kikuu cha B
 Dokumentari zake kuhusu utoaji mimba usawa katika ndoa kutenganishwa kwa serikali na masuala ya dini na utafiti kuhusu seli mundu zimepata tuzo mbalimbali za kitaifa na kimataifa na zimeshindanishwa kwenye mashindano mbalimbali
 Joy Asasira Uganda mtetezi mbobezi wa Afya ya Uzazi barani Afrika Haki za Binadamu na masuala la Jinsia na mwanamikakati wa masuala ya utetezi duniani msuka kampeni na harakati na gwiji wa uratibu na mipango
 Joy alitunukiwa tuzo ya Chama cha Wanasheria nchini Uganda ULS ya Mwanasheria Mwanamke Bora wa Haki za Binadamu kwa 20182019 na akatambuliwa kama kiongozi mwanamke chipukizi katika Afya ya Dunia kwenye Mkutano wa Wanawake Viongozi duniani uliofanyika Chuo Kikuu cha Stanford mwaka 2017
-
 Emilie Palamy Pradichit Thailand mwanzilishi na mkurugenzi wa Shirika la Manushya alilolianzisha mwaka 2017 Manushya ni neno la Sanskrit lenye maana ya Mtu akiwa na lengo la kuhamasisha nguvu ya jamii za watu wa maeneo mahususi hususani wanawake watetezi wa haki za binadamu ili waweze kupigania haki zao usawa na haki za kijamii
 Emilie ni mwanasheria wa kimataifa wa haki za binadamu aliyebobea kwenye haki za jamii zilizotengwa
-
 R Umaima Ahmed Pakistan mwandishi wa kujitegemea
 Mwanzoni alikuwa Mhariri Msaidizi wa tovuti ya The News on Sunday na gazeti la The Nation
 R Umaima ana uzoefu wa zaidi ya miaka 10 wa maudhui ya mtandaoni na magazetini
 Amejikita kwenye masuala ya usalama wa kidijitali wanawake na haki za wanyama
 Pia ni mwandishi wa Global Voices
 Dominika Lasota Poland mwanaharakati wa haki za tabia nchi mwenye umri wa miaka 19 ambaye pia ni sehemu ya harakati za Fridays For Future na Womens Strike
-globalvoices  Breaking The Taboo On Abortion Perspectives From Uganda Thailand Brazil Pakistan  Poland
-makala 10
+
+Makala 9
 Wakala wa huduma za kifedha za simu akisubiri wateja jijini Dar es Salaam Tanzania
 Chini ya kanuni za maudhui za 2020 uhuru wa kujieleza umebanwa na ada kubwa na mamlaka ya serikali kuondoa maudhui yasiyoruhusiwa
 Picha imepigwa na Fiona GrahamWorldRemit kupitia mtandao wa Flickr CC BY SA 2
-0
 Makala haya ni sehemu ya UPROAR mradi wa Vyombo Vidogo vya Habari vinavyoziomba serikali kushughulikia changamoto za haki za kidijitali kwenye jarida la Universal Periodic Review UPR
-
 Mwanzoni mwa mwezi Machi wakati waTanzania walipoanza kuhoji afya na mahali alipo Rais John Magufuli raia wengi walitumia mitandao ya kijamii kuuliza maswali na hata kuonesha wasiwasi wao
 Katika kujibu maswali hayo serikali ilitishia kumkamata mtu yeyote aliyetumia mitandao ya kijamii kusambaza taarifa potofu kuhusu rais
 Mamlaka za serikali zilirejea Sheria ya Makosa ya Mtandao ya Tanzania ya mwaka 2015 na Kanuni za Mawasiliano ya Kieletroniki na Posta Maudhui ya Mtandao EPOCA zilizotungwa mwaka 2020 kuelezea uwezekano wa kuwakamata na kuwaweka ndani wote waliovunja sheria hizo
@@ -313,7 +290,6 @@ Baadhi ya tofauti kubwa kati ya toleo la 2018 na 2020  la Kanuni za Maudhui ya 
 Kwanza Mamlaka ya Mawasiliano Tanzania TCRA ilitengeneza upya makundi ya ada na kuongeza makundi madogo chini ya maudhui ya mtandaoni yaani taarifa  habari burudani na elimu au dini na kuendelea kuzuia watu binafsi kutoa maudhui
 Kanuni ya Maudhui Mtandaoni ya 2020 Sehemu VI Kifungu cha 116
 Mtu yeyote anayetoa huduma za mtandao bila kupata leseni muafaka anafanya kosa na adhabu yake ni hukumu ya kulipa faini isiyopungua Shilingi za Kitanzania milioni 6 dola za marekani 2587 au kifungo cha jela kisichopungua miezi 12 au vyote kwa pamoja
-
 Pili TCRA iliongeza orodha ya maudhui yasiyoruhusiwa na kujumuisha pamoja na mambo mengine maudhui yanayohamasisha kurekodi simu za watu kupeleleza mawasiliano kuiba data kufuatilia mawasiliano kurekodi na kuingilia mawasiliano au mazungumzo bila ruhusa
 Tatu Kanuni za Maudhui ya Mtandaoni EPOCA 2020 pia zimepunguza kipindi ambacho mwenye leseni anaweza kufanyia kazi ukiukwaji wa kanuni za maudhui kwa kusimamishwa au kufutiwa akaunti
 Chini ya kanuni za 2018 mwenye leseni alikuwa na saa 12 za kufanya hivyo
@@ -327,12 +303,10 @@ Chini ya utawala wa Magufuli asasi za kiraia vyombo vya habari na haki za kidiji
 Baada ya kifo cha ghafla cha Magufuli wengi sasa wanajiuliza kuhusu mustakabali wa haki za kidijitali nchini humo   baada ya miaka sita ya uongozi ulioendelea kuonesha dalili za mabavu
 Global Voices iliongea na baadhi ya maafisa wa serikali kwa sharti la kutokutajwa majina kuhusu kanuni mpya na  hali ya haki za binadamu na uhuru wa maoni mtandaoni
 Mtaalam mmoja wa haki za biandamu nchini Tanzania aliiambia Global Voices kwa sharti ya kutokutajwa
-The regulations are not fair as anyone can be criminalized because not many citizens understand the implications of these regulations
 Kanuni hizi si za haki kwa sababu yeyote anaweza kutiwa hatiani kwa kuwa si wananchi wengi wanaelewa tafsiri ya kanuni hizi
 Mwingine alifikiri kwamba serikali inachukulia mitandao ya kijamii kama kero
 Aliwatahadharisha wananchi kuchukua tahadhari wanapozungumza kwenye majukwaa ya wazi kwa sababu serikali ina nguvu za kisheria kupata taarifa zao zote kupitia wamiliki wa majukwaa hayo
 Kanuni za Maudhui ya Mtandaoni za mwaka 2020 zinafanya isiwezekane kabisa mtu kutokufahamika unapokuwa mtandaoni chini ya Kanuni ya 9e watoaji wa huduma ya vyumba vya kuuza mtandao wa inteneti internet café wanalazimika kujisajili kwa kutumia vitambulisho vinavyotambulika kuweka utambulisho pekee wa mtandaoni kwa kila kompyuta IP address na kufunga kamera za usalama kurekodi shughuli zote zinazoendelea kwenye maeneo yao ya kazi kwa mujibu wa uchambuzi huu uliofanywa na Baraza la Habari la Tanzania
-
 Kanuni hizi zinachangia vitendo vya jinai vya kuchafua heshima za watu kuzuia haki ya kutokufahamika kutoa adhabu kali kwa kukiukwa kwa kanuni hizi na kukabidhi mamlaka makubwa mno ya kuondoa maudhui kwa TCRA na vyombo vingine vilivyo chini yake
 Kanuni za Maudhui ya Mtandaoni EPOCA zinapingana na viwango vya kimataifa vilivyokubalika vya haki za kidijitali
 Jumla ya yote kanuni hizi zinabana uhuru wa maoni na uhuru vya vyombo vya habari nchini Tanzania
@@ -342,17 +316,14 @@ Tanzania iko kwenye mtanziko wa haki za kidijitali
 Chini ya Rais Hassan aliyeapishwa hivi karibuni swali la kujiuliza ni ikiwa Chama Cha Mapinduzi kitaendelea kunyamazisha na kubana haki za kidijitali nchini humo
 Dokezo la Mhariri Mwandishi wa makala haya ameomba jina lake lisifahamike kwa sababu za kiusalama
 
-makala 11
+Makala 10
 Kuipeleka Tanzania mbele halikuwa jambo lililowezekana kirahisi sana Rais John Magufuli alipoingia madarakani mwaka 2015
 Kauli mbiu yake ilikuwa Hapa Kazi Tu ikionekana kwenye kofia ya kijani na njano rangi za chama kinachotawala nchini Tanzania Chama cha Mapinduzi kilichoongozwa na Magufuli
 Picha na Pernille Baerendtsen imetumiwa kwa ruhusa
 Maelfu ya watu wanakusanyika kwenye viwanja vya michezo viwanja vya ndege na pembezoni mwa barabara katika maeneo mbalimbali nchini Tanzania maeneo ambayo mwili wa hayati Rais John Pombe Magufuli ulisafirishwa  kutoka Dar es salaam kuwawezesha wananchi kumuagwa kwa heshima kwa juma zima  jijini Dodoma yalipo makao makuu ya serikali visiwa vya Zanzibar Mwanza na Chato nyumbani kwake pembezoni mwa Ziwa Victoria ambako atazikwa
 Magufuli alitangazwa kufariki dunia akiwa na umri wa miaka 61 mnamo Machi 17 katika hotuba ya aliyekuwa Makamu wa Rais Samia Suluhu Hassan iliyorushwa kwenye kituo cha televisheni ya taifa tangazo lililomaliza majuma kadhaa ya uvumi kuhusu hali ya afya ya rais na mahali alipo
 Inadaiwa alifariki kwa maradhi ya moyo
-Taarifa ya Kifo Cha Rais Wa Jamhuri Ya Muungano Wa Tanzania pic
-twitter
-comLNi5CtoURm
-Samia Suluhu SuluhuSamia March 17 2021
+Taarifa ya Kifo Cha Rais Wa Jamhuri Ya Muungano Wa Tanzania
 Kifo cha ghafla cha Magufuli hata hivyo kimewaacha waTanzania na watu wengine wakidadisi hatma ya siasa na utawala katika nchi hiyo ya Afrika Mashariki
 Siku ya Ijumaa Hassan aliapishwa kuwa rais wa sita wa Tanzania akiandika historia ya kuwa mwanamke wa kwanza kuwa Rais wa Tanzania Rais wa pili kuzaliwa kwenye visiwa vya Zanzibar ambavyo ni sehemu ya Tanzania na mwanamke wa kwanza mwislamu kuchukua nafasi ya juu kabisa ya utumishi nchini humo
 Chini ya katiba ya Tanzania Hassan atatumikia kipindi chote kilichobaki cha muhula wa miaka mitano wa urais wa Magufuli uliokuwa uende mpaka 2025
@@ -364,17 +335,12 @@ Historia nzuri sana ya Rais SuluhuSamia katika dakika 20 ikisimuliwa na yeye Mwe
 Anasema alikuwa activist
 Alikuwa mtu wa Asasi za Kiraia
 Asante Chambi kwa kufanya nione hii
-Haichoshi kusikiliza httpst
-coF2S6gW4dYK
-Zitto MwamiRuyagwa Kabwe zittokabwe March 20 2021
+Haichoshi kusikiliza 
 Wakati Hassan akifahamika zaidi kama mtu mpenda maridhiano akitoa wito wa umoja na utulivu katika kipindi hiki cha mpito Magufuli anafahamika kama bulidoza jina la utani alilolipata kama Waziri wa Ujenzi kutambua ufanisi wake wa kuhakikisha barabara zinajengwa
 Kumkumbuka Magufuli
 Kanga ikimkumbuka marehemu John Magufuli rais wa tano wa Tanzania aliyefariki mnamo Machi 17 2021
 Buriani baba yetu mungu akulaze pema  Tutakukumbuka daima shujaa wetu
 WaTanzania wengi   na Waafrika  kwa ujumla wanamkumbuka Magufuli kwenye mitandao ya kijamii kwa mabaya na mazuri
-The Bad and the Good of Magufuli are equally undeniable and it means the legacy he leaves behind is complicated but also valuable
-The proMagufuli and antiMagufuli camps will never agree and the debate will go on for years
-Michael Mwebe MichaelMwebe March 21 2021
 Mabaya na mazuri ya Magufuli hayawezi kupingika kwa uzito unaofanana na hiyo ina maana kuwa kumbukumbu anayoiacha nyuma ina utata wake lakini yenye maana kubwa
 Kambi za wanaomwuunga mkono Magufuli na wanaompinga Magufuli hazitakaa zikubaliane na mjadala utaendelea kwa miaka mingi
 Magufuli alijipatia umaarufu katika siku za mwanzo za urais wake kwa ahadi zake za kupambana na ufisadi kwa nguvu
@@ -387,15 +353,9 @@ Picha na Pernille Baerendtsen imetumiwa kwa ruhusa
 Msimamo wake dhidi ya ufisadi pia ulizivutia nchi za Magharibi na vyombo vya habari  mwanzoni viliandika msimamo wake kwa mtazamo chanya
 Kwa baadhi Magufuli anakumbukwa kama mwana wa Afrika kweli kweli na mtetezi wa Afrika aliyetanguliza maslahi ya Afrika
 Wengine wanamkumbuka kama rais aliyependa  umaarufu akitanguliza uzalendo kuliko kitu kingine chochote 
-Been watching Tanzania mourning John Magufuli
-We denounced his autocratic ways populism  sneered at his unscientific bent but clearly with the man and woman on the street the fellow was quite popular
-httpst
-coKOZ15oBK4o
-Charles OnyangoObbo cobbo3 March 20 2021
 Nimekuwa nikifuatilia Tanzania inavyomwombolezea John Magufuli
 Tulipinga njia zake za kidikteta na kumkosoa kwa tabia yake ya kupuuza sayansi lakini ni wazi kwa kutazama watu wanaosimama barabarani kumuaga huyu jamaa alikuwa maarufu
 Hata hivyo utawala wa Magufuli alikuwa wa kimabavu na hivyo kuathiri sana haki za binadamu na uhuru wa kujieleza
-
 Kwa zaidi ya miaka sita mashirika ya Human Rights Watch Amnesty International Kamati ya Kulinda Waandishi wa Habari CPJ Global Voices na mengineyo  yamekuwa yakifuatilia kuzorota kwa ulinzi wa haki za kiraia na haki za binadamu
 Tanzania ilishuka nafasi sita kwenye kipimo cha Uhuru wa Kujieleza kilichopima demokrasia na uhuru kati ya 2020 na 2021
 Wakati Bunge lilipokuwa likijadili Sheria ya Vyama vya Siasa Januari 2019 sheria iliyokosolewa kwa kuvibana zaidi vyama vya siasa hiyo ilitafsiriwa kama dalili mbaya hasa bundi alipoonekana ndani ya jengo la bunge
@@ -423,13 +383,6 @@ Maafisa kadhaa wa ngazi za juu kutoka kwenye tabaka la wanasiasa maarufu walio 
 Wakati makundi ya watu wengi yakiendelea kukusanyika kutoa heshima zao za mwisho kwa hayati rais kwa upande mwingine kifo chake kimeleta ahueni fulani
 Muda mfupi baada ya kifo cha Magufuli mwandishi Elsie Eyakuze alijitokeza kwenye mitandao ya kijamii kuzungumza wazi wazi kuhusu maisha yalivyokuwa katika kipindi cha mlipuko wa Korona nchini Tanzania pale rais alivyoonesha kupuuza kwa makusudi virusi vya Korona
 Katika uzi mrefu kwenye mtandao wa Twitter alisema
-Now
-For the real story I have been at a loss to tell for too long
-thread
-In March of 2020 the Covid19 pandemic started to rampage throughout the world
-It did not spare Tanzania
-But in April of 2020 we stopped all public efforts to halt is spread in the country
-Elsie Eyakuze MikocheniReport March 20 2021
 Sasa
 Kwa simulizi halisi nililoshindwa kulisema kwa muda mrefu
 uzi
@@ -437,20 +390,8 @@ Mwezi Machi mwaka 2020 mlipuko wa Korona ulianza kushika kasi duniani kote
 Tanzania haikuachwa
 Lakini mwezi Aprili ya 2020 tuliachana na juhudi zozote za pamoja kudhibiti kuenea kwa ugonjwa huu nchini
 Kwenye twiti zake za mwisho akasema
-Did he die of Covid19 tho
-Yes he did
-And him and her
-And them
-Tanzanians
-And beyond
-But they are not who you want to talk about is it They are not The Story
-It is
-A friend gets in touch
-Can you Wellcan I make it personal Please do
-I will
-Tomorrow
-Elsie Eyakuze MikocheniReport March 20 2021
-Hivi alifariki kwa Korona Ndio bila shaka
+Hivi alifariki kwa Korona
+Ndio bila shaka
 Huyu na yule
 Na wao
 WaTanzania
@@ -463,7 +404,8 @@ Nitafanya hivyo
 Kesho
 Katika barua ya wazi kwa Magufuli  Eyakuze anaeleza kubadilika badilika kwa misimamo ya Magufuli lakini anatumia mbinu ya kuelewa hisia za mwingine mbinu ambayo inaonekana kumshinda Magufuli mwenyewe  mara nyingine  na kumsamehe
 WaTanzania wanakubaliana na utata na uzito wa kifo cha Magufuli na kumbukumbu anayoiacha nyuma yake  wakati huo macho yao yakiwa yamefungwa yakitazama mbele
-makala 12
+
+Makala 11
 Nani ana nguvu ya kuamua kitu gani kionekani na kipi kisionekane kwenye mtandao Hili ndilo swali muhimu linaloulizwa na mwanaharakati na mwandishi Jillian C
 York kwenye kitabu chake kijacho Silicon Values kinachotarajiwa kuzinduliwa mnamo Machi 23 2021
 Mnamo Jumatano Februari 10 saa 200mchana GMT Jillian ataungana na mkurugenzi mtendaji wa Global Voices Ivan Sigal kwa mazungumzo mubashara ya video kuhusu kitabu chake ambacho kama anavyoeleza kwenye dibaji tunatafuta kuchimbua historia ya namna majukwaa makubwa ya mawasiliano ya Silicon Valley yalivyotengeneza mfumo wake wa kipekeehususani mfumo ambao unatawala namna tunavyoweza kujieleza mtandaoni
