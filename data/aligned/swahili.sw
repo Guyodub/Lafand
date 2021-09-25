@@ -413,7 +413,8 @@ Jillian ambaye ni Mkurugenzi wa Uhuru wa Kujieleza wa Kimataifa katika shirika l
 Kipindi hiki ni bure na wazi kwa umma na kitaruka moja kwa moja kwenye mtandao wa  Facebook Live YouTube na Twitch
 Tunasuburi kwa hamu kukuona ukiungana nasi Jumatani Februari 10 saa 200mchana GMT bofya hapa kuangalia muda unaoendana na eneo ulipo
 Kununua kitabu hiki kupitia kiungo hiki kutasaidia kuichangia Global Voices
-makala 13
+
+makala 12
 Kijana akitazama simu yake ya kiganjani nchini Tanzania Desemba 9 2018
 Picha na Riaz Jahanpour kwa mradi wa USAID  Mawasiliano ya Maendeleo ya kiDijitali kupitia mtandao wa Flickr CC BY 2
 0
@@ -458,12 +459,9 @@ Mtaalam huyo hakutaka kutajwa jina akiogopa kuchukuliwa hatua
 Mtaalam mwingine wa afya aliiambia Global Voices kwa sharti ya kutokutajwa jina kwamba watu lazima wafahamu mwenendo wa hali ya UVIKO19 ili waweze kuchukua tahadhari kujilinda na kuzuia kusambaa kwa virusi hivyo kwa jamii zao
 Alisema kwamba kuwaacha watu gizani kunafanya kazi yao iwe ngumu lakini aliamini kwamba Watanzania watajaribu kujilinda wenyewe kwa kuchukua tahadhari zote kama inavyoshauriwa na Shirika la Afya Duniani WHO
 Aliiambia Global Voices
-Politicians have taken over the whole COVID19 issue and they are playing a dangerous game but when people will start dying they will start sacking medical staff
 Wanasiasa wameteka suala hili zima la UVIKO19 na wanacheza mchezo hatari lakini watu watakapoanza kufa wataanza kuwafukuza wafanyakazi wa afya
 Daktari mwingine aliyezungumza na Global Voices kwa sharti la kutokutaja jina lake alisema kwamba ingawa kuna matumaini ya kupata kinga matamshi ya serikali ya Tanzania kukanusha uwepo wa ugonjwa huo yatakwamisha upatikanaji wake kwa sababu serikali haijachukua hatua yoyote kuitafuta kwenye masoko ya dunia na  badala yake kukimbilia tiba za mitishamba
 Mwezi Desemba 2020 Msemaji wa Waziri wa Afya Gerald Chamii alionesha mashaka yake kwa chanjo zinazopigiwa chapuo duniani akiliambia jarida la East African
-It takes not less than six months to find a vaccine or cure for a certain disease
-We have fared on our own since the pandemic spread I am not sure if it is wise to have a vaccine imported and distributed to the citizens without undertaking clinical testing to approve if it is safe for our people
 Haichukui hata miezi sita kupata chanjo au tiba ya ugonjwa fulani
 Tumejikwamisha wenyewe tangu mlipuko uanze sina hakika kama ni busara kuingiza kinga hiyo na kuisambaza kwa wananchi bila kufanya majaribio ya kitabibu kuthibitisha usalama wake kwa watu wetu
 Kupata taarifa ni suala muhimu kwa demokrasia na maendeleo
@@ -474,74 +472,38 @@ Hata hivyo haki hizi zinaonekana kuwa nadharia zaidi kuliko uhalisia
 Katika hali ambayo serikali inakanusha uwepo wa UVIKO19 na kuwepo kwa sheria zinazozuia watu kupeana taarifa na kutoa maoni kuhusu ugonjwa huu mtandaoni na mtaani Watanzania wanaachwa bila taarifa za msingi na wengi wanaogopa kuzungumza
 Makala haya ni sehemu ya mfululizo wa makala zinazochunguza kuingiliwa kwa haki za kidijitali wakati wa hatua za kuwafungia watu ndani kudhibiti kusambaa kwa UVIKO19 katika nchi tisa za Afrika Uganda Zimbabwe Msumbiji Aljeria Naijeria Namibia Tunisia Tanzania na Ethiopia
 Mradi huu umefadhiliwa na Mfuko wa Haki za Kidijitali Afrika unaendeshwa na Ushirikiano wa Sera za Kimataifa za TEHAMA kwa Afrika Mashariki na Kusiki mwa Bara la Afrika  CIPESA
-makala 14
+
+makala 13
 Picha ikionesha uhitimu wa mafunzo ya polisi huko Msumbiji  picha ya skrini ya Agosti 19  STV  Youtube ilipigwa na mmiliki  
 Nyaraka  za jeshi la polisi  la Msumbiji zilizovujishwa katika vyombo vya habari mapema mwezi Agosti zilidhihirisha kwamba wanafunzi 15 walipata ujauzito wakiwa katika shule ya mafunzo ya polisi huko Matalane wilaya ya  jimbo la Maputo
 Nyaraka hizo zinasema  kuwa mimba hizo ni matokeo ya uhusiano wa kingono uliopo baina ya wanafunzi na wakufunzi bila kufafanua kama mahusiano hayo yalikuwa ya hiari
 Hata hivyo imeelezwa kwamba wanafunzi wajawazito hawataweza kumaliza mafunzo kwa sasa na watasafiri kurudi makwao wakilipiwa usafiri na polisi
 Mwisho taarifa hiyo ikasema kuwa wakufunzi waliohusika watasimamishwa kazi
-
 Alipoulizwa na gazeti la O País hapo Agosti 8 Kamanda wa Jeshi la Polisi Jenerali Bernardino Rafael alisema kuwa wahusika wote watakutana na taratibu za kinidhamu
-
 Haikuchukua muda mrefu kabla shauri hili kulaaniwa vikali katika mitandao ya kijamii
 Watumiaji kadhaa wa mitandao walieleza wazi kutokufurahishwa na maamuzi ya shule hiyo na hivyo kutaka haki ifanyike kwa wanawake hao
-
 Mwanaharajati Fátima Mimbire aliandika huko Facebook
-Tratem o assunto Matalane com a devida seriedade
-Estou de coração partido com esta notícia de 15 instruendas grávidas no Centro de Treinos de Matalane
-Isso é grave
-É grave porque como o próprio documento refere envolve os instrutores
-Ora uma pessoa que detém autoridade sobre outra a engravida e o fim é um processinho Isso me lembra o professor que exige sexo às alunas em troca de notas ou para não serem humilhada na sala de aulas por serem na visão do professor burras no lugar de ser processado é transferido para ir dar aulas em outro lugar
-E lá continua as suas façanhas
 Suala  la Matalane lichukuliwe kwa uzito
 Nimevunjwa sana moyo na suala hili la ujauzito wa wanafunzi 15 wa kituo cha mafunzo cha  Matalane
 Hili jambo kubwa sana
 Ni jambo kubwa kwa sababu kama nyaraka zilivyoonesha wahusika ni wakufunzi
 Sasa mtu mmoja mwenye mamlaka juu ya mwingine anamtia mimba na matokeo yake ni mchakato kidogo Hili linanikumbusha kuhusu mwalimu aliyedai rushwa ya ngono kwa wanafunzi wake ili awape maksi au ili asiwadhalilishe darasani kwa sababu kwa mtazamo wake wanafunzi hao ni wajinga na badala ya kushtakiwa mwalimu yule alihamishwa akafundishe mahali pengine  na huko anaendeleza unyonyaji wake
 Txeka mwanaharakati wa haki za wanawake pia alilaani jambo hili huko Twitter
-Caso de Matalane
-A edificação de uma sociedade de justiça social na defesa de igualdade de direitos os cidadãos passa por uma politica de educação e formação equilibrada valorizando a formação dos cidadãos com preparação científica e educação moral cívica e patriótica
-pic
-twitter
-comfiMoyq3DOW
-Txeka TxekaMoz August 10 2020
 Shauri la Matalane
 Kuunda jamii yenye usawa kijamii katika kulinda haki sawa kwa wananchi inahitaji elimu sawia pamoja na sera za maendeleo zinazojali maendeleo ya wananchi pamoja na maarifa ya kisayansi na maadili pamoja na elimu ya uzalendo
-Caso Matalane
-A culpabilização da violência contra a mulher é uma prática comum nas sociedades machistaspatriarcais conhecidas pela desvalorização da mulher e submissão às vontades do homem causando julgamentos acerca da conduta da vítima atenuando a conduta do agressor
-pic
-twitter
-comOGbrfeOUVa
-Txeka TxekaMoz August 11 2020
 Shauri la Matalane
 Kulaumu ukatili dhidi ya wanawake ni jambo la kawaida kwa jamii zenye mfumo dume zinazofahamika kwa kudhalilisha wanawake na kuwafanya kutii matakwa ya wanaume ikiletea kuhukumiwa kwa matendo ya wahanga na kupunguza hatia ya wanyanyasaji
 Profesa wa chuo kikuu Carlos Serra alisema
-Matalane Apenas a ponta do Iceberg somos formatados para reproduzir Matalane
-Imagino o dia em que elas começarem a narrar as suas histórias começando pela mais tenra infância
 Matalane Ni kipande kidogo sana cha barafu kinachochungulia na Matalane ni zao letu
 Ninafikiria siku watakapoanza kueleza masahibu yao wakianzia tangu utoto wao
 Vile vile mwanahabari na mwanaharakati  Selma Inocência alisema
-Poucos professores são levados à justiça julgados e condenados
-São responsáveis pela infância perdida de milhares de meninas
-A escola não é segura
-Estatísticas revelam que centenas de meninas são engravidadas na escola parte delas por tutores professores directores
-pic
-twitter
-comQ8F0LPbbpw
-Txeka TxekaMoz August 13 2020
 Waalimu wachache sana wamefikishwa mahakamani wakashtakiwa na kuhukumiwa
 Wanahusika na kuwapotezea utoto wao maelfu ya wasichana
 Shuleni sio sehemu salama
 Takwimu zinaonesha kwamba mamia ya wasichana hupata mimba shuleni na wahusika wengine wakiwa ni wakufunzi walimu na wakuu wa shule
 Ombi limepitishwa likitaka adhabu itolewe kwa maofisa wa polisi waliohusika
 Mpaka sasa zaidi ya watu 38000 wameshasaini
-
 Hapo Agosti 19 Rais Filipe Nyusi hatimaye aliongea kuhusu kesi hiyo na akasema kuwa polisi itafanya uchunguzi 
-Para o Governo este caso é sério e está a ser investigado ao detalhe ao nível ministerial e do ComandoGeral da Polícia da República de Moçambique
-O Estado não deve nem vai tolerar situações como esta
-A lei deverá ser cumprida e ela é igual para todos nós
-Ninguém está acima da lei
-Decorrem inquéritos para aferir os contornos de cada um dos casos procurando salvaguardar o estado psíquico e emocional das gestantes porque elas merecem respeito humano
 Kwa serikali suala hili ni la msingi na linafanyiwa uchunguzi wa kina katika ngazi ya wizara na mkuu wa jeshi la polisi la Msumbiji
 Jamuhuri haiwezi na haitavumilia masuala kama haya
 Lazima sheria ichukue mkondo wake na ni kwa kila mtu
@@ -549,18 +511,16 @@ Hakuna mtu aliye juu ya sheria
 Upelelezi unaendelea kwa kuchunguza kwa kina taarifa zote katika kesi hii na kuzingatia hali ya kisaikoloji na kihisia ya wanawake hao wajawazito kwasababu wanastahili kuheshimiwa utu wao
 Kesi Nyingine
 Huu ni muendelezo wa kesi za ukatili wanaokumbana nao wanawake wa Msumbiji ambapo haziripotiwi katika vyombo vya habari
-
 Moja kati ya kesi ambayo hivi karibuni ilishikilia vichwa vya habari ni ile ya Alberto Niquice Kaimu wa chama cha Liberation Front of Mozambique Frelimo ambaye anakabiliwa na shauri la jinai  kwa kosa la kumbaka mtoto wa miaka 13 mwaka 2018
-
 Mapema  mwaka huu Taasisi 30 za kiraia nchini Msumbiji zilimtaka Niquice asiapishwe baada ya kuchaguliwa tena mwaka 2019
 Hata hivyo makamu aliichukua ofisi na anafanya kazi kama kawaida katika bunge
-
 Kesi  nyingine iliyo katika vyombo vya habari ni kuhusu ukatili aliofanyiwa Josina Machel binti wa Rais wa kwanza wa Msumbiji Samora Machel
 Oktoba mwaka 2015 Josina alipigwa na mpenzi wake wa miaka mitatu Rofini Licuco akiachwa na upofu wa jicho moja
 Licuco alihukumiwa kwenda gerezani miaka 3 na miezi 4 pamoja na kulipa fidia ya metika milioni 300 sawa na dola za Marekani milioni 4
 2 kwa Josina
 Hata hivyo Rofino alikata rufaa na Juni mwaka huu Mahakama kuu ya Rufaa iliifutilia kesi hiyo mbali kwa madai kuwa hapakuwepo na ushahidi wa kutosha katika kesi hii
-makala 15
+
+makala 14
 Jumanne Hii ya Utoaji changia Global Voices httpsglobalvoices
 orgdonate
 Mwaka 2020 umekuwa wa pekeena haujakamilika bado
@@ -571,7 +531,7 @@ Kazi yetu na jumuiya ya waandishi wetu wa kimataifa ni ushahidi kwamba uhusiano 
 Tafadhali changia leo kutusaidia kuendeleza kazi hii muhimu
 Changia Global Voices 
 
-makala 16
+makala 15
 Desemba 2004
 Ilikuwa lazima uwe mwanafunzi wa chuo kikuu kutumia mtandao wa Facebook Twitter ilikuwa bado haijaanza kutumika wachokozi bado walikuwa wanaishi kwenye madaraja ya masimulizi ya kusadikika
 Simu zetu bado hazikuwa na akili kuvuja wakati huo ilimaanisha maji na ungemwita fundibomba kurekebisha na bado Amazon
@@ -589,67 +549,49 @@ Tunamaanisha kabisatunahitaji msaada wako
 Michango kutoka kwa watu binafsi inatusaidia kulinda uhuru wetu na kutuwezesha kufanya maamuzi magumu kukua na kubadilika
 Tafadhali tuunge mkono leo
 Changia sasa
-makala 17
+
+makala 16
 Wasafiri wakivuka mpaka kati ya Ghana na Togo Afrika Magharibi mnamo Januari 25 2016
 Picha ya Enock4seth kupitia Wikimedia Commons CC BYSA 4
 0
 Viongozi wa Afrika wamechukua uamuzi wa haraka kukabiliana na UVIKO19
 Kituo cha Afrika cha Kudhibiti Magonjwa ACDC kiliunda kikosi kazi ya UVIKO19 Februari 5  kabla ya bara hili halijashuhudia hata mgonjwa mmoja
-
 Leo hii Afrika ambalo kwa sasa ndilo eneo lililoathirika kidogo sana duniani likiwa na wangonjwa wapato 1293048 waliothibitishwa wenye UVIKO19 na kinachovutia zaidi ni wagonjwa 1031905 wakiripoti kupona kwa mujibu wa Afrika CDCP
 Bara hili lina chini ya asilimia 5 ya wagonjwa walioripotiwa duniani kote na chini ya asilimia 1 ya vifo vyote vilivyotokea duniani kote
-
 Sasa kama nchi za Kiafrika  ikiongozwa na Umoja wa Afrika   wanalegeza vikwazo za COVID19 na kujiandaa kufungua tena uchumi na mipaka yao serikali nyingi wanatumia teknolojia bunifu
 Utaji wa umoja wa teknolojia ya Kiafrika inayoweza fuatilia usambaa na kukutanisha vituo ya kupima COVID19 kote bara umepelekea utumizi wa PanaBIOS teknolojia wa uangalizi wa kibiolojia unaoungwa mkono na Umoja wa Afrika
-
 PanaBIOS umetoa programu inayotegema rununu na wavuti na kutumia algorithimu kufuata watu walio hatarini kiafya na kuweka rekodi ya vipimo vya sampuli toka asili hadi maabara
-
 Huu teknolojia umeundwa na Koldchain taasisi chipukizi ya Kenya na kufadhiliwa na AfroChampions ushirikiano wa umma na binafsi uliobuniwa kuleta pamoja rasilimali ya Afrika na taasisi kusaidia ubuzi na mafanikio ya sekta binafsi Afrika
-
 Ghana ndio nchi pekee kwa saa hii inayotumia teknolojia ya PanaBIOS wakati inafungua mipaka yake
 PanaBIOS  kuhakikisha wasafiri wanaweza tumia matokeo ya vipimo toka nchi nyingine kuridhisha mahitaji ya idhini ya bandari kwa nchi wanayosafiria kupitia programutumizi ya PanaBios au kwa kuongezea nywila unaozalishwa na mfumo kwa hati za usafiri
-
 Maafisa wa afya bandarini wanatumia programutumizi toleo la biashara kudhibitisha hati za afya kwa namna sawa kwa nchi zote
 Sheria kamili za kulinda data na ufaragha
 Muungano wa Afrika na Afrika CDCP wanahimiza mataifa wanachama  kushirikisha jukwaa wenye msingi wa rununu PanaBIOS  utakao wezesha matokeo kote barani kuwekwa pamoja
 Lakinitarakimu kuingilia kati afya kumezua maswali mengi kuhusu ufikavu na ufaragha wa data
-
 Ufuatiliaji unaoendeshwa na serikali  na udhibati unaweza nuiza hofu na kutishia huru uraia hasa katika bara ambapo  nchi 27 tu kati ya 54  wanayo sheria kamilifu ya ulinzi na ufaragha wa data
 Nchi nyingine Afrika kama Ghana yamebadili sheria kuipa rais mamlaka ya dharura kukabiliana na janga kwa kuamrisha kampuni ya mawasiliano ya simu kuipa maelezo ya kibinafsi ya wateja kama vile hifadhidata ya mteja kumbukumbu ya simu ya mteja data ya pesa uliohamishwa kutumia simu na haujatumika misimbo ya wafanyabiashara wa miamala  na anwani
-
 Kuhakiki ulinzi na ufaragha wa data mbinu zote za masomo ya mashine inayotumiwa na PanaBIOS ziko katika data ya jumla
 Hio ni  data iliokusanywa inahaririwa kwa ajili ya uchambuzi wa takwimu  sio data binafsi ya kulenga watu  isipokua kwa ajili ya kufuatilia mwasiliwa ambapo itatakikana kufikia washukiwa ama waathiriwa
-
 Kuhakikisha uzuizi wa kuingilia ufaragha Muungano wa Afrika PanBIOS na washirika wake lazima wapendekeze namna watakavyo zingatia sheria za ulinzi wa data za nchi tofauti tofauti kulinda ufaraghahakikisha idhini ya data na kuepuka kushiriki data kibiashara
-
 Kwa sasa huu pragramutumizi hauna sera ya faragha inayopatikana kwa umma ambapo inaelezea watumiaji kanuni za kukusanya na kushiriki data
-
-Changamoto ni jinsi huo sera faragha utatimiza malengo mbalimbali kibara kitaifa na kikanda ya sheria za kulinda data kama vile ya Muungano wa Afrika Mkataba juu ya Usalama wa Mtandao na Ulinzi wa Takwimu za Kibinafsiya Jumuiya ya Maendeleo Kusini mwa Afrika SADC sheria kielezo juu ya ulinzi wa data Jumuiya ya Kiuchumi ya Mataifa ya Afrika Magharibi
-ECOWAS Sheria ya nyongeza A  SA
-1  0110 juu ya Ulinzi wa Takwimu Binafsi Ndani ya ECOWAS na Jumuiya ya Afrika Mashariki Kiunzi cha Kanuni za mtandao
-
+Changamoto ni jinsi huo sera faragha utatimiza malengo mbalimbali kibara kitaifa na kikanda ya sheria za kulinda data kama vile ya Muungano wa Afrika Mkataba juu ya Usalama wa Mtandao na Ulinzi wa Takwimu za Kibinafsiya Jumuiya ya Maendeleo Kusini mwa Afrika SADC sheria kielezo juu ya ulinzi wa data Jumuiya ya Kiuchumi ya Mataifa ya Afrika Magharibi ECOWAS Sheria ya nyongeza A  SA
+10110 juu ya Ulinzi wa Takwimu Binafsi Ndani ya ECOWAS na Jumuiya ya Afrika Mashariki Kiunzi cha Kanuni za mtandao
 Suluhu za kiteknolojia zimechangia ufanisi kukabiliana na COVID19 Afrika 
 Pamoja na PanaBIOS baadhi ya mataifa ya Afika wameamilisha itikio inayoegemea teknolojia kupambana na uenevu wa janga la COVID19
-
 Kwa mfano wanasayansi toka Sengali wametengeneza kifaa cha kupima COVID19 inayogharimu 1 na Vipumuaji vya 3D ya wagonjwa
 Wellvis taasisi chipukizi ya Nijeria walibuni chombo cha kupima COVID19  chombo huru ya mtandao kusaidia watumizi kujipima kiwango cha hatari ya kuambukizwa virusi vya korona kulingana na dalili na historia ya kuwemo hatarini
 Serikali ya Afrika Kusini ilitumia mtandao wa ujumbe mfupi Whatsapp kutoa mazungumuzo ya mwingiliano kujibu maswali ya kawaida kuhusu hadithi za uongo dalili na tiba ya COVID19
 Na Uganda  wanawake wa soko walitumia programutumizi ya Soko Bustani kuuza bidhaa yao wakiwa nyumbani kutumia hii programu kisha teksi ya pikipiki kumchukulia mnunuzi bidhaa
 Afrika kufanikiwa kudhibiti na kusimamia uenevu wa COVID19 umehusishwa na  umma changa uwezo kadiri wa kupima na kufuatilia waliofariki na uwezekano wa kuwepo na  kingamwili za SARSCoV2  miongoni Waafrika wengine 
-
 Lakini ni bayana kwamba uvumbuzi zinazoegemea teknolojia zimechangia pakubwa kufanikisha uthibati wa COVID19 pamoja na uongozi amuzi mwanzoni mwa janga
-
 Solomon Zewdu naibu daktari na shirika la Bill na Melinda  alifupisha jinsi mnamo Januari wakati mataifa mengi ya magharibi yakisita  Ethiopia ilianza kichujio kabambe uwanja wa ngege wa AddisAbaba
 Rwanda ikawa nchi ya kwanza Afrika kusitisha katikhuli za kawaida mnamo Machi 21na nchi kadhaa Afrika kufuatilia hivo karibuni Afrika kusini ikatekeleza sitisho katikhuli za kawaida kabambe wakati ilikua na kesi 400 na vifo mbili
 Na idadi hicho ya umma Italia ilikua na  zaidi ya kesi 9000 na vifo 400  ilipochukua hatua
 Kwa kulinganisha kinyumeidadi ya walioathiriwa na kufa Amerikani ni mara sita idadi ya Afrika
 Wataalam wa afya ya umma walikadiria kwamba janga lingeathiri pakubwa bara la Afrika na miili ya walokufa kutanda mitaa 
-
 Bayana Afrika imethibitisha vinginevyo
 
-makala 18
-Screen capture from CCTVs video on Miaopai
-Via Youtube
+makala 17
 Habari hii imetumia utafiti wa Factcheck Lab wakala wa uhakiki wa ukweli ulioko Hong Kongambaye pia ni mshirika wa habari wa Global Voices ambapo mwandishi ni mwanachama
 Tokea Septemba 22 taarifa za habari na machapisho ya mtandao ya kijamii inayoenea katika mitandao ya Kichina ilinukuu sivyo kuwa mwanasayansi mkuu wa Shirika la Afya Duniani SAD Dkt
 Soumya Swaminathan alisema chanjo za Uchina dhidi ya COVID19 zimethibitishwa kuwa na athari
@@ -657,18 +599,11 @@ Hizi ripoti na machapisho zinanukuu chanzo  video ya dakika inayotayarishwa na 
 Huo video inaonyesha hotuba ya mkurugenzi mkuu wa SAD Tedros Adhanom Ghebreyesus akiongelea umuhimu wa kukuza chanjo ya UVIKO19ikifuatiliwa na matamshi ya Dkt
 Swaminathan
 Katika video ya CCTV ambayo maelezo yake mafupi yanasema Mwanasayansi mkuu wa WHO Chanjo za China za UVIKO19 zimehakiki kuwa na athari 世卫组织首席科学家中国的新冠疫苗已被证明有效 huu ni taarifa ya Swaminathan
-As you know they also have a very active vaccine development programme and several of their vaccine candidates are in advanced stages of clinical trial so this is also of interest to us so were following those very closely
-Some of their candidates actually prove to be successful in the clinical trials that are going on
 Kama mnavyofahamupia wanayo programu amilifu ya kukuza chanjo na baadhi ya chanjo yako hatua mbele katika majaribio ya kliniki huu pia ni maslahi kwetu tunaifuatilia kwa karibu
 Wengineo wa washirika wamethibitisha kufaidika kutokana na majaribio la kliniki yanayoendelea
-Lakini hotuba asili ya Dkt
-Swaminathan umehaririwa
+Lakini hotuba asili ya Dkt Swaminathan umehaririwa
 Sentensi yake ya mwisho kwa uhakika ulianza na neno ikiwa na mziki wa mandharinyuma ulifanya utoke kana kwamba anasema ulithibitisha badala ya thibitisha
-Matamshi ya Dkt
-Swaminathan kamili ni haya yafuatayo 
-Weve been engaged in discussions with China for the last several months because as you know they also have a very active vaccine development programme and several of their vaccine candidates are in advanced stages of clinical trial so this is also of interest to us so were following those very closely
-Weve had very constructive and open discussions with them and they have always been reiterating their commitment to global access if some of their candidates actually prove to be successful in the clinical trials that are going on emphasis added
-So I think the conversations are going on its still open and were hopeful that more countries are going to join
+Matamshi ya Dkt Swaminathan kamili ni haya yafuatayo 
 Tumehusika na mjadala na Uchina kwa miezi mingi iliyopita kwa sababumnavyojua hao pia wanao programu amilifu ya kukuza chanjo na na chanjo zao mingi ziko hatua mbele ya majaribio ya kliniki huu ni maslahi kwetukwa hivyo tunafuatilia kwa karibu
 Tumekuwa na mjadala wa kujenga na wazi nao na kila mara wamesisitiza kujitolea kwao kwa ufikavu kote duniani  ikiwa baadhi ya chanjo zao zimepita majaribio ya kliniki yanayoendelea msisitizo umeongezwa
 Kwa hivyo nafikiria mazungumuzo yanayoendelea bado ni wazi na tunatumania nchi mingi watajuinga
@@ -679,64 +614,47 @@ Kufikia sasa mataifa 156 wamejisajili katika mpango huu si Uchina wala Amerika�
 Kama ilivyokadiriwa video ya CCTVTpamoja na ripoti ya habari na machapisho zinazozalishwa zimevutia ridhaa za kizalendo
 Chapisho katika Weibo na Daily Economic News imependwa na watu zaidi ya 337000
 Chini hapa ni baadhi ya maoni maarufu
-为您骄傲我的国这是国庆中秋最好的礼物
 Najivunia sana nchi yangu
 Hii ndio zawadi ya Siku ya Kitaifa na Tamasha la Katikati ya Vuli
-中国速度你无法想象为祖国自豪
 Huwezi dhania ukasi wa Uchina
 Navunia nchi yangu
-中国拯救了全世界
 China imeokoa dunia
 Baada ya wakaguzi hakika huashiria maneno ya Dkt
 zimepotoshwa baadh ya vyombo vya habariikiwa pamoja na  CGTN na CCTV walifutilia machapisho yao ya mtandao wa kijamii
 Miongoni mwao ni Ligi ya Kikomunisti ya Vijana ya China ambao chapisho lao ilinikuliwa na mtumiaji wa mtandao wa twita Emi2020JP kabla kupotea toka Weibo
-先给谭德塞来两针 pic
-twitter
-comIvIbSFl2XY
-Emi エミJP Emi2020JP September 28 2020
 Tedros anafaa kuchanjwa kwanza
 Kama Emi2020JP wengi wa watumiza wa mtandao wa twita waliamini WHO was assisting China with distorting the video na kuchapisha maoni ya hasikwa kwake Tedros
-谭德塞就是痰罐刷
 Tedros ni kisugulio ya choo
-我出錢給扊得塞多打几支
 Nitalipa kumpatia Tedros sindano ya ziada
-昨天我妈还说国内新闻报道美国向中国购买大量疫苗我听后连解释的欲望都没有了谁他们自己意淫吧
 Jana mama yangu aliniambia habari ya humu nchini ilisema Amerika itanunua chanjo mingi toka Uchina
 Sina haja kuelezea
 Wacha waishi katika fantasia yao 
-從散播病毒隱匿疫情到幫中國推銷疫苗真的是一條龍服務喔
 Kazi mzuri sana kuanzia kusitiri ueneaji wa virusi mpaka matangazo ya mauzo ya chanjo
 Ingawa machapisho kwa uchina yamefutiliwanakala za kuiga bado yanasambaa katika mitandao ya kijamii kama this public post WeChat
 Vyombo vya habari yanayoegemea Beijing huko Hong Kong kama Speak Out HK 港人講地and Today Review 今日正言 pia yamechapisha habari kutokana na hio video
 Kuna chanjo takriban 200 za UVIKO19 yalioko katika hatua mbali mbali ya majaribio ya kliniki ulimwenguni na mengi miongini mwao yameandaliwa na maktaba za Uchina
 Hakuna ambayo imepita awamu ya 3 ya majaribio kwa sasa
-makala 19
+
+makala 18
 Maandamano dhidi ya kifo cha daktari Silvio Dala huko Luanda
 Picha na Simão Hossi CCBY 3
 0
 Mamia ya Waangola waliingia mitaani kuandamana hapo Septemba 12 huko Luanda Benguela na miji mingine 15 wakipinga ukatili wa polisi
-
 Maandamano hayo yalianza baada ya habari za kushtusha kutolewa kuhusu kifo cha daktari Silvio Dala mwenye miaka 35 aliyepoteza maisha Septemba 1 akiwa chini ya uangalizi wa polisi
-
 Kulingana na taarifa za mamlaka Dala aliondoka kwa gari yake kutoka hospitali ya  Watoto ya David Bernardino huko Luanda ambapo ndiko hufanya kazi kama Mkurugenzi wa kliniki na alisimamishwa na polisi kwa sababu hakuvaa barakoa
-
 Daktari huyo alipelekwa katika kituo cha polisi cha Catotes katika mji jirani wa Rocha Pinto na alipoonesha dalili za kuishiwa nguvu na kuanza kuzimia alianguka vibaya na kugonga kichwa na kusababisha jeraha dogo kichwani mwake ilisema taarifa rasmi ya polisi
 Pia ilisema kwamba Dala alifariki wakati maofisa wa polisi wakimpeleka hospitali
 Chama cha Madaktari kiliipinga taarifa hiyo
 Raisi wa chama hicho Adriano Manuel aliiambia  Sauti ya Amerika VOA kwamba kuna utata katika maelezo ya mamlaka ambapo inaonesha kwamba daktari alisulubiwa
-
 Manuel aliiambia  Sauti ya Ujerumani DW kwamba  chanzo cha kifo kilichoelezwa na polisi sio halisi
 Mtu yeyote ambaye ni daktari na amesomea udaktari atajua kuwa hiki sicho kilichomuua Silvio
 Kulingana na DW chanzo cha habari kutoka wizara ya mambo ya ndani kinasema kuwa uchunguzi ulifanyika mbele ya familia na mwendesha mashtaka na ikathibitika kwamba daktari hakuwa mhanga wa kipigo
-
 Chama kimesema kuwa kitalichukulia jeshi la polisi hatua za kisheria
 Wakati huo huo serikali ya Angola imeunda tume itakayoshirikiana na Wizara ya Afya kufanya uchunguzi wa tukio hilo
-
 Waandanaji hawaiamini taarifa ya polisi kuhusu kifo cha Dala
 Mabango yaliyotumiwa na waandamanaji katika maeneo mbalimbali ya mji wa Luanda yalisema Kusiwepo tena Mauaji Mnalipwa kutulinda hamlipwi kutuua Mimi ni Silvio Dala Wamemuua Silvio Dala
 Pia kuna waliomtaka waziri wa Mambo ya Ndani Eugénio Laborinho ajiuzulu
 Maandamano yaliaandaliwa na Chama cha Madaktari wakishirikiana na mashirika na Taasisi za kiraia
-
 Maandamano dhidi ya kifo cha daktari Silvio Dala huko Luanda
 Picha na Simão Hossi CCBY 3
 0
@@ -744,39 +662,27 @@ Maandamano dhidi ya kifo cha daktari Silvio Dala hiko  Luanda
 Picha na  Simão Hossi CCBY 3
 0
 Tangu kuanza kwa janga la korona nchini Angola vimeripotiwa visa kadhaa vya polisi kutumia nguvu kubwa wakati wakifanya ukaguzi  na wakati mwingine husababisha vifo vya raia
-
 Akiongea na  Lusa mwanamuziki wa kufokafoka  Brigadeiro 10 Pacotes ambaye jina lake halisi ni  Bruno Santos alimtaka Lugarinho ajiuzulu na pia akiitaka shule ya polisi iboreshe muundo wake wa mafunzo
-
 Jeshi la polisi ni taasisi ambayo inapaswa kuwapa wananchi ujasiri lakini leo wananchi wanakosa ujasiri yaani wanaogopa wanapokutana na polisi alimalizia kusema
 Maandamano dhidi ya kifo cha daktari Silvio Dala huko  Luanda
 Picha na  Simão Hossi CCBY 3
 0
 Wengi waliyahamishia maandamano haya katika kurasa za Facebook na WhatsApp kupinga tukio hilo
 Mwanaharakati na mwanazuoni  Nuno Álvaro Dala aliandika huko  Facebook
-A POLÍCIA NACIONAL É A RESPONSÁVEL PELA MORTE DO MÉDICO SÍLVIO DALA
-As imagens são fortes e muito esclarecedoras
-Temos todos de exigir que a justiça seja feita
-A Polícia Nacional tem de pagar pelo crime que cometeu
-Isto não deve ficar assim
 POLISI WA NCHI HII WANAHUSIKA NA KIFO CHA DAKTARI SILVIO DALA
 Picha zina nguvu sana na ziko sawia
 Lazima wote tudai haki itendeke
 Polisi wa nchi hii lazima walipe kwa uhalifu waliotenda
 Mambo hayawezi kuendelea kuwa hivi
 Huko Twitter Isabel dos Santos mwenyekiti wa zamani wa bodi ya wakurugenzi wa kamapuni ya mafuta ya Sonangol binti wa rais wa zamani José Eduardo dos Santos alisema
-EuSouSilvioDala sábado anunciada manifestação pacífica e silenciosa pelo Sindicato Nacional dos Médicos de Angola SINMEAconvidando todos profissionais de saúdeoutros sindicatos e sociedade civil contra a violência policial em memória de Sílvio Dala 1230hLargo da Mutamba pic
-twitter
-comblRs117IdY
-Isabel Dos Santos isabelaangola September 11 2020
-MimiNiSilvioDala
 Siku ya Jumamosi Chama cha Madaktari wa Angola SINMEA kilitangaza mgomo wa kimya na wa amani wakiwataka wafanyakazi wa afya vyama vingine na taasisi za kiraia kupinga ukatili wa polisi ikiwa ni ishara ya kumkumbuka daktari Silvio Dala mnamo saa 630 mchana huko  Largo da Mutamba
 Kichwa cha habari waAngola waingia mitaani wakipinga ukatili wa polisi na wakitaka mauaji yakomeshwe
-
 Wakati huo huo  pia  huko Tweeter Alejandro alihoji ushiriki wa wahamasishaji wa mitandaoni nchini Angola katika tukio hili
 Quando o George Floyd foi morto os chamados Influencers Angolanos mostraram o seu apoio ao movimento Black Lives Matter mas com a morte do medico angolano Sílvio Dala os tais irmãos influencers não fazem nada em relação a perda
 Ale Alejandro AlejandroCutieG September 7 2020
 Wakati  George Floyd alipouawa hao wanaojiita wahamasishaji wa kiAngola mitandaoni walionesha kuunga mkono mchakato wa Maisha ya Weusi Yana Thamani lakini katika kifo cha daktari wa kiAngola Silvio Dala hawa ndugu hawafanyi chochote kuhusu janga hili
-makala 20
+
+makala 19
 Hachalu Hundessa akifanyiwa mahojiano na OMN kupitia Firaabeek Entertainment  CC BY 3
 0
 Dondoo ya Mhariri Huu ni uchambuzi wenye sehemu mbili juu ya Hachalu Hundessa mwanamuziki maarufu wa Oromo ambaye mauaji yake yaliamsha vurugu za itikadi za kidini na kikabila kwa sababu ya taarifa zisizo sahihi zilizotolewa katika mitandao ya kijamii
@@ -794,7 +700,6 @@ Siku ya maziko yake waombolezaji walifurika katika mitaa ya Addis Ababa na miji 
 Asubuhi iliyofuata Kituo cha runinga ya setilaiti cha Oromia Media Network OMN ambapo ndipo Hachalu alifanya mahojiano yake ya mwisho walirusha matangazo mubashara kupitia runinga na pia mitandao na kuonesha wakati jeneza lake likisafirishwa kutoka Addis Ababa kwenda nyumbani kwao huko mjini Ambo
 Matangazo hayo yaliyokwenda polepole sana yaligeuka kuwa uwanja wa mapambano baina ya mamlaka za serikali na viongozi wa upinzani kukiwa na mabishano ya wapi hasa akazikwe Hachalu  na OMN ilibidi wakatize matangazo yake inasemekana walilazimishwa kurejea Addis Ababa
 Watu kumi waliuawa na wengine kadhaa kujeruhiwa huko Addis Ababa
-
 Mgongano huo ulipelekea kukamatwa kwa baadhi ya viongozi wa upinzani akiwepo Jawar Mohammed ambaye ni kiongozi wa  OMN  na pia kiongozi wa upinzani Bekele Gerba ambapo walishtakiwa kwa kuchochea vurugu
 Utata uliibuka zaidi baada ya mamlaka za serikali kuuchukua tena mwili wa Hachalu na kuupeleka mjini kwao Ambo kwa njia ya helkopta ambapo pia pande mbili ziliendelea kugombana na kuinyima familia ya marehemu fursa ya kumpa ndugu yao maziko stahiki
 Baada ya hapo vurugu na mapigano yalifuata
@@ -827,41 +732,26 @@ Alizungumzia moja kwa moja mgogoro baina yake na Getachew Assefa Afisa Usalama M
 Guyo aliyeyatangaza mahojiano hayo katika ukurasa wake wa Facebook kwa kuyaita lazima uyaone siku chache kabla ya kurushwa kwake hewani amekamatwa na polisi tangu wakati huo na serikali inafanya upelelezi wa mkanda wa dakika 71 za mahojiano hayo ili kupata vielelezo vitakavyosaidia kupata ufumbuzi wa chanzo cha mauaji ya Hachalu
 Soma zaidi kuhusu madhara yaliyotokana na mauaji ya Hachalu Hundessa katika sehemu ya II
 
-makala 21
+makala 20
 Picha kutoka  Guardian YouTube video kuhusu ukeketaji wa wanawake
 Janga la COVID19 limeathiri kwa kiwango kikubwa haki za wanawake huko Mashariki ya Kati na Kaskazini mwa Afrika  kutoka kuongezeka kwa ukatili majumbani mpaka kupoteza ajira zao
 Lakini kuna eneo moja lililowazi ambapo wanawake wameathirika ambalo mi ukeketaji na hii ni baada ya kulipuka kwa janga la Korona na heka heka za kukabiliana nalo
-
 Mwezi April Umoja wa Mataifa ulitangaza kuwa kutokama ma vizuizi vilivyotokana na juhudi za kupambana na janga la korona kuna visa milioni 2 vya ukeketaji ambavyo vinakisiwa kutokea kwa muongo ujao ambapo ingewekana kuzuia kama uzuiaji wa korona usingetibua mpango na juhudi za kupambama na ukeketaji
 Ukeketaji unajumuisha shughuli za kukata kwa sehemu au kuondoa kabisa sehemu ya nje ya uke au kuumiza sehemu  za uke bila uhusiano au dhana yoyote ya kutabibu kulingana na Shirika la Afya Ulimwenguni WHO
 Kitendo hiki ni utamaduni wa kimila na kidini ulioota mizizi kote barani Afrika Mashariki ya Kati na Asia  na hufanywa na wakunga wa jadi waganga kwa kutumia visu nyembe au vipande vya chupa
-
 Ukeketaji pia unafahamika kama ukataji wa sehemu za siri inaaminika kwa upana kuwa ni  moja ya ukatili uliopitiliza dhidi ya wasichana na wanawake na bado unaripotiwa kwa uchache sana hasa huko Mashariki ya Kati
 Inakadiriwa kuwa angalau wanawake milioni 200 wameathiriwa nao
 Jambo hili limeelezewa vyema na UNICEF katika video 
-In the MENA region Female Genital Mutilation FGM is a problem that primarily concerns Egypt Sudan Yemen Iraq and Djibouti
-
-Carlos Javier Aguilar Regional Adviser Child Protection explains more
-Watch and sharehelp EndFGM  pic
-twitter
-comOrjJvIQl8R
-UNICEF MENA  يونيسف الشرق الأوسط وشمال إفريقيا UNICEFmena February 7 2020
 Katika ukanda wa Mashariki ya Kati na Kaskazini mwa Afrika ukeketaji ni tatizo ambalo kimsingi linazitatiza nchi za Misri  Sudan Yemen Iraq na Djibouti
 Carlos Javier Aguilar Mshauri wa Masuala ya Ulinzi wa Mtoto anaelezea zaidi
-Angalia na shirikishamsaada EndFGM  pic
-twitter
-comOrjJvIQl8R
 Somalia inadhaniwa kuwa na idadi kubwa ya wahanga wa ukeketaji ambapo asilimia 98 ya wanawake wenye miaka kati ya 15 mpaka 49 wamekeketwa
 Huko Djibouti inakadiriwa asilimia 93 wameathirika Misri asilimia 92 Sudan asilimia 88 Mauritania asilimia 69 Yemen asilimia 19  na Iraki asilimia 7 kulingana na takwimu zilizoachiliwa Juni na Shirika la Umoja wa Mataifa linaloshughulika na Idadi ya watu  UNFPA
-
 Kitendo hiki hutofautiana kulingana na tabaka la kijamii kabila na hata kiwango cha elimu katika kila nchi na katika maeneo ya mijini au vijijini
 Ukeketaji mara nyingi hutokea baina ya watu maskini zaidi au katika familia ambazo hazijaelimika katika maeneo ya vijijini
 Huko Yemen ukeketaji umeota mizizi katika ukanda wa Pwani lakini unafanyika kidogo katika maeneo ya Kaskazini
 Nchini  Iraq kitendo hiki kimesambaa sana katika upande wa Kaskazini mwa jimbo la Kurdi
 Huko Misri unafanyika zaidi kwa wasichana wanaoishi ukanda wa Juu wa Misri
-
 Nchini Mauritania zaidi ya asilimia 90 ya wanawake kutoka katika familia maskini zaidi wamefanyiwa ukeketaji ukilinganisha na asilimia 37 ya wanawake kutoka katika familia zenye kipato cha juu
-
 UKEKETAJI Ukatili Unaoripotiwa Kidogo Zaidi  
 Ukubwa na upana wa ukeketaji utakuwa umedharauliwa kwa sababu ya ulimwengu kutokuwa na picha halisi ya ukeketaji iliyokamilika kulingana na ripoti ya pamoja kuanzia Machi imeidhinishwa na  Usawa sasa Mtandao kutoka Ulaya wa Kutokomeza Ukeketaji   na  Mtandao wa kutokomeza ukeketaji kutoka Marekani
 Taarifa hiyo ilidhihirisha kuwa utamaduni huu unaongezeka na pia unafanyika hata Mashariki ya Kati na Asia na  dunia kwa hakika imeupuuzia ukeketaji
@@ -869,39 +759,25 @@ Tafiti ndogo zilizo fanyika hivi karibuni zinaonesha kuwa ukeketaji pia unafanyi
 Divya Srinivasan kutoka Usawa Sasa aliiambia Reuters kwamba alishangazwa sana na matokeo ya utafiti huo mdogo kutoka maeneo kama vile Omani na Saudi Arabia ambapo kwa kawaida sio maeneo ambayo yanaweza kukujia akilini unapoliwazia suala la Ukeketaji
 Taarifa hii ilichapishwa wakati janga la COVID19 likiwa limeshika kasi huko Mashariki ya Kati na haikuchapishwa wala kutafsiriwa hata kidogo na vyombo vya habari na mitandao ya kijamii ya Kiarabu
 Jamii kukosa uelewa kuhusu ukeketaji inaweza kuthibitisha dhana ya kuwa ukeketaji sio jambo la kutilia maanani kabisa
-
 Miiko ya Kijamii
 Huko Mashariki ya Kati kuna miiko inayoizingira miili ya wanawake ambapo ni marufuku kujadili hadharani mambo ya siri kama vile ukeketaji ambapo umefungamanishwa na imani za kimila dini na utamaduni
-
 Kwa mfano nchini Misri Wakristo na Waislamu kwa pamoja wanaamini kwamba ukeketaji wa wasichana unawafanya wavutie zaidi waume zao watarajiwa na unawakinga na mabaya pia wamama huhofia kwamba mabinti zao hawataolewa kama hawatakeketwa kulingana na ripoti ya Tokomeza Ukeketaji Mashariki ya Kati kampeni ambayo iliandaliwa mwaka 2013 kuipa jamii uelewa Kuhusu ukeketaji na pia kuuambia ulimwengu kuwa ukeketaji haupo Afrika pekee bali pia katika nchi nyingi za Mashariki ya Kati na Asia
 Taasisi hii inaendelea kukusanya taarifa zaidi za ukeketaji na imetengeneza njia ya kukusanya taarifa itakayosaidia mtu mmoja mmoja au vikundi vya watu kufanya tafiti ndogo juu ya ukeketaji
 Watu hupendelea kuepuka mazungumzo na  mada za ukeketaji labda tu litokee tukio litakalogusa vichwa vya habari kama tukio la kifo cha binti wa miaka 12 alifariki baada ya kukeketwa huko Kusini mwa Misri mwezi Februari ndipo watu huzungumza
-
 Ghida Hussein mwanafunzi wa Kimisri aliiambia Global Voices kwamba 
-As we dont talk about it it is as if the problem doesnt exist
-FGM is often practiced silently behind closed doors
-It is happening far from the more educated urban centers of power where activists and politicians are seated
-FGM is a controversial sensitive issue and unless there is international attention and funding it is not seen locally as a priority by an overwhelming male political class
 Kwa kuwa hatuzungumzi kuhusu jambo hili ni kama vile tatizo hili halipo kabisa
 Ukeketaji unafanyika kimya kimya nyuma ya milango iliyofungwa
 Inatokea huko mbali na watu walioelimika mijini ambapo ndipo wanaharakati na wanasiasa wanakaa
 Ukeketaji ni jambo tata na labda  jumuiya ya kimataifa zitoe msaada wa fedha na uhamasishaji lah sivyo hutaona jamii inayotawaliwa na tabaka la wanaume  wakilipa jambo hili kipaumbele
-
 Kuvunja miiko na kuongea kuhusu ukeketaji huwafanya watetea haki za Binadamu kushambuliwa kwa lugha za matusi na chuki
-
 Nchini Oman mwanaharakati wa haki za wanawake Habiba al Hinai mwanzilishi wa Taasisi ya Haki za Binadamu  Omani  alifanya utafiti mdogo mwaka  2017 huko Omani na akagundua kuwa asilimia 78 ya wanawake wamekeketwa
 Baada ya kuchapisha matokeo ya utafiti wake mtandaoni Habiba alipokea mashambulizi na vitisho 
-I posted my results online and the response was huge
-I was attacked by religious conservatives who say female circumcision is a form of Islamic worship
 Niliweka matokeo ya utafiti wanhu mtandaoni na mwitikio ulikuwa mkubwa
 Nimeshambuliwa na waafidhina wa kidini ambao walisema kuwa ukeketaji ni sehemu ya ibada ya Waislam
 Huko Omani ambapo ukeketaji hautambuliki rasmi hakuna ulinzi kwa wahanga
 Habiba aliongeza haya katika taarifa yake
-How can you ask a survivor to speak out against FGM and then face all the consequences criticism and online defamation her family and her tribe may disown her maybe her husband will divorce her  without proper support
-I dont expect these women to speak out and face society
 Ni jinsi gani unaweza kumwambia manusura aongee kuhusu ukeketaji na kisha akumbane na madhara yote haya ikiwamo kukosolewa kutukanwana hata familia au ukoo wame unaweza kumtenga kabisa pengine hata mumewe anaweza kumtaliki kama hakuna namna rasmi ya kuunga mkono
 Sitarajii wanawake hawa kusimama na kuzungumza lwa ujasiri na kuikabili jamii
-
 Kutokomeza Ukeketaji Iko Taratibu sana Haijitoshelezi
 Nchini Yemen na  Umoja wa Nchi za Kiarabu ukeketaji umezuiwa kufanyika katika Taasisi za afya pekee lakini sio majumbani
 Nchini Mauritania kuna kizuizi cha kisheria lakini sio kukatazwa moja kwa moja
@@ -912,28 +788,17 @@ Sudani ikiwa katika kipindi cha mpito kisiasa  baada ya miaka 30 ya udikteta i
 Lakini utekelezaji wa sheria ni changamoto kubwa kwa sababu ukeketaji bado uko kwa kiwango cha juu na unakubalika pia umesambaa kwa sehemu kubwa 
 Ingawa sheria sio silaha muhimu sana lakini bado hazijitoshelezi
 Nchi zinahitaji mpango na mkakati wa kitaifa unaotekelezeka ukihusisha polisi mahakama watoa huduma za afya makarani na kutoa elimu kwa jumuiya ya kijamii
-
 Mfululizo wa majanga ya kikanda na mamlaka za kidikteta imechelewesha mabadiliko yakizuia kampeni na rasilimali za kupambama na uvunjifu wa hali za wanawake
 Sasa macho yote ya ulimwengu yameelekezwa kwenye kupambana na COVID19 na madhara yake katika uchumi na programu nyingi ambazo zinahusika moja kwa moja na haki za wanawake walio katika mazingira hatarishi na kutoa huduma za kijamii zimeahirishwa kwa au pengine sio kipaumbele tena
 Kukiwa na familia nyingi maskini na wasichana wengi wanaoachishwa shule au ndoa utotoni ukeketaji ni kama vile unaendelea kupata nafasi bila kujulikana katika ukanda huu
-makala 22
+
+makala 21
 Picha ya Abubakar Idris Dadiyata imetumika kwa ruhusa kutoka kwa The SignalNg
 Abubakar Idris Dadiyata mhadhiri na mkosoaji mashuhuri wa serikali ya Nigeria alitekwa nyumbani kwake mnamo mwezi Agosti 1 2019 huko Barnawa jirani na Kaduna Kaskazini Magharibi mwa  Nigeria
 Mwaka mmoja baada ya kutekwa kwake bado Dadiyata hajapatikana
 Abubakar Idris Didiyata was abducted from his home in Kaduna state Nigeria
-His whereabouts still not known
-His family and friends are demanding answer to the question where is dadiyata Abubakar is a victim of enforced disappearance
-DayoftheDisappeared FreeDadiyata
-pic
-twitter
-com3DtPxMVK3C
-Amnesty Int
-Nigeria AmnestyNigeria August 30 2019
 Abubakar Idris Didiyata alitekwa nyumbani kwake katika jimbo la Kaduna Nigeria
 Nyendo zake bado hazijafahamika na familia yake  na marafiki wanataka majibu ya maswali yao ambayo ni yuko wapi dadiyata Abubakar ni mhanga wa kupotezwa SikuYaKupotea MwachieniHuruDadiyata
-pic
-twitter
-com3DtPxMVK3C
 Dadiyata alikuwa mkufunzi katika chuo Kikuu cha Umma cha Dutsinma katika Jimbo la Katsina
 Kama mwanachama wa chama cha upinzani cha Watu na Demokrasia Peoples Democratic Party mara zote Dadiyata alikwaruzana na wanachama wa Chama tawala cha Maendeleo Kwa Watu Wote All Progressive Congress party katika mitandao ya jamii
 Soma Zaidi Hofu yatanda dhidi ya utekaji wa mkosoaji wa serikali ya Nigeria
@@ -952,40 +817,22 @@ Kwa vyovyote ni kinyume na ni mtazamo finyu kutaka kuamini kwamba kwa kuwa alite
 Hata hivyo kukana kuhusika kwa Usalama wa Taifa na serikali ya jimbo la Kaduna hakuondoi sononeko la mke wa  Dadiyata na watoto wao wawili wala hairejeshi uhuru wake
 Maombi ya kutaka kuachiliwa kwa Dadiyata bado yanaendelea kurushwa katika kurasa za Twitter yakiwa na hashtagi ya MwakaMmojaBilaDadiyata ikiwa ni dai la Uhuru wake kutoka kwa Wanaijeria
 Bulama Bukarti alilalamikia maumivu ambayo uharamia huu umeisababishia familia ya Dadiyata
-Its unfathomable how a Nigerian would disappear just like that
-We must continue to do everything we can to get Dadiyata reunited with his family
-There must be no place for this kind of impunity
-Those that abducted Dadiyata will pay the price
-If not now definitely later
-Bulama Bukarti bulamabukarti August 1 2020
 Inashangaza jinsi Mnaijeria anaweza kupotea namna hiyo
 Lazima tuendelee kufanya kila liwezekanalo kumuunganisha Dadiyata na familia yake
 Hakuna nafasi ya uharamia wa namna hii
 Hao waliomteka Dadiyata watakuja kuilipa gharama kama sio sasa basi lazima iwe baadaye
 Mtumiaji huyu wa Twitter alighafilika alipoyasikia mahojiano ya mke wa Dadiyata
-I was shattered to hear Dadiyatas wife speak to bbchausa this morning
-All she is demanding is for his holders to forgive him and let him come back to his family especially his little children
-OneYearWithOutDadiyata
-Anders Ameenu_Kutama August 1 2020
 Nilighafilika kwa kumsikia mke wa  Dadiyata akihojiana na bbchausa asubuhi hii
 Kitu pekee anachoomba ni watekaji wamsamehe na kumruhusu mumewe arudi kuungana na familia yake hasa watoto wake wadogo
-MwakaMmojaBilaDadiyata
 Akin Akíntáyọ haelewi jinsi  Dadiyata anaweza  kupotea bila kujulikana alipo kwa mwaka mzima
-One question how can Dadiyata and his car disappear without trace for a year in Nigeria and the government be just so nonchalant about it seeking exculpation rather than taking full responsibility for finding him especially when they were a target of his criticism httpst
-copIvl5q6vgt
-Akin Akíntáyọ European forakin September 1 2020
 Swali moja ninalojiuliza ni jinsi gani Dadiyata na gari lake walivyopotea bila kuacha alama kwa mwaka mzima tena ndani ya Naijeria na wala serikali haina wasiwasi juu ya jambo hilo zaidi inatafuta kujiosha badala ya kuchukua wajibu wa kumtafuta kwa kuwa alikuwa mlengwa kwao kwa sababu ya ukosoaji wake httpst
-copIvl5q6vgt
 Bahati mbaya ni kama vile hakuna mtu anayejali kumtafuta mkosoaji huyo
 Kinyume chake taasisi za serikali zote za jimbo na serikali kuu zinapambana kuepuka  lawama kutokufanya chochote alisema mwanaharakati wa Haki za Binadamu Professor Chidi Odinkalu katika mahojiano yake  na Vyral Africa
-Besides saying that they dont know where he is
-Nobody has really made the effort to tell us what they have done to find him and how it is that they cant account for him
-It tells you how so little we matter as citizens
-The least we can do is ask where Dadiyata is and why cant our government find him
 Zaidi ya kusema kuwa hawajui alipo hakuna mtu ameonesha  jitihada za kutuambia wamefanya nini hasa ili kumpata  na ni jinsi gani hawatakiwi kuhusishwa naye
 Hii inakuonesha ni jinsi gani hatuna maana kama raia wadogo
 Kidogo tunachoweza kufanya ni kuuliza yuko wapi Dadiyata na ni kwa nini serikali yetu haimtafuti
-makala 23
+
+makala 22
 Wanafunzi katika Jimbo la Kaduna Nigeria
 Picha na  Jeremy Weate Januari 15 2010 kupitia  Flickr  CC BY 2
 0
@@ -999,26 +846,16 @@ Kwa sababu ya mlipuko wa gonjwa la Korona wanafunzi wanaomaliza shule pekee ndio
 Serikali kuu na ile ya jimbo la Kaduna zimebaki kimya  kuhusu majaaliwa ya wanafunzi hao waliotekwa pamoja ma mwalimu wao
 Ni Siku Ya Kawaida Nchini Nigeria
 Mtumiaji wa Twitter Ndi Kato alisema tukio hili ni la kufadhaisha Taifa
-Today in Kaduna state children in exit classes who were told to resume school were kidnapped by armed gunmen
-One was reportedly killed
-Small boy his life cut short
-The others have been taken away and we may never hear of them again
-This should devastate any nation
-Ndi Kato YarKafanchan August 24 2020
 Leo katika jimbo la Kaduna watoto walio katika madarasa ya kumaliza ambao waliamriwa kuendelea na masomo wametekwa na watu wenye silaha
-Mtu mmoja ameripotiwa kuuawa maisha ya kijana mdogo yamefupishwa na wengine wameondoka nao na pengine hatutawaona tena
+Mtu mmoja ameripotiwa kuuawa 
+maisha ya kijana mdogo yamefupishwa 
+na wengine wameondoka nao na pengine hatutawaona tena
 Hili lazima lilifadhaishe Taifa lolote
 Lakini bado ni siku ya kawaida Naijeria alilalama mtumiaji wa Twitter  Chima Chigozie
-Some school children were kidnapped in kaduna one of the school boys was killed
-along the line
-The boys life was cut short the school children are being held in fear
-This should spike the nation but NO its a normal day in Nigeria
-Chima Chigozie CallMeGozie August 25 2020
 Baadhi ya wanafunzi wametekwa huko Kaduna mmoja wa wanafunzi wa kiume ameuawa wakati wa tukio hilo
-Maisha ya mvulana huyo yamefupishwa hili lilipaswa kulishtua Taifa lakini HAPANA hii ni siku ya kawaida nchini Naijeria
+Maisha ya mvulana huyo yamefupishwa 
+hili lilipaswa kulishtua Taifa lakini HAPANA hii ni siku ya kawaida nchini Naijeria
 Jaja anazilaumu siasa kwa kusababisha umma kukosa huruma na hasira dhidi ya utekaji huu wa wanafunzi
-The abducted Kaduna Boys will not get the same support and attention as the Chibok Girls because firstly they are boys and secondly GEJ isnt President
-Jamal JajaPhD August 26 2020
 Wavulana wa Kaduna waliotekwa hawatapata huruma waliyoipata wasichana wa Chibok kwa sababu kwanza ni wavulana na pili Goodluck Jonathan GEJ  sio Rais
 Goodluck Ebele Jonathan GEJ alikuwa Rais wakati wasichana 276 kutoka katika shule ya serikali walipotekwa na wanamgambo wa  Boko Haram kutoka Kaskazini Mashariki mwa mji wa Chiboko mnapo mwezi Aprili 2014
 Utekaji huu ulisababisha kuwepo kwa mchakato ulioenea dunia nzima kukiwepo na hashtagi ya WarudisheniMabintiZetu iliyoitikiwa na mamilioni ya watu mitandaoni
@@ -1030,8 +867,6 @@ Tofauti pekee ni kwamba kwa sasa wale ambao wanahusika na tukio hili la kutisha 
 Ukatili wa Maharamia wa Kaduna
 Vurugu za kiharamia zililipuka Kaskazini Mashariki mwa Naijeria katika majimbo ya Zamfara Kaduna Niger Sokoto Kebbi na Katsina
 ACAPS ni shirika huru linaloshughulika na masuala ya kibinadamu lilithibitisha kwamba vurugu hizi hazihusiani na uasi wa Boko Haram huko Kaskazini Mashariki
-The banditry violence began as a farmerherder conflict in 2011 and intensified between 2017 to 2018 to include cattle rustling kidnapping for ransom sexual violence and killings
-By March 2020 more than 210000 people have been internally displaced
 Vurugu hizi za kiharamia zilianza kama mgogoro baina ya wafugaji na wakulima mwaka 2011 na kukua zaidi kati ya mwaka 2017 na 2018 zikihusisha wizi wa mifugo utekaji kwa ajili ya kujipatia fedha ubakaji na mauaji
 Mpaka mwezi Machi 2020 zaidi ya watu 210000 wamekuwa wakimbizi wa ndani
 Jamii za vijijini zimebaki kuishi kwa hisani ya maharamia ambapo kati ya Januari na Juni mwaka huu wameshauawa watu wapatao 1126 kutoka Kaskazini mwa Naijeria
@@ -1041,7 +876,8 @@ Watu wa Kusini mwa Kaduna wanadai kuwa maharamia hao ni wafugaji wa kabila la Fu
 Lakini gavana wa jimbo la Kaduna  Nasir ElRufai alikataa uharamia huo kuhusishwa na mpango wa kupora ardhi au kuchochewa na itikadi za kidini
 Agosti 22 serikali ya jimbo la Kaduna iliamuru watu kutokutoka ndani kuanzia saa 12 jioni  mpaka saa 12 asubuhi ambapo katika baadhi ya maeneo inasadikika kuwa ni sehemu ya mkakati wa  serikali kukomesha uharamia
 Hata hivyo msemaji wa Umoja wa watu wa Kaduna Kusini Luka Binniyat alilalamika kwamba njaa pia inatuua kwa sababu watu hawaendi mashambani mwao watu wetu wamekosa tumaini kabisa
-makala 24
+
+makala 23
 Mshairi Henry Swapon na Mwanasheria Imtiaz Mahmood
 Muunganiko huu ni wa picha zao zilizosambaa sana katika mitandao ya kijamii
 Watu wawili walikamatwa hapo Mei 14 na 15 kwa kuweka maoni yao katika kurasa zao za Facebook
@@ -1051,19 +887,12 @@ Mei 14 Mshairi na Mwanahabari Henry Swapon alikamatwa akiwa nyumbani kwake kati
 Amekuwa akituhumiwa kwa kukiuka sheria ya Usalama wa Mitandaoni ya Bangladesh
 Akiwa ni mshirika katika jumuiya ndogo ya Kikristo hapo mwanzo Swapon alishawahi kushtakiwa yeye na kaka zake Alfred na Jewel Satkat kwa kuumiza hisia za  kiimani za Waislam na Wakristo katika mitandao ya jamii
 Bangladeshi poet and editor Henry Swapan was arrested under digital security act law freethepoet bangladesh bangladeshiblogger FreedomOfSpeech pic
-twitter
-comMGoCec2nsR
-Shammi Haque shammi121 May 15 2019
-Mshairi na Mhariri wa Bangladeshi Henry Swapan alikamatwa chini ya sheria ya usalama wa mitandao MshairiAwekweHuru bangladesh bangladeshiblogger UhuruwaMaoni pic
-twitter
-comMGoCec2nsR
 Kulingana na Dhaka Tribune Swapon aliweka bandiko katika ukurasa wake wa Facebook akimkosoa Lawrence Subrata Howlader ambaye ni Askofu Kanisa Katoliki katika Dayosisi ya Barishal
 Askofu alichagua kufanya tukio la kiutamaduni katika moja ya makanisa ya Kikatoliki tarehe 22 Aprili 2019 ikiwa ni siku moja tu baada  shambulio la Kigaidi huko Sri Lanka
 Swapon alidhani kuwa Askofu angeahirisha tamasha hilo kwa kuheshimu maisha ya mamia ya watu yaliyopotea katika shambulio hilo
 Wakristo wengine walikasirikia lugha aliyoitumia kwa Askofu na wengine walimtumia hata vitisho vya kumuua
 Swapon amekuwa mzungumzaji sana mitandaoni akikemea kila aina ya uonevu na rushwa katika mji wao
 Mwanamtandao Swakrito Noman waliandika huko Facebook
-বলদশ ধরমনভতত আঘতর বযবসট একচটয় মসলমন মলবদদর ছল এখন দখছ খরষটন মলবদরও এই বযবস শর কর দয়ছ আমর ত মন হয় এই অনভত বযবসয়র এককজন মনসক রগ রষটরর উচত তর অসসথ নগরকদর সচকৎসর বযবসথ কর কব হনর সবপনক গরপতরর তবর ননদ জনই তর নশরত মকত চই
 Ndani ya Bangladesh mkakati wa kushambulia wanaharakati kwa kuwatuhumu kuumiza hisia za kiimani umekuwa ni wa kawaida kwa viongozi wa Kiislamu
 Sasa tunaona hata wale wa  Wakristo wasiobadilika nao wameanza kutumia mbinu hii
 Nafikiria ambao wanachukia namna hii ya ukosoaji ni wagonjwa wa akili
@@ -1075,23 +904,9 @@ Imtiaz Mahmood alipata alipata dhamana kwa muda kesi ilipoletwa kwa mara ya kwa
 Mahmood  alichangia maoni yake wakati wa  machafuko ya kikabila yaliyotokea baada ya mwendesha pikipiki wa  Bengali kuuwawa huko Khagrachhari yakisababisha kikundi cha waBengali kutia moto nyumba kadhaa na maduka ya wakazi wa eneo la Rangamati ndani ya Chittagong
 Vyanzo vya huko viliiambia Dhaka Tribune kuwa polisi hawakuchukua hatua zozote kuzuia jambo hilo
 Mamia ya mashtaka ya aina hiyo yalifunguliwa  kuanzia mwaka  2013 mpaka 2018 wakati sheria ya Habari na Mawasiliano ilipobadilisha na sheria ya Usalama wa Mitandao
-Bangladesh crackdown on social media
-Police have made a second arrest in less than a day under Digital Security Act
-Writer Imtiaz Mahmood was arrested in a case over ICT act on Wednesday morning
-Freedomofexpression ICTLawhttpst
-coeH8H38unCr
-Tuhin Das tuhinaronna May 15 2019
 Bangladesh yakandamiza mitandao ya jamii
 Polisi wamefanya Ukamataji wa pili ndani ya siku mbili chini ya Sheria ya Usalama wa Mitandao
 Mwandishi Imtiaz Mahmood alikamatwa kwa kesi iliyo chini ya sheria ya Habari na Mawasiliano siku ya Jumatano asubuhi
-UhuruwaKujieleza ICTLawhttpst
-coeH8H38unCr
-Mwandishi Meher Afroz Shao aliandika  huko Facebook
-তন পহড় ভলবসন পহড়র মনষগলক ভলবসন ফসবক তদর নয় লখন তর ফসবক লখয় কখনও জলও পড়ও ত দখন
-কথও কন একট ভল হচছ
-বশ বড় একট ভল ভলগলর অবসন হক
-ব
-দর আচছ ফসবক অশলন গলগল কর যর পসট কর তদর নম মমল হলই ক এযরসট ওয়রনট বর হয়
 Anaipenda milima na watu ambao wanaishi pale
 Huandika kuhusu haki zao
 Sijawahi kuona maneno ya uchochezi katika uandishi wake
@@ -1101,17 +916,9 @@ PS Nimeshaona machapisho mengi sana huko Facebook ambayo yana lugha chafu na uba
 Ikiwa watu hao wakishtakiwa leo je hati ya kuwakamata itatolewa papo hapo
 Wananchi wa Mitandaoni wengi wamekemea ukamatwaji huo wa wawili hao wakitaka sheria ifutiliwe mbali
 Mhamiaji wa Bangladeshi Leesa Gazi alitwit
-Absolutely shameful
-The Bangladesh government cannot ensure public safety but prompt to arrest people under the repressive Digital Security Act which is by the way against the very spirit of the constitution of Bangladesh
-httpst
-co1sFKY10OPV
-Leesa Gazi LeesaGazi May 15 2019
 Ni aibu kabisa
 Serikali ya Bangladesh haina uwezo wa kuhakikisha usalama wa umma lakini inajaribu kuwakamata watu chini ya sheria kandamizi ya Usalama wa Mitandani ambayo ni kinyume na Roho ya Katiba ya Bangladesh
-httpst
-co1sFKY10OPV
 Mwandishi wa Habari  Probhash Amin aliandika huko Facebook
-কব হনর সবপনর পর অযডভকট ইমতয়জ মহমদ এক এক রদধ হচছ মকতমত সকল কলকনন বতল চই মতপরকশর সবধনত চই কব হনর সবপন ও আইনজব ইমতয়জ মহমদর মকত চই
 Baada ya Mshairi Henry Swapon mwanasheria Imtiaz Mahmood walikamatwa
 Uhuru wa kujieleza umezuiwa
 Ninataka sheria zote za kikatili zifutwe
@@ -1124,35 +931,20 @@ Pia inaruhusu vifungo vya muda mrefu kwa makosa ya  kutumia mitandao kusababish
 Baraza la Wahariri la Bangladeshi lilisema kuwa sheria hii ni kinyume na uhuru uliotolewa kikatiba uhuru wa vyombo vya habari na uhuru wa kujieleza
 Soma zaidi wanaharakati wa Uhuru wa Kujieleza Bangladesh wanasema sheria moja ya Usalama wa Digitali ni kwa kusudi la kunyanyasa
 Sheria inatoa  mamlaka kubwa sana  kwa  taasisi za kusimamia sheria kuanzisha upelelezi kwa yeyote ambaye shughuli zake zinahisiwa kuwa zina madhara na ni tishio kwa usalama
-makala 25
-Khartoum Sudan
-Picha na Christopher Michel kutoka Flickr chini ya  CC BY 2
-0
+
+makala 24
 Baada ya mapinduzi ya Sudani mamlaka za mpito za Sudani zimesaini makubaliano ya amani na The Sudan Revolutionary Front  kikundi kikuu cha waasi ambacho kimeendelea na utendaji wake hata baada ya kuondolewa kwa kiongozi wake wa zamani Omar alBashir mwaka jana
 Makubaliano haya ya amani ya Kihistoria yalisainiwa hapo Agosti 31 katika mji wa Juba Sudani Kusini ambapo yanaungwa mkono na jumuiya za Kikanda na zile za Kimataifa kama vile nchi za Kitroika Umoja wa Ulaya Misri na baadhi ya nchi za Ghuba
 Pia jambo hili la kusisimua limegubikwa na kipindi cha mafuriko ya Kihistoria ambayo yameathiri baadhi ya maeneo ya Sudani yakisababisha kuendelea kuporomoka kwa uchumi ambao tayari ulikuwa umeshadorora
 Hata hivyo bado raia wa Sudani mitandaoni walisherehekea habari hizo mitandaoni
 Bloga wa Kisudani Waleed Ahmed aliandika 
-اليوم نرد الجميل  
-نرد الوطن
-الفيديو لحظة إعلان حركة جيشتحرير السودان بقيادة مناوي وقف إطلاق النار دعما لحراك ثورة ديسمبر 1622019 سلام_السودان pic
-twitter
-comYItG1V0B6l
-Waleed Ahmed alkangr August 31 2020
 Leo tunajitolea tunarudi nyumbani
 Video ambayo inaonesha jeshi Sudan Liberation Movement SLMAA likiongozwa na Minawi likitangaza kuweka silaha chini hapo Disemba 16 2019 ili kuunga mkono harakati za mapinduzi
 Mini Arko Minawi kiongozi wa SLMA aliandika 
-التوقيع الذي تم في الامس سوف يضع السودان في زخم جديد  علي الاطراف والشعب السوداني والاحزاب والمجتمع المدني بتعاون مع الاصدقاء والجوار الاقليمي علينا صنع منصة متينة لتاريخ جديد لبلادنا 
 Mini Arko Minawi
-مني اركو مناوي ArkoMinawi September 1 2020
 Utiaji saini wa jana utaiweka Sudani katika mwendo mpya katika vyama na kwa watu wa Sudani mashirika na vyama vya kijamii katika ushirikiano na marafiki na kanda jirani
 Lazima tutengeneze jukwaa madhubuti kwa ajili ya historia mpya ya nchi yetu
 Waziri Mkuu wa Sudan Abdalla Hamdok aliyakaribisha makubaliano ya amani kwa kusema
-أهدي السلام الذي وقعناه اليوم بدولة جنوب السودان الشقيق إلى أطفالنا الذين ولدوا في معسكرات النزوح واللجوء لأمهات وآباء يشتاقون لقراهم ومدنهم ينتظرون من ثورة ديسمبر المجيدة وعد العودة وعد العدالة وعد التنمية ووعد الأمان
-سلام_السودان pic
-twitter
-comsQRpunAlMo
-Abdalla Hamdok SudanPMHamdok August 31 2020
 Ninaituma amani ambayo tumeitilia saini leo katika Taifa letu la Sudani kwa watoto wetu ambao wamezaliwa ukimbizini na katika makambi kwa baba na mama ambao wanatamani vijiji na miji yao wakiyasubiri kwa hamu mapinduzi tukufu ya Disemba ahadi ya kurejea ahadi ya haki na ahadi ya maendeleo na usalama
 Makubaliano haya yanavihakikishia uhuru wa kujitawala wenyewe vikundi vya waasi katika maeneo wanayoyashikilia chini ya uangalizi wa serikali kuu
 Makubaliano yatahakikisha kuwa theluthi moja ya viti vya ubunge ni vya watu kutoka katika maeneo ya waasi ili kuwasilisha mahitaji na masuala yao
@@ -1160,43 +952,22 @@ Makubaliano pia yanahakikisha haki na usawa kwa wote ambao walishtakiwa na uongo
 Haya sio Makubaliano ya kwanza ya amani katika historia ya Sudani
 Baadhi ya wananchi mitandaoni walisema kuwa makubaliano ya amani ni mzunguko wa kawaida nchini Sudani na yanaweza yasilete amani wala utulivu
 Inbal Ben Yehuda aliandika
-An event that occurs once in every 59 years is not a historic moment
-Its routine
-Abuja peace agreement  2006Doha peace agreement  2011Juba peace agreement  2020Better to wait before we celebrate
-Sudan Darfurسلام_السودان
-Inbal Ben Yehuda Inbaluna August 31 2020
 Tukio linalotokea mara moja kila baada ya miaka 59 sio jambo la Kihistoria ni mzunguko tu
 Makubaliano ya Amani ya Abuja  2006
 Makubaliano ya Amani ya Doha  2011
 Makubaliano ya Amani ya Juba   2020
 Bora tusubiri kabla ya  kusherehekea Sudan Darfurسلام_السودان
 Makubaliano Hayajakamilika
-Pamoja na uwepo wa tukio hili la kusisimua makundi mawili ya waasi hayajatia saini makubaliano haya
-Kikundi cha SLMA kiliongozwa na Abdul Wahid alNur na Chama cha harakati za Uhuru wa Wasudani kaskazini  SPLMN kinachoongozwa na Abdelaziz alHilu wote walijitoa kwa sababu ya kutokujibiwa kwa baadhi ya maswali kuhusu mfumo wa uendeshaji wa jeshi la muungano na utambulisho wa nchi
+Pamoja na uwepo wa tukio hili la kusisimua makundi mawili ya waasi hayajatia saini makubaliano haya Kikundi cha SLMA kiliongozwa na Abdul Wahid alNur na Chama cha harakati za Uhuru wa Wasudani kaskazini  SPLMN kinachoongozwa na Abdelaziz alHilu wote walijitoa kwa sababu ya kutokujibiwa kwa baadhi ya maswali kuhusu mfumo wa uendeshaji wa jeshi la muungano na utambulisho wa nchi
 Siku tatu baada ya kusainiwa kwa makubaliano ya amani Waziri Mkuu wa Sudani alisafiri kwenda Addis Ababa Ethiopia kuonana na alHilu kujadili kuhusu ya mgongano huo kulingana na Usuluhishi wa Sudani
-Prime Minister Abdallah Hamdok on Wednesday held a secret meeting with Abdel Aziz alHilu in an effort to break the deadlock in the peace talks mediated by the South Sudanese government
-httpst
-coIrNxxW9a0M pic
-twitter
-comVgtyDZxfv3
-Sudan Tribune SudanTribune_EN September 3 2020
 Hapo Jumatano Waziri Mkuu Abdallah Hamdok alifanya mkutano wa siri na Abdel Aziz alHilu zikiwa ni jitihada za kuondoa vikwazo katika mazungumzo ya amani yaliyofanywa na serikali ya Sudani Kusini
-
-httpst
-coIrNxxW9a0M pic
-twitter
-comVgtyDZxfv3
 Mkutano huu ulisababisha kusainiwa kwa mkataba utakaosimamia kuheshimiwa kwa makubaliano ya amani yaliyofanyika huko Juba
 Mitandao ya kijamii ya Sudan ilizizima kwa kusambazwa kwa nakala ya makubaliano hayo yaliyoandikwa kwa lugjs ya Kiingereza mkazo ukiwa katika kipengele cha 3 kinachozungumzia masuala ya dini na utaifa 
-A democratic state must be established in Sudan
-For Sudan to become a democratic country where the rights of all citizens are enshrined the constitution should be based on the principle of separation of religion and state in the absence of which the right to selfdetermination must be respected
-Freedom of belief and worship and religious practice shall be guaranteed in full to all Sudanese citizens
-The state shall not establish an official religion
-No citizen shall be discriminated against based on their religion
 Taifa la kidemokrasia lazima lisimikwe Sudani
 Kwa Sudani kuwa Taifa la kidemokrasia ambapo haki za watu wote zinaheshimiwa katiba lazima iwe na misingi ya kutenga udini na utaifa  ambapo haki za mtu binafsi lazima ziheshimiwe
 Uhuru wa kuamini na kuabudu na shughuli za kidini utolewe kwa  wananchi wote wa Sudani
-Serikali isiweke dini ya Taifa asiwepo mwananchi atakayebaguliwa kwa sababu ya dini yake
+Serikali isiweke dini ya Taifa 
+asiwepo mwananchi atakayebaguliwa kwa sababu ya dini yake
 Wananchi wa Sudani wamegawanyika katika makundi mawili katika suala hili kundi la kwanza linaona kuwa kutenga uraia na dini ni jambo la msingi katika misingi haki za Binadamu kundi la pili linaona kuwa serikali ya mpito haina mamlaka ya kufanya maamuzi juu ya jambo hilo bila ruhusa ya wananchi kupitia uchaguzi wa kidemokrasia
 Baada ya mkutano huo ukurasa wa Twitter wa Waziri Mkuu ulichapisha nakala ya mkataba huo kwa lugha ya Kiarabu  ambapo maudhui yake yalitofautiana na yale yaliyopo katika nakala iliyoandikwa kwa lugha ya Kiingereza
 Wakati katika nakala ya Kiingereza msisitizo umewekwa kwa kuonesha kuwa haiwezekani kutenganisha dini na utaifa katika nakala ya lugha ya Kiarabu inapendekeza majadiliano katika suala hili lenye utata
@@ -1205,41 +976,21 @@ Amani Ya Kihistoria Mafuriko Ya Kihistoria
 Wakati amani ikileta furaha nchini Sudani mto Nile unaendelea kufurika ukileta majanga yasiyotarajiwa kwa binadamu
 Kulingana na taarifa ya Septemba 8  ya baraza la Ulinzi wa Taifa kutokana na mafuriko hayo vimetokea vifo vya watu 103 majeruhi 50 vifo vya mifugo 5482 nyumba 27341zimebomoka kabisa na nyumba 42210 zimebomoka nusu  majengo ya serikali na taasisi binafsi 179 yameharibiwa maduka na maghala 359 yameharibiwa na hekari 4208 za mazao zimeharibiwa na mafuriko hayo
 YouStorm katika ukurasa wake wa Twitter walionesha video wakilinganisha ujazo wa maji katika mto Nile Julai 16 na Agosti 16
-Floods on the Nile in Sudan  16 July comparison with 30 August Sentinel2  north of Khartoum
-Made with EOBrowser sentinel_hub Sudanfloods pic
-twitter
-coml8LRNBFY9m
-YouStorm YouStormorg August 30 2020
 Mafuriko katika mto Nile nchini Sudani  Julai 16 ukilinganisha na Agosti 30 Sentinel2  Kaskazini mwa Khartoum
-Imetengenezwa kwa  EOBrowser sentinel_hub Sudanfloods pic
-twitter
-coml8LRNBFY9m
 Hapo Septemba 3 gavana wa jimbo la Sinnar  Ustadhi Elmahi Sulieman alitangaza hali ya hatari katika ukurasa wake wa Facebook
-The levels of the Blue Nile this night witnessed a great rise accompanied by heavy rain which led to the breaking of the covers and shields a simple dam built by sacks of the soil of the city of Singa and Umm Benin areas and the water began to flood the city and its homes as well as the neighbourhoods of Umm Benin
-Therefore we launch a directive to all official bodies and an appeal to all civil authorities and organizations to come to the rescue of the citizens as soon as possible and to provide shelter medicines and food
 Kimo cha maji ya Mto Nile usiku huu kimeongezeka kutokana ma mvua kubwa ambazo zimesababisha kuvunjika kwa vizuizi na kuta za ulinzi ambavyo ni bwawa dogo lililojengwa na magunia yaliyojazwa udongo za mji wa Singa na maeneo ya Umm Benin na maji yameanza kufurika katika mji na katika makazi ya watu
 Hivyo basi tunatoa maelekezo kwa mamlaka zote za serikali na mashirika binafsi kujitokeza na kuja kusaidia kuwaokoa wananchi mapema iwezekanavyo na pia kuwapatia hifadhi chakula na matibabu
 Hali ni ya kutisha
-ولاية سنار  مدينة سنجة
-الوضع كارثي بعد أن كسرت الأمطار ترس البحر مما أدى لدخول مياة النيل الأزرق للمدينة pic
-twitter
-com1fk94r6hnC
-Wli wmuhaker September 3 2020
 Katika Jimbo la Sinnar  mji wa Singa  hali ni ya kutisha baada ya mvua kuvunja ukuta wake wa kizuizi hivyo kuruhusu maji kutoka Mto Nile kuingia mjini
 Vijana wa Kisudani kutoka kisiwa cha Tuti walijenga ukuta wa kuzuia maji ya mafuriko kuingia ndani ya kisiwa chao
 Kilikuwa kitendo cha kishujaa alisimulia Hassan Shaggag
-هؤلاء من سيبنون السودان 
-وليس اللذين يتصارعون على السلطة الآن السودان_الوضع_المعيشي تحديات_الفتره_الانتقاليه pic
-twitter
-comOBApXgY6Us
-Hassan Shaggag HassanShaggag August 29 2020
-Hawa ndio watakaoijenga Sudani
-na ndio wanaogombea madaraka sasa
+Hawa ndio watakaoijenga Sudani na ndio wanaogombea madaraka sasa
 Wananchi wa Sudani wana upungufu wa mahitaji muhimu kama vile mkate gesi madawa na umeme baada ya kukatika kwa umeme kwa masaa sita kwa siku
 Kudorora kwa fedha ya Sudani sasa imezidi asilimia 202 kulingana na  Professor Steve Hanke
 Hata hivyo mpaka sasa serikali ya mpito haijaweza bado kulitawala soko
 Sasa tena kuna ahadi ya amani ni nini hasa mkakati wa serikali kuyarahisisha maisha ya wananchi
-makala 26
+
+makala 25
 Kiongozi wa wanafunzi Jutatip Sirikhan akiwa amefunikwa kwa rangi nyeupe ikiwa ishara ya mgomo baada ya kuachiliwa kwake
 Picha na maelezo kutoka kwa Prachatai
 Makala hii ni kutoka kwa Prachatai chanzo huru cha habari huko Thailand ikiwa imehaririwa na kuchapishwa na Global Voices kama sehemu ya makubaliano ya kushirikishana mahudhui
@@ -1249,32 +1000,16 @@ Aliingia mubashara katika ukurasa wake wa Facebook mnamo saa 0750 mchana hapo Se
 Jutatip alipelekwa kwenye kituo cha polisi cha  lSamranrat
 Afisa wa polisi aliambatana naye kuelekea kituoni akiwa kwenye taksi nyingine kwa sababu hakujisikia kuwa salama kupanda gari binafsi walilokuja nalo askari waliokuja kumkamata
 Aliendelea kuwa mubashara katika ukurasa wake wa Facebook akisoma kifungu cha habari  Ufahamu wa Kawaida kilichotafsiriwa kwa Kithailand na Thomas Paine
-Alipelekwa katika mahakama ya kihalifu ya Bangkok na alipewa dhamana na kuachiliwa saa 11
-20 jioni akiwa chini ya uangalizi wa Mhadhiri kutoka chuo kikuu cha Thammasat
+Alipelekwa katika mahakama ya kihalifu ya Bangkok na alipewa dhamana na kuachiliwa saa 11 20 jioni akiwa chini ya uangalizi wa Mhadhiri kutoka chuo kikuu cha Thammasat
 Mahakama haikumtaka alipe papo hapo kiasi cha baht 100000  sawa na dola za Marekani 3190 kwa ajili ya dhamana lakini aliwekewa masharti kwamba hatakiwi kurudia tena makosa aliyoshtakiwa kwayo  masharti hayo hayo yalitolewa kwa kila mmoja aliyekamatwa na kuachiliwa kwa mashtaka hayo
 Jutatip ni mwanaharakati wa 14 kukamatwa kwa kushiriki maandamano makubwa ya Julai 18
 Washiriki wengine 15 wa maandamano hayo wamepokea wito na wameripoti katika kituo cha polisi cha  Samranrat kusikiliza mashtaka yao hapo Agosti 28
 Jutatip alishtakiwa kwa uchochezi kukaidi Amri ya Dharura na Sheria ya Magonjwa ya Kuambukiza pamoja na mashtaka mengine
 Jutatip alitoka mbele ya mahakama ya kihalifu baada ya kuachiliwa huru na alifanya mkutano mfupi na vyombo vya habari
 Rangi inaweza kusafishwa lakini hatuwezi kusafisha uonevu
-I didnt intend to run away to begin with
-I know I have an arrest warrant
-I have been waiting to be arrested for a very long time but it didnt happen until today
-Each time someone gets arrested there will be slurs against our side that we did not protest peacefully
-I am a student and I have been harassed by the police for months for years
-Why is there no compensation for me Why must there be compensation for the police who are servants of the dictatorship
-There should actually be a summons first but what happened was that the police brought the arrest warrant and arrested me
-Its extremely unfair to a student
-They followed me with my phone signal followed me from where Im staying
-They threatened my home they threatened my family they took a warrant to my house so now we have to escalate our protest
-Everything is supported by the Constitution
-We pay our taxes
-We must receive protection from the state not harassment from the state
-So today I have to express myself symbolically that we can do this
-We must stand by our rights and freedoms
-Throwing paint is also something that can be done
 Sikupanga kukimbia tangu awali
-Nilifahamu kuwa nina hati ya kukamatwa na nimekuwa nikisubiri kukamatwa kwa muda mrefu lakini haikutokea mpaka leo
+Nilifahamu kuwa nina hati ya kukamatwa na 
+nimekuwa nikisubiri kukamatwa kwa muda mrefu lakini haikutokea mpaka leo
 Kila mara anapokamatwa mtu mmoja lazima yatokee maneno mabaya kwamba hatukuandamana kwa amani
 Mimi ni mwanafunzi na nimekuwa nikisumbuliwa na askari kwa miezi kwa miaka kadhaa
 Kwa nini hakuna fidia kwangu Kwa nini iwepo fidia kwa polisi tu ambao ni watumishi wa udikteta
@@ -1283,23 +1018,21 @@ Ni uonevu wa hali ya juu kwa mwanafunzi
 Walinipata kwa kufuatilia mawasiliano yangu ya simu kuanzia ninapoishi
 Wametishia watu nyumbani kwangu familia yangu na waliipeleka hati ya kunikamata nyumbani  kwa hiyo sasa inabidi tuyaimarishe maandamano yetu
 Kila kitu kipo kulingana na katiba
-Tunalipa kodi zetu lazima tulindwe na serikali sio kudhalilishwa na serikali
+Tunalipa kodi zetu 
+lazima tulindwe na serikali sio kudhalilishwa na serikali
 Kwa hiyo leo nimejieleza kwa kuashiria kwamba tunaweza tukalifanya hili
 Lazima tusimame kwa ajili ya haki zetu na uhuru wetu
 Kujimwagia rangi pia ni kitu kinachoweza kufanyika
 Kisha Jutatip alijimwagia ndoo ya rangi nyeupe mwilini mwake huku akiwa ameinua mkono wake juu huku akiwa amenyoosha vidole vitatu saluti  ya Mchezo wa Njaa
 Alisema kuwa rangi nyeupe inawakilisha usafi na haki na wanadai urejesho wa haki
-We are showing that this is freedom this is the kind of expression we can do
-Even if now it is throwing paint over ourselves it is a way of showing that we can throw paint at any time
-We can throw paint over those with power because those with power throw legal charges over us throw bullets at us without exception
-Paint can be washed out but we cant wash out injustice
 Tunaonesha kuwa hii ni haki hii ni aina ya kielelezo cha kwamba tunaweza kufanya
 Hata kama ni kujimwagia rangi kwa sasa ni njia ya kuonesha kuwa tunaweza kujimwagia rangi saa yoyote
 Tunaweza kuwamwagia rangi hao walio na mamlaka kwa sababu wanatutia hatiani na kuturushia risasi saa yoyote bila kujali kwa kuwa wana mamlaka
 Rangi inaweza kusafishwa lakini uonevu hauwezi kusafishwa
 Baada ya hapo Jutatip alimshukuru Mhadhiri ambaye alimuwekea dhamana na watu waliokuja kumuunga mkono na kusaidia umati kusafisha rangi iliyokuwa imetapakaa katika njia ya waenda kwa miguu mbele ya mahakama
 Hatutaacha kupambana mpaka tushinde kila kitu ikiwemo marekebisho ya ufalme na  katiba mpya alisema Jutatip
-makala 27
+
+makala 26
 Picha ya skrini kutoka katika video huko YouTube  na VideoVolunteers
 Chapisho hili liliandikwa na Grace Jolliffe na mwanzoni and originally alilirushwa na Video Volunteers kikundi cha kumtandao cha kimataifa kilichoshinda tuzo na makao yake makuu ni  India
 Toleo lililohaririwa kidogo imechapishwa hapo chini kama sehemu ya makubaliano ya kushirikishana maudhuhi
@@ -1309,10 +1042,6 @@ Huko Goa jimbo la Kusini mwa India wakazi wa kijiji kidogo kilichopo kitongoji�
 Malalamiko yao makubwa ni kwamba mahitaji na huduma muhimu kama vile barabara nzuri na huduma ya maji safi na salama hazijawahi kutolewa na serikali
 Video ya Mtangazaji wa masuala ya kijamii  Devidas Gaonkar mzaliwa wa kabila la wafugaji la waGoa inayoitwa Velip ikionesha maandano ya wanakijiji hao
 Katika video hii Pandurang Gaonkar mkazi wa kijiji cha Marli alisema kwamba
-Tirwal to Marlem is a threequilometres road stretch which is incomplete
-To date no action has been taken by the authorities
-They only make false promises but no implementation
-For this reason we havent cast our votes
 Kuanzia Tirwal mpaka Marlem ni kilomita tatu tu za barabara lakini hazijakamilika
 Mpaka leo hakuna hatua zozote zilizochukuliwa na mamlaka husika
 Wanatupa ahadi za uongo tu hakuna utekelezaji
@@ -1336,7 +1065,8 @@ Tofauti ya kijiji cha Goa vijiji vilivyo katika jimbo la Kati Madhya Pradesh Ma
 Hata hivyo hakuna mgomo wowowte kati ya hii ambao umechukuliwa hatua na serikali
 Wapiga kura wengi wameanza kuzoea kutumia mbinu hii kama ishara ya kuonesha hasira zao kwa wanasiasa na maofisa wa serikali ambao huzigeukia jamii walizozitelekeza katika kipindi cha uchaguzi wakiwa ma matumaini ya kupata kura zao huku wakishindwa kutekeleza ahadi zao baada ya uchaguzi
 Lakini mwishowe kama Kugomea chaguzi haitaleta mabadiliko katika jamii je ni kitu gani wanajamii wataamua kufanya ili kuvuta masikio ya wenye mamlaka ambao wanapaswa kusikia sauti zao na kuchukua hatua za utekelezaji
-makala 28
+
+makala 27
 Mwandishi wa Habari  Amade Abubacar
 Picha na  caiccajudaYoutube
 Waandishi wa Habari Amade Abubacar na  Germano Adriano ambao waliokamatwa mapema mwaka huu wakati wakikusanya habari za mgogoro wa kijeshi  katika ukanda wa Kaskazini mwa Msumbiji wameachiliwa huru bila kushtakiwa mnamo tarehe 23 April  2019
@@ -1364,33 +1094,16 @@ Mwandishi wa Habari za Uchunguzi wa kujitegemea Estácio Valoi aliwekwa kizui
 Baadaye aliachiliwa huru bila mashtaka lakini vifaa vyake vya kufanyia kazi vilibaki mikononi mwa jeshi
 Wito wa Haki
 Cídia Chissungo ambaye ni mwanaharakati na mhamasishaji wa kampeni ya AmedeAwekweHuru alisherehekea taarifa hizo kwa kusema
-AmadeAbubacar and GeramanoAdriano are finally FREE
-after almost 4 months detained
-Ofcourse we have to celebrate but we wont forget how everything started
-We said a long time ago
-Journalism is not a crime
-Thanks for your handsFreeAmade CaboDelgado HandsForJustice pic
-twitter
-comLhb0b1ALCi
-Cídia Chissungo Cidiachissungo April 23 2019
 AmadeAbubacar na GeramanoAdriano hatimaye wako HURU baada ya kuwa kizuizini kwa miezi 4
 Kwa kweli tunasherehekea lakini hatutasahau jinsi kila kitu kilivyoanza
-Tulishasema tangu kitambo kuwa Uandishi wa Habari sio uhalifu
-Asanteni kwa kutuunga mkono katika
-FreeAmade CaboDelgado HandsForJustice pic
-twitter
-comLhb0b1ALCi
+Tulishasema tangu kitambo 
+kuwa Uandishi wa Habari sio uhalifu
 Angela Quintal msimamizi wa  Mradi wa Kamati ya Kuwalinda Wanahabari CPJ ukanda wa Afrika alisema
-Now to ensure charges are actually dropped and that AmadeAbubacar can continue with his journalism without fear of reprisal
-The fact that he had to endure detention without trial for 106 days before getting bail is unconscionable
-He should not be facing trial at all httpst
-cokA2bV4D4KB
-Angela Quintal angelaquintal April 23 2019
 Sasa ni kuhakikisha kuwa mashtaka yanatupiliwa mbali na AmadeAbubacar anaweza kuendelea na kazi yake ya uandishi bila hofu ya kukamatwa
 Ukweli ni kwamba amevumilia kuwa kizuizini bila kushtakiwa kwa siku 106 kabla ya dhamana  sio uungwana aliotendewa
 Hastahili kushtakiwa kabisa  httpst
-cokA2bV4D4KB
-makala 29
+
+makala 28
 Picha ya kiongozi wa Mapinduzi ya Irani Imamu Khomeini ikiwa katika ukuta wa jengo huko Sanandaj katika Mjii mkuu wa Irani kitongoji cha Kurdistan inavyoonekana kupitia dirishani
 Picha na  Jordi Boixareu
 Hakimiliki Demotix
@@ -1398,7 +1111,6 @@ Muanzishaji mwenza wa Global Voices  Ethan Zuckerman amewaelezea kuwa mfano wa 
 Wazo hiki lilitengenezwa kupitia mfumo ulioota mizizi ndani ya Global voices na unaelezea kazi kubwa na utamaduni wa jamii
 Kwa kuwa kazi yetu imelenga kuunga utengano uliopo kati ya mitazamo ya nje juu ya Irani na ile halisi ndani ya nchi yenyewe  Global Voices Iran imeanza mfululizo wa mahojiani na mwanadishi wa Kiirani na waandishi ambao watafanya hivyo
 Mahojiano haya yatafanyika ili kuelewa kwa jinsi gani na kwa namna gani watu hawa waliofanya kazi zao kupitia kuielezea jamii iliyo nje ya Irani kuhusu Irani pamoja na ugumu na utata uliopo katika kuelezea
-
 Golnaz Esfandiari Nafikiri matumizi ya mitandao ya kijamii nchini Irani na manufaa yake yanaongezeka
 Golnaz Esfandiari ni mtangazaji mwandamizi katika  Redio Free EuropeRadio Liberty na mmoja wa waandishi wa habari wachache ambao wamejikita nje ya Irani wakiandika kwa lugha ya Kiingereza kuhusu usumbufu na changamoto za jamii na siasa za Wairani
 Picha imetumika kwa ruhusa ya Golnaz Esfandiari
@@ -1415,7 +1127,6 @@ Mwekezaji katika tasnia ya habari nchini Irani Kelly Golnoush Niknejad ni mwanzi
 Mradi wake ni mmoja kati ya chanzo kinachoongoza kinachotoa mtazamo tofauti kuhusu nchi hiyi katika masuala ya kisiasa utamaduni na watu
 Picha na Kelly Golnoush Niknejad na imetumika kwa ruhusa
 Soma zaidi Jinsi  Taasisi ya Tehran  ya Kelly Golnoush Niknejad inavyounganisha Irani na ulimwengu wa Magharibi
-
 Katika mtazamo mbaya walio nao watu wasio waIrani dhidi ya Irani alifafanua
 Linapokuja suala la Irani huwa ninajikuta mara zote nikirudi nyuma mpaka mwaka 1979 kisha naelezea mabadiliko yaliyofanyika muongo baada ya muongo ili kuleta maana ya wakati huu wa sasa
 Mara nyingine inakuwa vigumu sana hata kwa waIrani wenyewe kuelewa kinachoendelea Irani kwa sasa sembuse wasio waIrani
@@ -1437,8 +1148,7 @@ Saeed Kamali Dehghan Wanaiona Irani kama picha ya rangi nyeusi na nyeupe lakini
 Ipo kama Upinde wa Mvua uliosambaa
 Akiwa na makala zaidi ya 800 zinazohusiana na Irani Saeed Kamali Dehghan ndiye mwandishi mkuu wa kwanza kwanza wa The Guardian aliyejitolea kuandika kuhusu Irani na ni mmoja wa waIrani wachache walioajiriwa na kampuni kubwa ya habari za lugha ya Kiingereza
 Picha imetumika kwa ruhusa ya Saeed Kamali Dehghan
-Taarifa zake nyingi zinahusiana na uvunjaji wa haki za binadamu nchini Irani lakini kama alivyosema katika mahojiano kwa njia ya simu tatizo kubwa kwa vyombo vya habari vya Magharini ni kuwa wao huiona Irani kama picha ya rangi nyeusi na nyeupe lakini Irani haiko hivyo
-Irani ni kama Upinde wa Mvua imeenea rangi
+Taarifa zake nyingi zinahusiana na uvunjaji wa haki za binadamu nchini Irani lakini kama alivyosema katika mahojiano kwa njia ya simu tatizo kubwa kwa vyombo vya habari vya Magharini ni kuwa wao huiona Irani kama picha ya rangi nyeusi na nyeupe lakini Irani haiko hivyo Irani ni kama Upinde wa Mvua imeenea rangi
 Soma zaidi Saeed Kamali Dehghan anayeiandikia Irani katika gazeti la The Guardian
 Katika magumu ya kuiandikia nchi ambayo anafungamana nayo kihisia Saeed anafafanua kwamba
 Kama muIrani nina hisia zangu juu ya nchi lakini ninapoandika habari zake huwa ninajaribu kukaa pembeni kidogo ili kuondoa upendeleo
@@ -1463,37 +1173,21 @@ Vitabu vyake makala na machapisho yake yanafafanua kitendawili cha Irani ambayo 
 Hooman Majd amekuwa akijulikana kama sauti ya Irani kwa nchi za Magharibi
 Picha ya Majd ilipigwa na Ken Browar imetumika kwa ruhusa
 Soma zaidi Mazungumzo na Hooman Majd daraja baina ya vyombo vya habari vya Irani na Marekani
-
 Kama mtazamo mbaya dhidi ya Irani umeleta somo tangu kutoka kwa kitabu chake mwaka 2008 kilicholenga kupinga mitazamo mibaya kuhusu jamii ya waIrani kwa wasomaji wa Marekani
 Ahmadinejad ndiye alikuwa wa kwanza kuwa wazi kwa vyombo vya habari ambavyo ndio chanzo cha kwanza kabisa cha habari hasi
 Lakini waIrani wenye asili ya Marekani na waIrani wenye asili ya Ulaya wameandika sana kuhusu utamaduni wao katika siku za hivi karibuni na pia kuna safari nyingi sana kati ya Irani na Marekani baina na waIrani wenye asili ya Marekani na waIrani asilia
 Kwa sasa wanauelewa mzuri kidogo na kuna vitabu vingi kidogo
 Irani sio kitendawili cha kipekee lakini kilicho cha pekee ni kuwa watu wengi hawafahamu mengi kuhusu Irani
-makala 30
-Waandamanaji mjini Rio de Janeiro Elimu ndio silaha yetu
-Picha na Marianna Cartaxo  Mídia NINJAImetumiwa kwa ruhusa
+
+makala 29
+Waandamanaji mjini Rio de Janeiro Elimu ndio silaha yetu Picha na Marianna Cartaxo  Mídia NINJAImetumiwa kwa ruhusa
 Hapo Mei 15 maelfu ya Wabrazili waliingia mitaani katika majimbo yote 26 wakiandamana kuipinga serikali ya Bolsonaro kukata fedha za elimu ambapo itaathiri mamia ya shule na vyuo
 Mwishoni mwa mwezi Aprili serikali ya Brazili ilitangaza kukata kiasi cha asilimia 30 ya kile kinachosemekana ni bajeti ambayo ilikuwa kwa ajili ya gharama za maji umeme uendeshaji wa jumla pamoja na tafiti
 Wakati ukifiria kuwa jumla ya bajeti kuu ya serikali kwa ajili ya elimu ya juu makato hayo yanaweza kufikia mpaka asilimia tatu au 5
 Hata hivyo serikali imefuta udhamini kwa wanafunzi wa elimu za juu wapatao 3500 waliokuwa wakidhaminiwa na serikali
 Kuanzia mtaa wa Paulista huko São Paulo kituo cha makutano ya maandamano cha kimila mpaka kwenye mashamba ya asili huko Alto Rio Negro karibu ma mpaka wa Colombia watu walitoka kwenda kutetea elimu ya umma
 Huko Viçosa Minas Gerais kundi la watu wapatao 5000 waliandamana wakiwa na miamvuli huku mvua kubwa ikinywesha
-WOW
-Drone footage of the huge crowd of protestors gathered on on Av Paulista in São Paulo to protest the education  science funding cuts
-15M TodosPelaEducação TsunamidaEducação NaRuaPelaEducação MarchaPelaCiência pic
-twitter
-comBmHEYBuF9F
-March for Science MarchForScience May 15 2019
-WOW
 Picha ya anga ikionesha kundi kubwa la waandamanaji huko mtaa wa Paulista huko São Paulo wakipinga makato ya fedha za elimu na tafiti za kisayansi
-15M TodosPelaEducação TsunamidaEducação NaRuaPelaEducação MarchaPelaCiência pic
-twitter
-comBmHEYBuF9F
-httpsglobalvoices
-orgwpcontentuploads201905WhatsAppVideo20190515at21
-00
-30
-mp4
 Brazili inayo vyuo vya umma 69 na idadi kubwa ya vyuo vikuu vya serikali na vyote vinatoa shahada ya kwanza na shahada ya uzamili bure kabisa bila kulipia ada na baadhi ya huduma za kijamii kama vile ofisi za ushauri wa kisheria na hospitali
 Awali makato hayo yalikuwa yafanyike katika vyuo vitatu lakini baadayr yaliendelezwa kwa vyuo vingine vyote
 Waziri wa elimu wa Bolsonaro Abraham Weintraub alisema kuwa hayo sio makato bali ni kubana matumizi
@@ -1503,53 +1197,28 @@ Weintraub aliteuliwa kuwa waziri mapema mwezi Aprili baada ya aliyemtangulia kuk
 Waziri huyu mpya mara zote amekuwa akitoa maoni yanayowiana na sera za mrengo wa kulia kama vile madawa ya kulevya yalitambulishwa Brazili kama mkakati wa wakomunisti na anataka kufuta utamaduni wa UMarx vyuoni
 Baadhi ya wakuu wa vyuouni wamesema kuwa makato hayo yanaweza kuwazuia milango yao kufunguka mapema mwanzoni wa muhula wa pili wa 2019
 Ofisi ya mwendesha mashataka wa serikali imetuma taarifa kwa mwanasheria mkuu akilalamikia makato ya kuwa ni ukiukwaji wa katiba ya Brazili
-Rio de Janeiro you look BEAUTIFUL Hundreds of thousands are occupying Avenida Presidente Vargas as night falls to protest the budget cuts to science and education
-15M TodosPelaEducação TsunamidaEducação NaRuaPelaEducação httpst
-co8MIn91crKX
-March for Science MarchForScience May 15 2019
-Rio de Janeiro unaonekana MZURI Mamia na maelfu yanaushikilia Avenida Presidente Vargas usiku
-unapoingia wakipinga makato ya bajeti ya elimu na sayansi 
-15M TodosPelaEducação TsunamidaEducação NaRuaPelaEducação pic
-twitter
-com8MIn91crKX
+Rio de Janeiro unaonekana MZURI Mamia na maelfu yanaushikilia Avenida Presidente Vargas usiku unapoingia wakipinga makato ya bajeti ya elimu na sayansi 
 Watafiti kutoka chuo kikuu cha Minas Gerais UFMG ambao wanatafiti makundi ya WhatsApp huko Brazili wamegundua kuna mazungumzo mengi kupitia app hiyo hasa baada ya kutangazwa kukatwa kwa bajeti
 Utafiti umetengeneza kitumizi ambacho kitafuatilia kwa upana makundi ya WhatsApp na kitatumiwa kwa upana na shirika linalojihusisha na kuuchimbua ukweli nchini Brazili
 Mtafiti kiongozi Fabrício Benevuto hapo Mei 8 ukurasa wake wa Facebook alisema 
-São monografiasdissertaçõeseventos ridicularizados por seus títulos e temas
-São imagens de pessoas peladas em festas que nem são nas universidades e protestos e memes dizendo que os alunos das federais levam mais de 12 anos pra formar pois só usam drogas
-Claramente é um esforço orquestrado
-Trabalho de profissional
-Segue o mesmo estilo da campanha eleitoral
-Quem financia essa fábrica de desinformação
 Picha ni pamoja picha zisizo na rangimachapishomatukio yaliyobezwa kwa sababu ya vichwa vya habari na mada zake
-Kuna picha za watu wakiwa uchi katika shereheambao hawapo hata
-vyuoni na mizaha kadhaa ya waandamanaji inayosema kuwa inawachukua wanafunzi miaka 12 kuhitimu kwa sababu wanabwia dawa za kulevya muda wote
+Kuna picha za watu wakiwa uchi katika shereheambao hawapo hata vyuoni na mizaha kadhaa ya waandamanaji inayosema kuwa inawachukua wanafunzi miaka 12 kuhitimu kwa sababu wanabwia dawa za kulevya muda wote
 Hili iko wazi kuwa ni kusudi lililopangwa
 Kwa mtindo ule ule wa kampeni za uchaguzi
 Nani anakidhamini kiwanda hiki cheye kutoa habari za uongo
 Makala katika wavuti ya Ciência na Rua sayansi mitaani kwa Kireno inadai kuwa vyuo vya umma vinazalisha asilimia 95 ya tafiti za kisayansi nchini Brazili
 Utafiti uliofanywa na kamapuni toka Marekani ya Clarivate Analytics mwaka 2018 inaonesha kuwa kati ya vyuo 20 wazalishaji wa tafiti bora 15 ni sehemu ya mtandao wa serikali
 Katika siku ya maandamano waziri Weintraub aliitwa kwenda kutoa maelezo kuhusu kukatwa kwa bajeti katika bunge la nyumba ya chini ya Kongresi
-Bolsonaro is the enemy of Education
-Education is an act of Love and CourageTsunamiDaEducacao pic
-twitter
-comsEEOb5wDxz
-Nirmukta  Nirmukta May 16 2019
 Bolsonaro ni adui wa elimu
 Elimu ni kitendo cha Upendo na UshujaaTsunamiDaEducacao pic
-twitter
-comsEEOb5wDxz
 Baadaye Bolsonaro alikuwa jimbo la Texas nchini Marekani ambapo alikutana na Rais wa zamani wa Marekani George W
-Bush
 Alipoulizwa kuhusu maandamano hayo Rais alisema
-É natural que haja protesto agora a maioria ali é militante  não tem nada na cabeça se perguntar 78 pra ele não sabe
-Se você perguntar a fórmula da água não sabe não sabe nada
-São uns idiotas úteis uns imbecis que estão sendo usados como massa de manobra de uma minoria espertalhona que compõe o núcleo de muitas universidades federais no Brasil
 Ni kawaida kwamba maandamani yametokea sasa wengi wa watu pale ni mgambo wasio na kitu kichwani
 Kama utawauliza jawabu la 7 mara 8 hawajui
 Kama unaju waulize kuhusu muundo wa maji hawatajuwa hawajui kitu
 Ni wajinga na wapumbavu wenye faida na wamekuwa wakitumiwa na watu wachache wenye hila wanaoongoza vyuo kadhaa vya umma nchini Brazili
-makala 31
+
+makala 30
 Mwandishi wa habari wa Uganda Gertrude Uwitware Tumusiime ameonja matukio ya mzigo maradufu wakati akifanya kazi kama mwandishi wa habari mwanamke nchini Uganda
 Picha ya Skrini kutoka The Other Side Gertrude Uwitware Tumusiime kwenye YouTube
 Nchini Uganda waandishi wa habari wanawake wanaotumia vifaa vya kidijitali kuripoti kutoa maoni na kupata habari hukabiliwa na mashambulizi na udhalilishwaji kwa sababu wanachunguza na kuchapisha maudhui nyeti ya kisiasa
@@ -1564,8 +1233,6 @@ Mnamo Novemba 2016 mwandishi wa habari wa Uganda Joy Doreen Biira aliyekuwa akif
 Wakati Biira akiwa kwao vikosi vya usalama vya Uganda vilipambana na walinzi wa ufalme wa Rwenzururu katika mkoa wa Rwenzori magharibi mwa Uganda na ikulu yao ikateketezwa kwa moto
 Mapambano hayo ya kufyatuliana risasi yalisababisha vifo vya watu 62 wakiwemo polisi 16
 Biira aliandika hisia zake kuhusiana na tukio hilo la shambulizi la kijeshi kwa kuchapisha maoni yake kwenye Facebook mnamo Novemba 27
-Its so sad what Ive witnessed today with my own eyes  part of the palace of the kingdom Im from the Rwenzururu Kingdom burning down
-It felt like watching your heritage deplete before my eyes
 Inasikitisha sana kile nilichokishuhudia leo kwa macho yangu mwenyewe  sehemu ya jumba la ufalme huko nitokako Ufalme wa Rwenzururu likiteketea kwa moto
 Nilijihisi kana kwamba nilikuwa nikitizama urithi ukiangamizwa mbele ya macho yangu
 Siku hiyo hiyo Biira alikamatwa na kutuhumiwa kusambaza picha tata za matukio hayo ya kutisha ya mapigano kati ya vikosi vya usalama na walinzi wa mfalme wa Rwenzururu  kwa kundi la WhatsApp lenye wanachama wengi kwa mujibu wa Committee to Protect Journalists CPIJ
@@ -1575,18 +1242,9 @@ Biira alishtakiwa kwa kosa la kuunga mkono ugaidi kwa kuchukua video za shambuli
 Hata hivyo siku moja baadaye aliwachiliwa kwa dhamana
 Kisa hicho cha Biira kilizua shutuma kali kwenye mitandao ya kijamii kupitia kauli mbiu kamaa vile FreeJoyDoreen na JournalismIsNotaCrime
 Mwanamtandao huyu alimshutumu Rais wa Uganda Yoweri Museveni kwa tabia yake ya kuwanyamazisha waandishi wa habari
-FreeJoyDoreen President KagutaMuseveni should stop silencing journalists
-That is total impunity in our continent pic
-twitter
-comSGUX985cM0
-KIPLETING MANUELA LE MAGICIAN ItsKipleting November 29 2016
 FreeJoyDoreen Rais KagutaMuseveni hana budi kuacha tabia ya kuwanyamazisha waandishi
 Kitendo hicho ni ukiukwaji mkubwa wa haki za binadamu katika bara letu
 Wakili wa Biira Nicholas Opiyo alichapisha twiti iliyoonyesha mashtaka rasmi aliyokabiliwa nayo Biira
-Copy of Joys police bond  charged with abetting terrorism ridiculous journalism is not terrorism KTNKenya KTNKenya FreeJoyDoreen pic
-twitter
-comg5v7cgGryn
-Nicholas Opiyo nickopiyo November 28 2016
 Nakala ya dhamana ya Joyanayeshtakiwa na kosa la kusaidia ugaidi kichekesho  journalism uandishi wa habari si uhalifu KTNKenya KTNKenya  FreeJoyDoreen
 Opiyo aliiambia Global Voices kuwa kesi ya Biira ilitupiliwa mbali na kufutwa mnamo Machi 2017 baada ya utawala kufanya uchunguzi na kukosa ushahidi wa kumfungulia mashtaka mahakamani
 Sawa na kesi nyinginezo kama hizi mtu hutua mzigo kwenye nafsi lakini hubaki na hisia ya uonevu ukosefu wa haki na maumivu alisema Opiyo ambaye pia ni mkurugenzi mtendaji wa Chapter Four Uganda ambalo ni shirika la haki za binadamu
@@ -1613,23 +1271,16 @@ Bahati Remmy mwanahabari mwanamke wa Uganda ambaye kwa sasa anafanya kazi Mareka
 Polisi wa Uganda walimkamata Remmy wakati akifanya matangazo ya moja kwa moja kupitia runinga ya NBS inayomilikiwa na mtu binafsi ili kuangazia kuzuiliwa nyumbani kwa kiongozi mkuu wa upinzani Dk
 Kizza Besigye katika mji wa Kasangati
 Remmy aliiambia Global Voices
-The police engaged in a running battle not to allow any journalists to cover the story concerning Besigye
 Polisi walizua hali ya taharuki wakati wa kuwazuia wanahabari kuangazia taarifa kumhusu Besigye
 Polisi walinipapasa matiti yangu kwenye gari lao wakanivua nguo kituoni na kuniacha uchi mbele ya kamera kwa mujibu wa Remmy
 Pia alifuatiliwa na kunyanyaswa na ofisa wa polisi kwenye Facebook kwa sababu serikali ya Uganda ilidhani kwamba alikuwa ameshirikiana na Besigye kuichafulia nchi taswira
 Aliiambia Global Voices kuwa ujumbe wa maandishi kutoka kwa watu wasiojulikana uliachwa mlangoni pake ukitoa vitisho vya kumteka iwapo angekataa kutoa siri ya njia atakayotumia Besigye kutoka nyumbani kwake
 Baada ya kisa cha ukamatwaji wa Remmy Mtandao wa Haki za Binadamu za Wanahabari  Uganda uliandaa kura ya maoni kupima hali halisi ya mambo kuhusu kisa hicho
-Waliuliza Polisi ya Uganda ilidai kuwa ripota wa runinga ya NBS Bahati Remmy alikiuka maagizo halali na pia aliwazuia polisi kuifanya kazi yao hivyo kuwafanya kumkamata
-Je unakubaliana na hili
+Waliuliza Polisi ya Uganda ilidai kuwa ripota wa runinga ya NBS Bahati Remmy alikiuka maagizo halali na pia aliwazuia polisi kuifanya kazi yao hivyo kuwafanya kumkamata Je unakubaliana na hili
 Magambo Emmanuel aliandika
-It is a lame excuse and total lie because there is video footage that shows how Bahati was arrested
-Police should stop shifting their problems to innocent journalists
 Ni sababu dhaifu na uongo mtupu kwa sababu kuna mkanda wa video unaoonyesha jinsi Bahati alivyokamatwa
 Polisi wanapaswa kuacha kuyaelekeza matatizo yao kwa wanahabari
 Davide Lubuurwa aliandika
-Whoever tries to let the people know how the state is standing is to be arrested
-A very big problem is coming to Uganda soon
-What bothers me most is that whoever tries to say something that is not in support of the current regime is taken to be a rebel so the Ugandan people must wake up
 Yeyote anayejaribu kuwajuza watu kuhusu hali ya taifa lazima akamatwe
 Tatizo kubwa linakuja Uganda hivi karibuni
 Kinachoniudhi ni kwamba yeyote anayejaribu kutamka jambo lisilounga mkono utawala uliopo anachukuliwa kana kwamba ni mwasi kwa hivyo ni sharti watu wa Uganda wazinduke
@@ -1644,9 +1295,11 @@ Vitisho vingi vinavyowakumba wanahabari wanawake mtandaoni vinahusiana kwa karib
 Remmy anaamini kuwa haki hali na hadhi ya wanahabari wanawake zinapaswa kuzingatiwa nyakati zote kwa sababu mashambulio dhidi ya wanawake yanakandamiza sekta ya uwanahabari kwa jumla
 Uganda inapojiandaa kufanya uchaguzi wa urais na ubunge mnamo 2021 mashambulio na udhalalishwaji wa waandishi wa habari wanawake na serikali unapaswa kukomeshwa kwa sababu unaathiri ufikiaji wa habari uhuru wa kujieleza na haki za demokrasia za raia wa Uganda
 Uhuru wa waandishi wa habari unasalia kuwa mtoto anayepuuzwa katika mfumo wa nchi Remmy aliiambia Global Voices
-Makala haya ni sehemu ya mfululizo unaoitwa Jedwali la Utambulisho Jukwaa la kudhibiti vitisho vya mtandaoni dhidi ya uhuru wa kujieleza barani Afrika Machapisho haya yanahoji kauli za chuki zenye utambulisho au kubagua kwa misingi ya lugha au asili ya kijiografia habari potovu na udhalilishwaji haswa dhidi ya wanaharakati wanawake na waandishi wa habari uliokithiri mtandaoni katika nchi saba za Kiafrika Algeria Kamerun Ethiopia Nigeria Sudani Tunisia na Uganda
+Makala haya ni sehemu ya mfululizo unaoitwa Jedwali la Utambulisho Jukwaa la kudhibiti vitisho vya mtandaoni dhidi ya uhuru wa kujieleza barani Afrika 
+Machapisho haya yanahoji kauli za chuki zenye utambulisho au kubagua kwa misingi ya lugha au asili ya kijiografia habari potovu na udhalilishwaji haswa dhidi ya wanaharakati wanawake na waandishi wa habari uliokithiri mtandaoni katika nchi saba za Kiafrika Algeria Kamerun Ethiopia Nigeria Sudani Tunisia na Uganda
 Mradi huu umefadhiliwa na Mfuko wa Haki za Kidijitali wa Afrika wa shirika la Ushirikiano wa Sera za kimataifa za TEHAMA kwa ajili ya Mashariki na Kusini mwa Afrika CIPESA
-makala 32
+
+makala 31
 Mizizi ya miti iliyojikita kwenye ukuta wa karne ya 15 uliopo kisiwa cha Kilwa Kisiwani Tanzania
 Mnamo mwaka wa 1981 magofu ya sultani hodari wa Kiswahili kisiwani humo yalitangazwa kuwa eneo la UNESCO la urithi wa dunia
 Picha na David Stanley Januari 1 2017 CC BY 2
