@@ -23,7 +23,6 @@ Serikali ya Naijeria imetangaza siku ya Ijumaa kwamba inaufungia mtandao wa Twi
 Pamoja na kuondolewa kwa twiti hiyo ujumbe uliendea kusambaa kwenye mitandao ya kijamii hali iliyokumbushia maumivu ya vita vya wenyewe kwa wenyewe vilivyopoteza maisha ya watu zaidi ya milioni moja
 Lakini twiti hiyo ilichochea harakati kwenye mitandao ya kijamii kusimama na Wanaijeria wa kabila la Igbo
 Kwenye mfululizo wa twiti zilizochapishwa mnamo June 1 2021 Buhari anatishia kuwashughulikia Wanaijeria wanaotoka kwenye sehemu ya mashariki ya nchi hiyo kwa kutumia lugha wanayoielewa akirejea vita vya wenyewe kwa wenyewe nchini Naijeria kati ya mwaka 19671970 dhidi ya vuguvugu la kujitenga la Jamhuri ya Biafra kusini mashariki mwa Naijeria
-
 Twiti hiyo iliandikwa baada ya mfululizo wa mashambulio dhidi ya serikali na vyombo vya usalama kwenye eneo hilo ambalo linalaumiwa kuwa na kikundi cha kijeshi  kinachohusishwa na Wenyeji wa Biafra IPOB vuguvugu la watu wanaotaka sehemu ya Biafra ijitenge
 Kikundi hicho kimekanusha kuhusika na mashambulizi hayo kwa mujibu wa Sauti ya Amerika
 Wengi wa wale wanaoonesha utovu wa nidhamu leo walikuwa wadogo kuelewa uharibifu na upotevu wa maisha ya watu uliotokea wakati wa Mapigano ya Wenyewe kwa Wenyewe nchini Naijeria ilisema twiti ya Buhari ambayo sasa imefutwa 
@@ -52,18 +51,9 @@ Biersdorfer wa New York Times ni kwamba twiti zilizofutwa zinaweza kuwa bado z
 Mwitikio wa alama habari ya IAmIgboToo
 Twiti ya vitisho ya Rais Buhari iliibua mjadala mkali kutoka kwa Wanaijeria wanaotumua mtandao wa Twita mjadala uliogonga vichwa vya mtandao huo kwa alama habari ya IAmIgboToo kuonesha masikitiko yao
 kadhalika watumiaji wa mtandao wa Twita nchini Naijeria kutoka kwenye makundi mbalimbali ya kikabila pia walitumia majina ya lugha ya Igbo  kama namna ya kusimama na watu wa kabila la Igbo
-
 Uchambuzi uliofanywa mnamo Juni 4 2021 na Global Voices kwa kutumia zana ya Brand Mentions  ulionesha kwamba ndani ya siku saba alama ishara ya IAmIgboToo ilitajwa mara 508 imetumiwa mara 319200 imewafikia watu 457500 na kusambazwa mara 313100 kwenye mtandao wa Twita na Instagram
 Picha ya maneno yanayotajwa kwenye alama habari ya IAmIgboToo
 Mwanaharakati wa Haki za Binadamu Aisha Yesufu  akitumia jina la Waigbo Somtochukwu likimaanisha ungana nami kumsifu Mungu  huku akilaani namna Rais Buhaari aliyowatisha watu wa Igbo wakisema kushambuliwa kwa watu wa Igbo ni kushambuliwa mimi 
-My name is Aisha Somtochukwu YesufuIAmIgbo
-Any threat to Igbo people is a threat to me
-An attack to Igbo people is an attack on me
-I condemn the 1967 threats from President Buhari to the Igbo people
-No Nigerian is more Nigerian than any Nigerian pic
-twitter
-comVMHeYkWY2e
-Aisha Yesufu AishaYesufu June 2 2021
 Jina langu ni Aisha Somtochukwu Yesufu
 Tishio lolote kwa watu wa Igbo ni kunitisha na mimi
 Kuwashambulia watu wa Igbo ni kunishambulia mimi
@@ -71,40 +61,21 @@ Nalaani vitisho vya 1967  kutoka kwa Rais Buhari kwa watu wa Igbo
 Hakuna Mnaijeria ambaye ni zaidi kuliko Mnaijeria yeyote
 Msanii wa muziki wa kufoka foka na mzalishaji wa muziki Jude Abaga M
 I Abaga alionesha shauku yake kwa nchi hii kuendelea mbele ya matamshi haya yaliyojaa chuki 
-The narrative that Nigeria hates Igbo people is an outdated context that will leave with the old and bitter generation
-Today let us stand with our Igbo family and say IAmIgboToo Ozoemena  pic
-twitter
-comB0xGAjnfMG
-Yung denzL MI_Abaga June 2 2021
 Maelezo kwamba Naijeria inawachukua watu wa Igbo ni ya kishamba na yanaacha mtazamo ule ule usiobadilika
 Mwanaharakari wa KomeshaSars Rinuola Rinu Oduala akitumia jina la Kigbo Ochiaga ikimaanisha lkiongozi wa vikosi vya majeshi alikumbuka kwa fahari mchango muhmu wa wanawake wa Kiigbo kwenye historia ya Naijeria akirejea Maasi ya Wanawake wa Aba  Novemba 1929
-I remember the Aba Women Rebellion where at least 25000 Igbo women protested against colonial oppression
-I come from the same land with those dynamic women born of confidence  resilience to years of oppression  social injustice
-My name is Rinu Ochiagha Oduala
-IAmIgboToo
-Rinu EndSARS SavvyRinu June 2 2021
 Ninakumbuka Maasi ya Wanawake wa Aba ambapo wanawake wasiopungua 25000 waliandamana dhidi ya unyanyasaji wa kikoloni
 Ninatoka kwenye eneo hilo hilo lenye wanawake wenye hulka hiyo wakiwa wamezaliwa na ujasiri  uvumilivu dhidi ya miaka mingi ya unyanyasaji na ukosefu wa  haki
-Jina langu ni Rinu Ochiagha Oduala MimiNiIgbo
 Blossom Ozurumba mtafsiri wa lugha ya Igbo wa Global Voices alibainisha kwamba vitisho huanza na kutweza utu wa mtu 
-The use of dehumanization makes it easier to remove the moral concern associated with killing discriminating or torturing others based on their group identity
-If they arent seen as human it is easier to justify acts of violence against them
-httpst
-conW2OPFBqbM
-Chief Ofu Ji blossomozurumba June 1 2021
 Ukishatweza utu wa watu inakuwa rahisi kuondoa ule wasiwasi wa kimaadili kuhusu mauaji ubaguzi au kutesa wengine kwa sababu tu ya utambulisho wa makabila
 Kama hawaonekani kuwa binadamu ni rahisi kuhalalisha matendo ya vurugu dhidi yao
 Kuteza utu kwa mujibu wa Ozurumba kunafanya iwe rahisi kuondoa hali ya kuguswa kimaadili na vitendo vya mauaji ubaguzi au utesaji wa watu kwa sababu tu ya makabila yao
+
 makala 4
 Picha na makeitkenya CC PDM 1
 0
 Mnamo Machi 27 mjadala mkali uliibuka kwenye mitandao ya kijamii ya Kenya juu ya matamshi yaliyotolewa hewani na watangazaji wa redio tatu wakati wa kipindi cha asubuhi Breakfast Show
 Watangazaji walikuwa wakijadili kesi inayoendelea ya kortini inayomshirikisha Eunice Wangari mwanamke ambaye alisukumwa nje ya jengo la ghorofa 12 na mwanamume ambaye alikuwa na mahusiano naye
 Kwenye mtandao wa Twitter Wakenya wenye hasira waliwaghadhabisha watangazaji Shaffie Weru Joseph Munoru na Neville Muysa kwa matamshi yao juu ya kesi ya madai ya unyanyasaji wa kijinsia na kuwaita watangazaji hao wahangawakulaumu
-Shaffie is insinuating that the lady who was pushed from the 12th floor of a building in Nairobi CBD after she said no to a mans advancements was because she was too loose  very available hence putting herself is such a situation
-Homeboyz yawa
-What the actual hell 
-BRAVIN YURI BravinYuri March 25 2021
 Shaffie anasisitiza kwamba mwanamke huyo alisukumwa kutoka gorofa ya 12 ya jengo jijini Nairobi baada ya kusema hapana kwa mwanamume ni kwa sababu alijiachia sana na kuwa huru kwa hivyo kujiweka mwenyewe katika hali kama hiyo
 Homeboyz yawa
 Je Ni kuzimu gani
@@ -124,26 +95,10 @@ Baada ya kupona alikuja na kuelezea juu ya safari yake wakati ulimwengu ulipoanz
 Lakini Cherotich hakupokelewa kwa uchangamfu kama alivyotarajia
 Baada ya kufanya mahojianona vyombo vya habari mwezi April 2020 alikabiliwa na unyanyasaji na usumbufu mtandaoni kutoka kwa Kenyan On Twitter maarufu kama KOT neno linalotumika mara nyingi kuelezea watumiaji hai wa mtandao wa twitter nchini Kenya wanaoshiriki kwenye mijadala mbalibali au haiba kwenye mtandao huo ambao walitafuta kudhalilisha na kuuliza ukweli kuhusu hadithi yake
 Wanyanyasaji wengine wa mtandaoni waliingilia maisha yake binafsi mazungumzo yake binafsi na picha zake zilisambaa sana mtandaoni pengine baada ya kuvujishwa na rafiki yake au mtu wake wa karibu
-her hairstyle looks like Corona itself brenda indukusy pic
-twitter
-comq3HsQxkcfw
-this is me mykdjmaliq April 1 2020
 Mtindo wa nywele zake zinaonekana kama Corona yenyewe
 Baada ya kukasirishwa kwa hili waziri wa afya wa Kenya Mutahi Kagwe alijitokeza kumtetea Brenda kutoa wito wa kukamatwa kwa wanyanyasaji hao na kuwataja kama jitihada za aibu zinazodhoofisha juhudi za serikali za kupambana na COVID19
-Health CS Mutahi Kagwe tells police to arrest social media users for bullying Brenda pic
-twitter
-comYkI5EMfeaM
-Nairobi News Nairobi_News April 3 2020
 Waziri wa afya Mutahi Kagwe akiwaambia polisi kuwatia hatiani watumiaji wa mitandao ya kijamii kwa kumnyanyasa Brenda
 Na hiyo haikuwa mwisho wake mwathirika mwingine hivi karibuni alianguka kwenye shambulizi la KOT Mtangazaji wa runinga Vyonne Okwara alilengwa baada ya kumtetea Brenda na kumuunga mkono hoja ya waziri ya kuwatia hatiani wanyanyasaji wa mitandao
-I strongly disagree with Yvonne Okwara
-Your statement is not objective
-It is emotional and stinks to high heavens
-Speaking of which where was your voice when your fellow women stripped a MAN Lonyangapuo naked and shared his nude photos This is toxic
-pic
-twitter
-commqXDt0GkAK
-Lord Abraham Mutai ItsMutai April 3 2020
 Sikubaliani kabisa na Yvonne Okwara
 Taarifa yako haina tija
 Ni ya kihemko na yenye kunuka hadi mbingu za juu
@@ -151,18 +106,9 @@ Sauti yako ilikuwa wapi wakati wanawake wenzako walimvua MWANAUME Lonyangapuo uc
 Okwara aliwakosoa wanyanyasaji kwa kulenga wanawake
 Alisema kuwa Brian Orinda mwathirika watatu wa COVID19 aliekuwepo alipotoa safari yake ya kupona pamoja na Brenda hakupata muitikio sawa
 Hii ilichochea vidole vya wapambanaji wa kibodi kuwasha ambao walikuwa na siku yao kwenye mtandao wa Twitter wakimshambulia Okwara
-Playing gender card everytime
-Women should safeguard their dignity in the first place
-Posing for such photos and sharing the same is equally immoral
-SaadiqAl Amin Saadiq77 April 3 2020
 Utumiaji wa kadi ya kijinsia muda wote
 Wanawake wanatakiwa kulinda heshima wao kwanza
 Kupiga picha kama hizi na kuzishiriki vile vile ni ukosefu wa maadili
-Kind of shallow and idiotic take from Okwara
-So shallow you wonder if Corona ate the brain
-Nudes of men were online juzi
-She suddenly has selective amnesia over that
-Robert Alai HSC RobertAlai April 3 2020
 Hali hiyo duni na ya kijinga kutoka Okwara
 Kwa hivyo duni unashangaa kama Corona alikula ubongo
 Uchi wa wanaume ulikuwa mtandaoni juzi
@@ -170,23 +116,7 @@ Yeye ghafla amepata usahaulifu kwa kuchagua juu ya hiyo
 Mwanzoni mwa mwaka msemaji mkuu wa Ikulu Kanze Dena pia aliathirika na unyanyasaji wa kimtandoa wa Kenya
 Alipokua akitoa mkutano na waandishi wa habari kwenye hafla wanyanyasaji wa mtandao waliudhalilisha mwili wake kutokana na uzito wake
 Kwa haraka ikawa mjadala kwenye mitandao ya kijamii na sehemu ya Wakenya na haiba ya media wakimtetea Dena
-Shes too fat tallshort Who set standards for how women should look likeWhy is it our problem that KanzeDena has added some weight Well shes a new mother but she owes no one an explanation HerBodyHerChoices Give her a break please This is a new low we must reject  pic
-twitter
-comx7qP3nuPeS Patience Nyange NyangePatience January 29 2021
-Yeye ni mnene sana mrefu mfupi Ni nani aliyeweka viwango vya jinsi wanawake wanavyopaswa kuonekana Kwa nini ni shida yetu kwamba KanzeDena ameongeza uzito Kweli yeye ni mama mpya lakini hana deni kwa mtu yeyote HerBodyHerChoices Mpeni pumziko tafadhali Hii ni chini mpya lazima tuyakatae
-
-View this post on Instagram
-
-A post shared by Emmy Kosgei emmykosgei
 Makala ya The Elephant  moja ya chapisho kuu la kidijitali nchini Kenya ilibaini kuwa nyanja za mtandao wa kijamii mkondoni nchini Kenya na ulimwenguni zimegeuka kuwa mipaka ya maneno yenye sumu na unyanyasaji
-There is no gainsaying that social media has become an important tool for social and professional advancement more so for women
-Many women have built their businesses online and in the process have learned how to connect with others
-Many find clients to buy and sell their products online
-Others find platforms to incubate ideas leading to hundreds if not millions of social enterprises that not only spur economic growth but directly empower young men and women economically
-They have also learned how to improve their entrepreneurship skills online
-No doubt then social media has emerged as a great space to do business
-This is important for womens economic empowerment and visibility
-Source The Elephant
 Hakuna ubishi kwamba mitandao ya kijamii imekuwa nyenzo muhimu kwa maendeleo ya kijamii na kitaalam zaidi kwa wanawake
 Wanawake wengi wamejenga biashara zao mkondoni na katika mchakato huo wamejifunza jinsi ya kuungana na wengine
 Wengi hupata wateja wa kununua na kuuza bidhaa zao mkondoni
@@ -195,6 +125,7 @@ Wamejifunza pia jinsi ya kuboresha ujuzi wao wa ujasiriamali mkondoni
 Bila shaka basi mitandao ya kijamii imeibuka kama nafasi nzuri ya kufanya biashara
 Hii ni muhimu kwa uwezeshaji kiuchumi na kujulikana kwa wanawake  Chanzo The Elephant
 Inaonekana kwamba kwa wanawake kushiriki mazungumzo ya maana mkondoni juu ya mada zinazoathiri moja kwa moja maisha yao mtandao lazima uwe mahali salama zaidi kuliko ilivyo sasa
+
 makala 5
 Bendera yenye rangi za upinde wa mvua
 Picha ya Marco Verch  kwenye mtandao wa Flickr CC BY 2
