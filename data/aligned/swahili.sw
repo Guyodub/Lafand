@@ -1418,7 +1418,7 @@ Witaba mwandishi mtengenezaji maudhui ya asilia na mwanaharakati mkufunzi mtafit
 Yeye ni mwanzilishi wa ICANNWiki Swahili tovuti kamusi yenye dhamira ni kukuza kutafsiri makala na misamiati 10000 ya utawala wa mtandao hadi lugha ya Kiswahili kwa wazungumzaji milioni 150 wa Kiswahili ifikiapo 2020
 Vile vile Witaba anaendesha mradi wa vijana unaolenga kujenga uwezo wa wanafunzi wasomi na watu binafsi kwenye sekta ya kibinafsi na serikalini kupitia kozi za kitaalamu kuhusu utawala wa mtandao
 
-makala 33
+Makala 33
 Waandamanaji wakishinikiza kuondolewa kwa aliyekuwa rais Robert Mugabe ambaye sasa ni marehemu kutoka madarakani mnamo Novemba 18 2017
 Picha na mtumiaji wa Flickr Zimbabweaneyes Huru kutumika
 Mapema asubuhi ya Novemba 15 2017 raia wa Zimbabwe waliamka na habari zilizoenea kwamba aliyekuwa mbabe marehemu Robert Mugabe alikuwa amengolewa madarakani katika mapinduzi ya serikali na alikuwa nguvuni kwenye makazi yake Ikulu pamoja na familia yake
@@ -1464,15 +1464,13 @@ Serikali ya Rhodhesia iliyoongozwa na Ian Smith ilijikita katika propaganda na k
 Serikali ya kikoloni ilipitisha idadi kubwa ya sheria za kukandamiza kujieleza au kupinga sera za kibaguzi za Smith na ilitekeleza sheria hizi kwa ukatili mno kuwalenga viongozi wa ukombozi
 Udhibiti wa habari ilikuwa hali ya kawaida kabla ya uhuru mwaka wa 1980 na hali hii iliweka mfano wa serikali katika suala la sera za mawasiliano na usimamizi wa vyombo vya habari kwa miaka mingi iliyofuatia
 Kama alivyoandika mwanahabari na mwandishi wa Afrika Kusini mashuhuri marehemu Heidi Holland katika kitabu chake Dinner with Mugabe The Untold Story of a Freedom Fighter Who Became a Tyrant
-So many in ZANU PFs hierarchy have lived with similar appalling violence woven into everyday life as if it were normal
-The bush war or Second Chimurenga has never really ended in Zimbabwe
 Watu wengi katika hiyarakia ya ZANU PF wameishi katika ukatili uliofumwa katika maisha yao ya kila siku kiasi cha kuonekana ni kama  jambo la kawaida
 Vita vya msituni au vita vya Pili vya Chimurenga havijawahi kumalizika kabisa nchini Zimbabwe
 Leo hii Mnangagwa anaendeleza urithi huu kukandamiza sauti za wakosoaji kupitia mbinu za taarifa potovu mtandaoni na uzimaji wa mtandao
 Makala haya ni sehemu ya mfululizo wa machapisho yanayochunguza kuingiliwa kwa haki za dijitali kupitia mbinu kama vile ufungwaji wa mtandao wa intaneti na upotoshaji habari wakati wa matukio muhimu ya kisiasa katika nchi saba za Afrika Algeria Ethiopia Msumbiji Nigeria Tunisia Uganda na Zimbabwe
 Mradi huu unafadhiliwa na Mfuko wa  Africa Digital Rights Fund wa The Collaboration on International ICT Policy for East and Southern Africa CIPESA
 
-makala 34
+Makala 34
 Waandamanaji wakishiriki Maandamano ya Wanawake ya Juni 2018 jijini Kampala Uganda
 Picha na Katumba Badru imetumiwa kwa ruhusa
 Nchini Uganda mtandao umekuwa uga wa makabiliano pale serikali inapojaribu kunyamazisha sauti ya upinzani inayozidi kukua mtandaoni
@@ -1513,7 +1511,6 @@ Uchaguzi wa 2021 Mbinu zile zile
 Rais Museveni mnamo Mei 2013
 Amekuwa madarakani tangu 1986
 Picha Foreign and Commonwealth Office kwenye Flickr CC BY 2
-0
 Tangu mwaka wa 2016 utawala umeendelea kuwakamata wanasiasa wa upinzani na waandishi wa habari
 Robert Kyagulanyi almaarufu kama Bobi Wine mwimbaji na kiongozi wa chama cha upinzani cha People Power ambaye pia ni mbunge tayari ametangaza azma yake ya kuwania urais
 Bobi Wine kwa sasa anakabiliwa na mashtaka ya jinai kwa kumuudhi rais na ikiwa atapatikana na hatia hataruhusiwa kuwania
@@ -1537,16 +1534,15 @@ Kufanikisha kutokatishwa kwa ufikiaji wa mtandao  hasa wakati wa uchaguzi ujao  
 Owiny alipendekeza hitaji la wanaharakati wa haki za dijitili kuongeza mazungumzo kati ya serikali na sekta binafsi kuwasilisha athari mbaya za ufungwaji kwa sababu sekta binafsi inatiwa hofu na serikali
 Uganda ilikuwa miongoni mwa nchi za kwanza barani Afrika kutunga sheria ya haki ya raia kupata habari za umma inayojulikana kama Access to Information Act ATIA mnamo 2005
 Sheria hiyo inaahidi kutoa ufanisi urahisi uwazi na uwajibikaji ambao utawezesha umma kupata kwa urahisi na kushiriki katika maamuzi ambayo yanawaathiri kama raia wa nchi
-
 Je Serikali itatimiza jukumu lake la kukuza haki ya kupata habari Na je Itatimiza ahadi zake
 Makala haya ni sehemu ya mfululizo wa machapisho yanayochunguza kuingiliwa kwa haki za dijitali kupitia mbinu kama vile ufungwaji wa mtandao wa intaneti na upotoshaji taarifa wakati wa matukio muhimu ya kisiasa katika nchi saba za Afrika Algeria eEthiopia Msumbiji Nigeria Tunisia Uganda na Zimbabwe
 Mradi huu unafadhiliwa na Mfuko wa  Africa Digital Rights Fund wa The Collaboration on International ICT Policy for East and Southern Africa CIPESA
-makala 36
+
+Makala 35
 Wanafunzi kutoka Shule ya DCMA wakifanya mazoezi ya vyombo mbalimbali vya muziki kwenye Jengo la Old Customs Mji Mkongwe Zanzibar 2019
 Picha kwa hisani ya DCMA
 Maelfu ya wageni wanaozuru Mji Mkongwe Zanzibar mji wa kale uliofahamika kubeba historia  kubwa ya visiwa hivyo hufuatilia sauti ya muziki unaorindima kutoka DCMA shule ya muziki inayolenga kutangaza na kutunza muziki wa mwambao unaofahamika kuwa na asili yake visiwani humo na maeneo mengine ya pwani ya Bahari ya Hindi
 Tangu mwaka 2002 shule hiyo imekuwa ikiutangaza na kuutunza utamaduni huo wa kipekee wa Zanzibar unaochanganya tamaduni za kiArab kiHindi na kiAfrika kupitia muziki
-
 Miaka 17 tangu kuanzishwa kwa shule hiyo sasa ni wazi inakabiliwa na hali mbaya ya kifedha inayotishia kufungwa kwake
 Karibu asilimia 70 ya wanafunzi 80 wanaosoma shuleni hapo hawana uwezo wa kulipa ada ya masomo ambayo ni kiasi cha dola za Marekani 13 kwa mwezi kwa mujibu wa taarifa rasmi ya DCMA kwa umma
 Ingawa shule hiyo imekuwa ikipokea misaada kutoka kwa wafadhili wa kimataifa na mashirika ya kirafiki kwa sasa inakabiliana na ombwe kubwa linaloweza kulazimisha kufunga virago vyake na kuondoka kwenye Jumba hilo la kihistoria mjini Zanzibar linalofahamika kama Old Customs House
@@ -1558,7 +1554,6 @@ Tumeanza kukabiliana na hali mbaya ya kifedha anasema Alessia Lombardo Mkurugenz
 Kuanzia sasa mpaka miezi sita ijayo hatuna uhakika kwamba tunaweza kuwa na uwezo wa kuwalipa mishahara walimu na wafanyakazi wengine
 Hivi sasa walimu 19 wabobezi na wafanyakazi wengine wachache hawajalipwa mishahara yao kwa zaidi ya miezi sita kwa sababu shule hiyo imekuwa ikihangaika kupata misaada kutoka kwa marafiki wakati huo huo ikijaribu kutengeneza mfumo endelevu wa kupata mapato kwa minajili ya uendashaji wa shule hiyo
 Ingawa visiwa hivyo vinafahamika kuvutia watalii wengi shauri ya kuwa na fukwe na hoteli kubwa za kifahari wenyeji wengi wanateseka na ukosefu mkubwa wa kazi ingawa takwimu zilizotolewa na Benki ya Dunia zinaonesha kuwa umasikini umepungua kidogo visiwani humo
-
 Kwa zaidi ya miaka 17 DCMA imefanya kazi bila kuchoka kutangaza na kulinda urithi mkubwa wa Zanzibar kupitia muziki
 Ikiwa ni mahali alipozaliwa gwiji wa muziki wa taarab na waimbaji maarufu Siti Binti Saad na Fatuma Binti Baraka au Bi
 Kidude Zanzibar ni makazi ya mahadhi ya muziki ulioibuka kupitia mchanganyiko wa kiutamaduni na ushirikiano baina ya waSwahili wa Pwani kwa mamia ya miaka iliyopita
@@ -1577,15 +1572,9 @@ Zaidi ya wageni 15000 wamewahi kupitia kwenye jengo la shule hiyo kufurahia maon
 Ikiwa na vionjo vya historia ya India Urabuni na Afrika shule hiyo inafurahia kuwa matokeo ya tamaduni za nchi mbalimbali ikiwa na utamaduni uliunganishwa kwenye eneo lal Bahari ya Hindi na Ghuba ya Uajemi
 Sultani wa Omani mfalme maarufu wa kati ya karne ya 17 na 19 alihamia utawala wake kutoka Muscat kwenda Zanzibar mwaka 1840
 Kutoka Mji Mkongwe watawala wa Omani waliendesha biashara ya baharini ikiwa ni pamoja na karafuu dhahabu nguo wakitegemea safari za vyombo vilivyoongozwa na upepo kati ya kingo ya Bahari ya Hindi nchini India kwenda Oman na Afrika Mashariki
-
 Vijana wa Zanzibar wanatambua umuhimu wa kuelewa historia yao ili kubaini ikiwa mustakabali wao na muziki wanaoutengeneza leo unaelezea matamanio ya kuweka daraja kati ya mambo ya kale na haya ya kisasa
 Hivi karibuni wanafunzi wa DCMA na walimu wao walianzisha TaraJazz mwuunganiko wa taarab ya asili na jazi ya kisasa
 Mwanamuziki wake Felician Mussa 20 amekuwa akijifunza kupiga chombo cha muziki kinachoitwa violin kwa miaka mitatu na nusu TaraJazz ni moja wapo ya bendi zinazotafutwa zaidi visiwani humo hapa ikiwa imenaswa na mpiga picha Aline Coquelle
-
-View this post on Instagram
-
-groovy evenings with Tarajazz Taraab jazz gang dcmazanzibar alinecoquelle Zanzibar Music beating Heart Stonetown IndianOcean Africa Islanders
-A post shared by  Aline Coquelle Photoreporter alinecoquelle on Sep 17 2019 at 1224pm PDT
 Pwani ya waSwahili inaeleza simulizi ya mchanganyiko wa utamaduni na DCMA inaendeleza utamaduni huu kupitia ushirikiano wa kimuziki
 Kila mwaka shule hiyo huandaa mradi unaoitwa  Swahili Encounters  Mkutano wa kiSwahili unaowakutanisha wanamuziki wanaofahamika kutoka Afrika Mashariki ya Kati Ulaya na Amerika ya Kaskazini na wanafunzi wa DCMA kwa minajili ya kutengeneza tungo halisi za muziki ndani ya kipindi cha juma moja
 Mwishoni mwa mkutano timu mpya za wasanii waliokutanishwa hutakiwa kufanya onesho kwenye Sauti za Busara na mara nyingi timu hizi huishi kuwa na urafiki unaodumu unaovuka mipaka ya lugha na utamaduni na hivyo kuthibitisha kuwa muziki ni lugha ya dunia
@@ -1593,12 +1582,12 @@ DCMA huandaa onesho mubashara kila juma kuonesha vipaji vya wanafunzi wake na ma
 Picha kwa hisani ya DCMA
 Shule ya DCMA inatambua kuwa muziki unawainua na kuwaunganisha watu bila kujali tamaduni zao  na pia inaajiri vijana wenye vipaji wnaaoishi kwenye jamii isiyo na uchumi mzuri na upungufu mkubwa wa fursa za ajira
 Kwa idadi ya wanafunzi 1800 waliopita kwenye mafunzo ya DCMA shule hii ndiyo makazi pekee ya kimuziki wanayoyafahamu ambapo wanaweza kujifunza na kukua kama wanamuziki na wasanii mahiri
-
 Mtalii mmoja kutoka Uhisipania aliyetembelea shule ya DCMA hivi karibuni aliandika kwenye mtandao wa TripAdvisor Binafsi kukutana na wanamuziki ule ulikuwa wakati wangu mzuri zaidi nikiwa visiwani pale
 Wakati sekta ya utalii Zanzibar ikiendelea kukua kwa kasi shule ya DCMA inaamini kuwa muziki una nafasi muhimu katika kusherehekea kutunza na kutangaza utamaduni wa waSwahili urithi wao na historia yao
 Zanzibar ni zaidi ya fukwe na hoteli zake za kifahari  ni sehemu inayojaa vipaji vinavyochipukia kwenye historia kubwa ya mkusanyiko na miunganiko wa historia
 Nyongeza ya Mhariri Mwandishi wa makala haya aliwahi kujitolea kwenye shule ya DCMA
-makala 37
+
+Makala 36
 Sierra Leone Watoa huduma wa afya wakijiandaa kuingia kwenye eneo la kutolea matibabu kwa wagonjwa wa Ebola
 Flickr image by ECECHOCyprien Fabre August 2 2014
 CC BYNCND 2
