@@ -1590,7 +1590,6 @@ Nyongeza ya Mhariri Mwandishi wa makala haya aliwahi kujitolea kwenye shule ya D
 Makala 36
 Sierra Leone Watoa huduma wa afya wakijiandaa kuingia kwenye eneo la kutolea matibabu kwa wagonjwa wa Ebola
 Flickr image by ECECHOCyprien Fabre August 2 2014
-CC BYNCND 2
 0
 Mapema tarehe 12 Agosti Shirika la Afya Duniani WHO lilitoa taarifa chanya ya maendeleo ya michakato ya kitabibu ya majaribio ya dawa kadhaa za kutibu ugonjwa wa ebola nchini Jamhuri ya Kidemokrasia ya Congo Jamhuri ya Congo
 WHO ilitanabaisha kuwa dawa za ebola zilizojaribiwa zimeonesha matokeo chanya yatakayoleta matumaini ya kuishi kwa wagonjwa wa Ebola na kuendelea kueleza kuwa dawa mbili kati ya nne zilizojaribiwa zimeonesha kuwa na uwezo mkubwa wa kutibu Ebola
@@ -1601,13 +1600,8 @@ Kutokana na kazi adhimu ya MuyembeTamfum wanasayansi walifanya majaribio ya dawa
 Majibu ya majaribio ya kitabibu conducted kwa washiriki 499 wa utafiti yalionesha kuwa wagonjwa waliotibiwa kwa REGNEB3 au mAb114 walionesha kuwa na nafasi kubwa ya kupona ukilinganisha na wale waliotibiwa kwa dawa nyingine mbili
 Utafiti huu uliofanyika chini ya uangalizi wa taasisi ya Institut National de Recherche Biomédicale INRB Wizara ya Afya ya Congo pamoja na mashirika mengine matatu yanayojihusisha na utoaji wa huduma za afya Jumuia ya Kimataifa ya Masuala ya Afya ALIMA the International Medical Corps IMC na Médecins Sans Frontières MSF
 Raia wa Congo aliyehusika kwenye upatikanaji wa tiba ya Ebola 
-MuyembeTamfum amekuwa akifanya tafiti zinazohusiana na ugonjwa wa Ebola tangu kuripotiwa kwa ugonjwa huu kwa mara ya kwanza nchini Congo ambapo  mwaka 1976 alikuwa  mtafiti wa kwanza  kuzuru eneo ambalo ugonjwa wa Ebola uripotiwa kwa mara ya kwanza
-
-Nilitumia miongo minne ya maisha yangu kutafuta tiba kwa aajili ya kutibu ugonjwa wa Ebola
-Kwa hiyo haya ni mafanikio katika maisha yanguDr JeanJacques Muyembe ambaye ni Mkurugenzi Mkuu wa Institut National de Recherche Biomedicale ya Jamhuri ya Kidemokrasia ya Congo pamoja na wenzake wamegundua tiba mpya ya ugonjwa wa Ebola inayoweza kutibu dalili za ugonjwa huu katika muda wa masaa matatu tu
-Nilitumia miongo minne ya maisha yangu kutafuta tiba kwa aajili ya kutibu ugonjwa wa Ebola
-Kwa hiyo haya ni mafanikio katika maisha yanguDr JeanJacques Muyembe ambaye ni Mkurugenzi Mkuu wa Institut National de Recherche Biomedicale ya Jamhuri ya Kidemokrasia ya Congo pamoja na wenzake wamegundua tiba mpya ya ugonjwa wa Ebola inayoweza kutibu dalili za ugonjwa huu katika muda wa masaa matatu tu
-
+MuyembeTamfum amekuwa akifanya tafiti zinazohusiana na ugonjwa wa Ebola tangu kuripotiwa kwa ugonjwa huu kwa mara ya kwanza nchini Congo ambapo  mwaka 1976 alikuwa  mtafiti wa kwanza  kuzuru eneo ambalo ugonjwa wa Ebola uripotiwa kwa mara ya kwanza Nilitumia miongo minne ya maisha yangu kutafuta tiba kwa aajili ya kutibu ugonjwa wa Ebola
+Kwa hiyo haya ni mafanikio katika maisha yanguDr JeanJacques Muyembe ambaye ni Mkurugenzi Mkuu wa Institut National de Recherche Biomedicale ya Jamhuri ya Kidemokrasia ya Congo pamoja na wenzake wamegundua tiba mpya ya ugonjwa wa Ebola inayoweza kutibu dalili za ugonjwa huu katika muda wa masaa matatu tu Nilitumia miongo minne ya maisha yangu kutafuta tiba kwa aajili ya kutibu ugonjwa wa Ebola Kwa hiyo haya ni mafanikio katika maisha yanguDr JeanJacques Muyembe ambaye ni Mkurugenzi Mkuu wa Institut National de Recherche Biomedicale ya Jamhuri ya Kidemokrasia ya Congo pamoja na wenzake wamegundua tiba mpya ya ugonjwa wa Ebola inayoweza kutibu dalili za ugonjwa huu katika muda wa masaa matatu tu
 Rosebell Kagumire  RosebellK August 13 2019
 Profesa wa maikrobaolojia wa Chuo Kikuu cha Tiba cha Kinshasa Jamhuri ya Kidemokrasia ya Congo hadi sasa ametumia muda wa takribani miaka 40 kutafuta tiba ya ugonjwa huu
 Mwaka 1995 alifanya kazi na WHO kwa ajili ya utekelezaji wa mradi wa he worked with WHO in implementing  utambuzi mbinu za kukabiliana na ugonjwa huu mara baada ya kuripotiwa kwa mara ya kwanza wagonjwa wa Ebola katika mji wa Kikwit Jamhuri ya Kidemokrasia ya  Congo
@@ -1622,20 +1616,16 @@ Wagonjwa wa kwanza wa Ebola waripotiwa mwaka 1976 karibu na mto Ebola huko Jamhu
 Kwa mujibu wa Kituo cha Kuzuia na Kupambana na Magonjwa  CDC tangu wakati huo kirusi cha Ebola kimekuwa  kikiibuka mara kwa mara kutoka kwenye chanzo asilia ambacho hadi sasa hakijaweza kufahamika na kupelekea watu barani Afrika kuugua ugonjwa huu
 Matukio ya mlipuko wa ugonjwa wa Ebola tangu mwaka 1976
 Picha ya ramani kutoka katika Kituo cha Kupambana na Kuuzua Magojwal
-
 Kati ya mwaka 2014 na  2016 waliripotiwa zaidi ya watu  28600 walioambukizwa ugonjwa wa Ebola Afrika Magharibi
 Kwa mujibu wa repoti ya WHO ya mwaka 2015
 Mwaka 2014 Senegali ilikuwa na kisa kimoja cha maambukizi ya Ebola na bila ya kuripotiwa kifo chochote
-Nigeria recorded 20 cases with 8 deaths
 WHO ilitangaza kuwa hatua ya Nigeria ya kukabiliana na kirusi cha Ebola kama sehemu ya  ya kazi kubwa ya kukabiliana na ugonjwa hatari unaosambaa kwa haraka
 Mwezi Januari 2015 Mali iliripotiwa kuwa na wagonjwa 8 wa Ebola na vifo 6
-Hata hivyo hali ilikuwa mbaya sana kati ya mwezi Machi na Juni2016 katika nchi tatu Nchini Sierra Leone zaidi ya watu 14000 waliugua ugonjwa wa Ebola pamoja na vifo 4000 Liberia takribani watu 10000 waliugua Ebola na 3000 kupoteza maisha
-Guinea wangonjwa 3800 na vifo 2500
+Hata hivyo hali ilikuwa mbaya sana kati ya mwezi Machi na Juni2016 katika nchi tatu Nchini Sierra Leone zaidi ya watu 14000 waliugua ugonjwa wa Ebola pamoja na vifo 4000 Liberia takribani watu 10000 waliugua Ebola na 3000 kupoteza maisha Guinea wangonjwa 3800 na vifo 2500
 Maelezo ya jumla kuhusu ugonjwa wa Ebola Kimataifa 
 Ugonjwa wa Ebola ulioleta madhara makubwa katika nchi za Kiafrika ulizua taharuki na hofu mwaka 2015 pale wagonjwa wawili wa ebola waliporipotiwa kufariki nchini Marekani mmoja Hispania na mwingine Ujerumani
 GabyFleur Böl mtafiti katika Taasisi ya Tathmini ya Majanga ya jijini Berlin Germany  aliripoti  taarifa nyingine za wagonjwa wa Ebola katika nchi za Hispania Ujerumani Uingereza Italia na Switzerland
 Kwa wakati huo maambukizi ya Ebola yalichukuliwa kama hukumu ya kifo kutokana na ukosefu wa matibabu yenye tija
-
 Kama Böl alivyotangulia kusema kasi kubwa ya vifo vinavyotokana na ugonjwa wa Ebola na  na pia a wakati mwingine taarifa za upotoshaji kupitia vyombo vya habari kuhusu Ebola zilichangia kuibua hofu duniani kote
 Taarifa kama hizi zilichangiwa pia na 2017  utafiti ambao Hal Roberts Brittany Seymour Sands Alden Fish II Emily Robinson na Ethan Zuckerman  walichambua  Zaidi ya makala 109000 zilizochapishwa kwenye vyombo vikubwa vya habari na blogu nchini Marekani kati ya mwezi Julai na Novemba 2014 kiini cha uchambuzi kikiwa ni habari zilizohusu ugojwa wa Ebola
 Waligundua nyakati kuu tatu kuhusu habari za ugonjwa wa Ebola katika vyombo vikubwa vya habari na blogu nchini Marekani zilitokea Julai 27 Septemba 28 na  Octoba 15 mwaka 2014
@@ -1650,22 +1640,12 @@ Hata hivyo kinachosubiriwa ni kuona ikiwa taarifa za dawa ya kutibu ugonjwa wa E
 makala 37
 Erick Kabendera akitoa mafunzo kwa waandishi wa habari mwaka 2012 Dare s salaam
 Picha na Pernille Baerendtsen imetumika kwa ruhusa
-Tarehe 29 Julai askari kanzu 6 walimkamata kwa nguvu 
-Erick Kabendera nyumbani kwake jijini Dar es Salaam Tanzania na kumuweka mahabusu
-Polisi
-wanasema Kabendera amekaidi agizo la kujisalimisha mwenyewe kwa minajili ya kuchunguzwa juu ya uraia wake kama ni mTanzania
+Tarehe 29 Julai askari kanzu 6 walimkamata kwa nguvu Erick Kabendera nyumbani kwake jijini Dar es Salaam Tanzania na kumuweka mahabusu
+Polisi wanasema Kabendera amekaidi agizo la kujisalimisha mwenyewe kwa minajili ya kuchunguzwa juu ya uraia wake kama ni mTanzania
 Kwa wiki nzima iliyopita polisi walipekua nyumba ya kabendera mara mbili wakanyanganya hati yake ya kusafiria nyaraka zake nyingine binafsi na kuihoji familia yake
-Ilipofika tarehe 5 Agosti mamlaka zikabadili hoja Kabandera akashitakiwa kwa makosa ya utakatishaji wa fedha kukwepa kulipa kodi kiasi cha Dola za Kimarekani 75000 pamoja na kujihusisha na mtandao wa kiuhalifu
-Makosa haya ni kwa mujibu wa hati ya mashitaka waliyonayo Shirika la Kutetea Waandishi wa Habari CPJ
+Ilipofika tarehe 5 Agosti mamlaka zikabadili hoja Kabandera akashitakiwa kwa makosa ya utakatishaji wa fedha kukwepa kulipa kodi kiasi cha Dola za Kimarekani 75000 pamoja na kujihusisha na mtandao wa kiuhalifu Makosa haya ni kwa mujibu wa hati ya mashitaka waliyonayo Shirika la Kutetea Waandishi wa Habari CPJ
 Polisi wanasema Kabendera ametenda makosa haya kwa muda wa kipindi cha miaka minne sasa tangu mwaka 2015
 Kwa mashitaka yanayomkabili Kabendera anaweza kukumbwa na hukumu ya mpaka miaka 15 jela na haruhusiwi kupata dhamana
-Tanzanias Magufuli
-First they abduct a journalist when there is an outcry they claim he is not Tanzanian when that doesnt stick he is charged with organised crime and tax evasion
-People meet Erick Kabendera his crime is journalism
-FreeErickKabendera pic
-twitter
-combQ5D96lcPe
-Caroline Ariba CarolAriba August 5 2019
 Magufuli wa Tanzania
 Kwanza wamemteka mwandishi walipoona kelele zimekuwa nyingi wakadai sio mTanzania nalo limekosa mashiko sasa anashtakiwa kwa makosa ya mtandao wa kiuhalifu na kukwepa kulipa kodi
 Kutanana na Erick Kabendera Kosa lake ni kuwa mwandishi wa habari
@@ -1674,71 +1654,48 @@ Muwakilishi wa Taasisi ya Kuwatetea Waandishi wa Habari CPJ katika nchi za kusin
 Inaonekana kwamba kwa muda wote wa wiki iliyopita mamlaka zimekuwa zikitafuta namna ya kuthibitisha sababu za kumuweka kizuizini mwandishi huru huyu na mkosoaji
 Kwanza walidai walidai kwamba uraia wa Erick Kabendera hauleweki leo hii wameongeza mashtaka mengine tofauti kabisa ambayo yanafanya tujiuliza sababu ya nia ya wao kumshikilia
 Kama mwandishi wa habari Kabendera amekuwa akiukosoa utawala wa Rais John Magufuli na mara nyingi amekuwa akisimamia upande wa uhuru wa habari
-Ameripoti kwenye vyombo vya habari vya ndani na vya kimataifa kama vile The Guardian African Arguments na The East African
-kuhusu siasa za Tanzania na namna zinavyowagawa watu
-JJebra Kambole ambaye ni wakili wa Kabendera anasema malamka pia zilimshtumu Kabendera kwa kauli za uchochezi dhidi ya serikali kupitia makala yake iliyochapishwa kwenye gazeti la The Economist yenye kichwa cha habari kisemacho  John Magufuli anakandamiza uhuru wa habari Tanzania
-Hata hivyo mashtaka haya yaliondolewa baadae
+Ameripoti kwenye vyombo vya habari vya ndani na vya kimataifa kama vile The Guardian African Arguments na The East African kuhusu siasa za Tanzania na namna zinavyowagawa watu
+JJebra Kambole ambaye ni wakili wa Kabendera anasema malamka pia zilimshtumu Kabendera kwa kauli za uchochezi dhidi ya serikali kupitia makala yake iliyochapishwa kwenye gazeti la The Economist yenye kichwa cha habari kisemacho  John Magufuli anakandamiza uhuru wa habari Tanzania Hata hivyo mashtaka haya yaliondolewa baadae
 Habari zilizonifikia hivi punde mwandishi wa habari Erick Kabendera kushatakiwa kwa kauli za uchochezi dhidi ya serikali kutokana na makala iliyochapichwa kwenye gazeti la The economist isemayo  John Magufuli anakandamiza uhuru wa Habari Tanzania maelezo kutoka kwa Zebra Kambole yanasema kwamba Bwana Kabendera amenyimwa dhamana
-FreeErickKabendera pic
-twitter
-comISgABIgCH6
-Samira Sawlani samirasawlani August 2 2019
 Uraia umefanywa kama nyenzo ya kuwanyamazisha watu
 Familia ya kabendera inasema hii siyo mara ya kwanza serikali kuuliza kuhusu uraia wa kabendera
 Mwaka 2013 pia serikali ilimfungulia mashtaka yanayofanana na haya lakini kesi ilifutwa baadae hili ni kwa mujibu wa The Citizen
 Kabendera kwa wakati ule aliona kwamba mamlaka zilitaka kutumia suala la kuchunguza uraia wake kama namna ya kumnyamazisha
 Mwaka jana pia gazeti la The Citizen liliripoti kesi kadhaaa ambazo serikali ilitumia suala la kuhoji uraiakama chombo cha kunyamazisha ukosoaji nchini Tanzania
 Aidan Eyakuze mkurugenzi mtendaji wa Twaweza asasi ya kiraia waliojikita kwenye sauti za Wananchi  alisema mamlaka zimemnyanganya hati yake ya kusafiria na kukatazwa kusafiri wakati uchunguzi wa uraia wake ukiendelea
-Wiki mbili kabla ya tukio hilo Twaweza walitoa taarifa ya matokeo ya utafiti ulioitwa Kusema ukweli kwa wenye madaraka Maoni ya wananchi kwenye Siasa za Tanzania Tume ya sayansi na teknolojia Costech ilidai kwamba utafiti huo haukuwa na kibali na ikatishia kuchukua hatua za kisheria lakini baadaye kesi ilifutwa hii ni kwa mujibu wa makala hiyo hiyo ya gazeti la The Citizen
+Wiki mbili kabla ya tukio hilo Twaweza walitoa taarifa ya matokeo ya utafiti ulioitwa Kusema ukweli kwa wenye madaraka Maoni ya wananchi kwenye Siasa za Tanzania 
+Tume ya sayansi na teknolojia Costech ilidai kwamba utafiti huo haukuwa na kibali na ikatishia kuchukua hatua za kisheria lakini baadaye kesi ilifutwa hii ni kwa mujibu wa makala hiyo hiyo ya gazeti la The Citizen
 Katika miaka ya hivi karibuni Tanzania imeleta marekebisho mengi ya sheria zinazowalenga wablogu na vyombo vya habari  mashirika ya kiraia mashirika ya sanaa na utamaduni na pamoja na wanataaluma na watafiti hatua inayochukuliwa na wachunguzi wa mambo wanaoikosoa serikali kama jaribio la kudhibiti taarifa zinazosikika kutoka Tanzania na kuminya uhusu wa kujieleza na haki za kisiasa
 Soma zaidi  Je WanaBlogu wa Tanzania Wataridhia Kulipa au Watagomea Kodi ya Blogu 
-FreeErickKabendera
 Mamia ya waandishi wa habari wanaharakati za haki za binadamu viongozi walioguswa na wananchi wamejaa kwenye mitandao ya kijamii wakidiu kuachiwa kwa Kabendera
 AFEX Africa wanaita mashataka hayo kuwa ni makusudi ya wazi ya matumizi ya nguvu
 Ni siku tisa sasa na bado polisi Tanzania wanaendelea kumshiliia kizuizini mwandishi Erick Kabendera anayechunguzwa AFEXafrica wasema kuna haja ya kumalizwa kwa kitendo hiki cha matumizi ya wazi ya nguvu
-httpst
-co7UFZkzYzwV MRA_Nigeria FXISouthAfrica gmpressunion FreeErickKabendera NoImpunity
-AFEX AFEXafrica August 6 2019
 Kabendera ambaye mara nyingi amekuwa akiwafunza na kuwahamasisha waandishi wachanga amemfanya aliyewahi kuwa mwanafunzi wake kutuma ujumbe huu kutoka mtandao wa twita
-I have met Erick Kabendera once in my life and for a little less than 80 minutes
-He came as a guest Tutor to my class School of Journalism and Mass Communication UniofDar
-Despite the brief time he spent with us I learned a lot from him
-He truly inspired me 100K4Erick
-肯尼迪 Ole Mmari Snr
-KennedyMmari August 6 2019
 Nilikukutana na Erick Kabendera mara moja tu katika maisha yangu na kwa muda usiozidi dakika 80
 Alikuja kama mkufunzi aliyealikwa kuja kutufundisha shule ya uandishi wa habari na mawasiliano kwa umma UniofDar
 Lakini pamoja na kuwa nasi kwa muda mfupi nilijifunza mengi kutoka kwake
-Kwa kweli alinihamasisha sana 100K4Erick
 Mtumiaji mwingine wa mtandaoni aanafikiri kukamatwa kwa Kabendera na kubambikiwa makosa ni alama ya tahadhari kwa wananchi wengine
 SIMTETEI Kabendera Kwasababu Ni Mtanzania Au Sababu Ni Mwanahabari NAMTETEA Kwasababu Naishi Tanzania Anayoishi Erick
 Haki Isipotendeka Kwake Leo Na Nikanyamaza Inaweza Kesho Kutotendeka Kwangu VileVile
 Hakuna Aliye Salama Udhalimu Unapotawala 10k4Erick FreeErickKabendera pic
-twitter
-comfHX1K99Uzn
-LoveBites MasaiMudy August 6 2019
 
 makala 38
 Mimi na sisi Wote ni Ivan Golunov
 Bendera iliyotolwa na Meduza na kutumiwa kwa ruhusa
 Точка кипения Haya maelezo ya lugha ya Kirusi maana yake ni kiwango cha kuchemka kiwango ambacho kikifika inatosha inakuwa inatosha labda njia nzuri ni kuwasilisha namna idadi ya warusi walioguswa na kukamatwa kwa Ivan Golunov mwandishi mchunguzi maarufu inavyoongezeka
 Alikamatwa tarehe 6 Juni Moscow kwa kile kinachoonekana  mashitaka ya kusingiziwa  ya kujihusisha na kumilki madawa ya kulevya
-
 Golunov alikamatwa na kukataliwa kuonana na mwanasheria jambo ambalo ni kinyumecha sheria za Urusi
 Mwanasheria wake alithibitisha ana maumivu makali akiwa mahabusu 
 Baada ya kupelekwa hospitalini aliruhusiwa na kuwekwa kwanye nyumbe maalumu tarehe 8 Juni
-
 Mwanzoni Askari wa Urusi walionesha picha za maabara ya madawa ya kulevya zinazosadikiwa zilipigwa kwenye nyumba ya gorofa ya Golunov lakini baadaye picha hizo ziliondolewa
 Pia chombo cha habari cha proKremlin nchini Urusi leo  kimethibitisha kwamba picha zile hazikupigwa kwenye Gorofa za Golunov
 Mashtaka aliyozushiwa Golunov yanaweza kumpelekea kupewa kifungo cha miaka 10 hadi 20 gerezani
-
 Golunov mwenye maika 36 anafanya kazi  Meduza moja ya mitandao ya jamii michache ya kuijitegemea inayotumia lugha ya Kirusi iliyobaki Urusi
 Meduza ilisajiliwa katika nchi jirani ya Latvia lakini ina ofisi na waandishi wa habari wachache nchini Urusi 
 Golunov ameongoza kuchapisha uchunguzi wa matukio kadhaa ya rushwa yanayowahusisha viongozi wa ngazi za juu
 Tangu Golunov akamatwe Meduza imekuwa ikitoa makala za Golunov chini ya leseni ya creative commons na imehamasisha vyombo vya habari na watu binafsi  kuzichapisha tena habari hizo jambo ambalo limeungwa mkono kwa nguvu na Global Voices
 Miongoni mwa habari muhimu alizochapisha ni kuhusu makamu Meya Pyotr Biryukov alivyopitisha miradi kwa ajili ya familia yake  na namna mradi wa kuifanya moscow kuwa mji wa kuvutia ulivyokuwa na bajeti iliyozidi makadirio
 Habari aliyokuwa anashughulika nayo kabla hajakamatwa ilikuwa inahusu ukiritimba wa huduma za mazishi katika Moscow
-
 Kukamatwa kwa Golunov kumechochea kauli za mshikamano ambazo zilikuwa nadra miongoni mwa waandishi wa habari wanaharakati na wanasheria na hata waimbaji maarufu na watu maarufu nje ya Mscow na Petersburg Mtakatifu
 Tarehe 10 Juni magazeti matatu makuu yalikubaliana kuchapisha matoleo yanayomuunga mkono Golunov katika  kurasa za mbele
 Magazeti yaliuzwa na kuweka rekodi mpya
@@ -1746,20 +1703,15 @@ Katika hali isiyo ya kawaida vyombo vya habari vya proKremlin pamoja na Channel
 Tarehe 12 Juni  itakuwa ni  siku ya Urusi ambapo matembezi na maandamano  ya umma yaliyoruhusiwa na serikali za mitaa yatafanyika
 Kwa sheria za urusi maandamano ya umma yanahitaji ruhusa
 Watu wanaomuunga mkono Golunov wametangaza kuwa watakuwa na matembezi yao wenyewe bila ya kupata ruhusa rasmi
-
 Waangalizi wa Kremlin wanasema serikali ya Urusi inaangalia kuondoa mashtaka dhidi ya mwandishi wa habari huyo  kabla ya tarehe 20 Juni
 Siku ambayo Rais  Vladimir Putin ambaye viwango vyake vimeshuka katika historia  nchini atakuwa anaongea na  simu moja kwa moja  katika kipindi cha kuongea na umma kwa mwaka ambapo anapokea maswali kutoka kwa wananchi kwa simu na mitandao ya kijamii
 
 makala 39
 Mwandishi Mkenya Binyavanga Wainaina akiwa kwenye sherehe ya Kitabu Brooklyn mwaka 2009
 Wainaina aliyekuwa na miaka 48 alifariki Jumanne tarehe 22 Mei katika Mji wa Nairobi Kenya
-Picha na Nightscream CC  3
-0 na Wikimedia Commons
 Ni masaa 24 tu tangu  Binyavanga Wainaina Mwandish Mkenya kutoweka katika ulimwengu huu lakini uwepo na athari yake vinaendelea kurindima duniani kote
 Msema kweli mwandishi shoga muwazi  alilaumu mapatano na kutia changamoto serikali akichokoza kwa uandishi wa kimapinduzi ambao ungefungua mlango kwa maelfu ya waandishi wanaotamani kubadilika katika kuandika na kuelezea namna Afrika ilivyo
 Mwandishi mwalimu na mwanaharakati wa LGBTQ Binyavanga Wainaina mwenye umri wa miaka 48 alifariki siku ya Jumanne tarehe 22 Mei Nairobi Kenya baada ya kuugua kwa muda mfupi
-Todays got me thinking what will your life mean when its all over Binyavangas death has got me thinking about who I was about five or so years ago and also who he was to us as young enthusiastic Africans hungry for a different paradigm of our continent and our selves
-Fungai Machirori fungaijustbeing May 22 2019
 Leo nimefikiria Maisha yako yatakuwa na maana gani yanapoondoka Kifo cha Binyavanga kimenifanya nifikirie kuhusu nilivyokuwa miaka mitano au mingi iliyopita na pia alikuwaje kwetu kama kijana mwenye tashwishi shauku na njaa ya mabadiliko mbalimbali juu ya bara letu na kwetu pia
 Fungai Machirori fungaijustbeing May 22 2019
 Kwa dakika chache rafiki wafuasi  na mashabiki wake Wainanina walifurika kwenye mitandao ya kijamii wakibadilishana kumbukumbu na shukrani na kujadili maandiko yake mengi yenye mvuto sana
@@ -1782,14 +1734,10 @@ Wainaina alikuwa mtoto wa kiume wa baba mkenya na mama mganda aliendelea kuhoji 
 Ikiwa na taarifa kemkem iliwavutia wasomaji kuanzia utoto wake katika miaka ya 1970 akiwa Kenya na kipindi akiwa mwanafunzi huko Afrika ya Kusini ambapo alikaa miaka mingi akiwa uhamishoni
 Ukosoaji ulisifia kitabu hicho kama halisi na kweli lakini baadaye Wainaina alikiri kuwa alikuwa amesahau sura muhimu  upendo wa maisha yake
 Mama mimi ni shoga Wainaina alikuwa mkenya wa kwanza mwenye hadhi ya juu na kuwa muwazi kwa kutamka kwenye mitandao ya kijamii na kuamsha maoni lundo kutoka kwa jamii
-Ikaonekana ni sura iliyopotea katika kumbukumbu ya maisha yake
-Wainaina aliona aseme kuwa yeye ni shoga kwa mama yake alikuwa anakaribia kufa
+Ikaonekana ni sura iliyopotea katika kumbukumbu ya maisha yake Wainaina aliona aseme kuwa yeye ni shoga kwa mama yake alikuwa anakaribia kufa
 Makala yake ilifika kwa muda muafaka kama kampeni dhidi ya mkutano mkubwa wa kupambana na ushoga na sheria dhidi ya ushoga ilikuwa imependekezwa nchini Uganda na baadae Tanzania ambapo vitendo vya ushoga ni jinai
 Soma zaidi Msimamo wa Tanzania kuhusu ushoga kuzima agenda ya kisiasa
 Hata hivyo tofauti na waandishi wengine waliokuwa uhamishoni  Wainaina alirudi nyumbani kama Nanjala Nyabola anavyoelezea BBC kupitia Twitter anasema hiyo ilikuwa muhimu
-For those of us who grew up with the best Kenyan writers whatever that means living in exile jailed and persecuted or poor and under appreciated or censored heavily he came back and that was major
-He was a complex man but I think for this he deserves endless gratitude
-Nanjala Nyabola Nanjala1 May 22 2019
 Kwa wale miongoni mwetu ambao walikua pamoja na  waandishi maarufu wa kikenya wanaoishi uhamishoni waliotiwa gerezani maskini au wasiopongezwa au kukataliwa vibaya mno yeye alirudi nyumbani na hilo lilikuwa jambo muhimu sana 
 Alikuwa mtu asiyeleweka lakini kwa hili anastahili shukrani daima
 Tunatakiwa kusema fikra zetu
@@ -1809,24 +1757,13 @@ Wakati alitikisa bila huruma mikataba ya kijamii Kenya   alivyojitokeza hadhara
 Wainaina alikuwa mtu  mtata ambaye alipambana akiwa na msongo na mara nyingi alipigana sana kutokana na  kuwa mtu mashuhuri shoga lilionekana ni jukumu lake tata katika jamii kama mtu wa watu
 Alikuwa na mashabiki lakini alikumbana na ukosoaji kutoka kwa mwandishi mashuhuri Shailja Patel ambaye alimshtumu Wainaina kuwa mtu mwenye sumu ya kuwachukia watu wa jinsia moja wenye mahusiano ya kimapenzi
 Mtumiaji wa Twitter Néo Músangi anasimulia mapungufu ys tabia ya Wainaina katika ujumbe wake kupitia Twitter
-i do not have sufficient energy to engage now but i am grieving binya as the dearest of my friends
-in all my queerness and feministing
-i  am eternally sorry that he hurt others
-i am sorry that he humaned in those ways
-he would hate us sanitising him
-httpst
-coB5524fwBeh
-néo músangi SinoxoloMusangi May 22 2019
 Sina nguvu za kutosha lakini ninamlilia Binya kama rafiki yangu kipenzi katika ugeni na utetezi wangu
 Ninasikitika sana kwamba aliumiza wengine
 Ninasikitika kwamba alikosea kama binadamu angetuchukia tukimsafisha
 Mwandishi Bwesigye Mwsigire mkurugenzi wa Writivism Festival nchini Uganda pia  alielezea mkanganyiko huu   kupitia Facebook
 mtindo wake wa maisha ilikuwa ni tatizo
-His style was a transgression
-Nzuri na kuachia makosa Beautiful and freeing transgression
 Watu tunaoshikilia kwa sababu ya kazi na mawazo yao ni watu tu
-The people we obsess over because of their work and ideas are people after all
-Ni binadamu They are human
+Ni binadamu
 Tupo tayari kuwapenda katika changamoto zao Are we ever ready to love them in their complexity
 Kwa sasa mengi yamezungumzwa juu yake
 hakuna haja ya kurudia yaliyosemwa
@@ -1835,31 +1772,14 @@ Hii aiondoi maumivu mtu anayoyasikia kwa kifo chake
 Kuna Binyavanga Wainaina mmoja tu
 Ni mhenga kwa sasa
 Tusherehekee maisha yake
-
 Kipaji cha udadisi
 A queer icon Binya  kama alivyokuwa akijulikana sana   often received torrents of vitriolic antigay rhetoric that only spiked online as the news of his death spread across various channels
 Mwanaharakati Mkenya Boniface Mwangi atuma ujumbe kupitia Twitter baada ya kutuma ujumbe wa kusifia Wainaina kupitia Facebook chuki na maoni ya ushoga zilifuata ujumbe wake
-that after writing a Facebook tribute to Wainaina hateful homophobic comments derailed his message  Wainaina alikuwa mtu mwenye kipaji cha udadisi ambaye inapaswa akumbukwe
-I did a very short Facebook post on RIPBinyavanga and the comments httpst
-coyZ3MoWBnD7 are the vilest l have ever read
-Even the thieves who steal our taxes and kill people dont get as much hate
-Truth is Binya was a creative genius and he will be read and be remembered
-pic
-twitter
-comdmuMQKVw2c
-Boniface Mwangi bonifacemwangi May 22 2019
 Nilituma ujumbe mfupi kupitia Facebook juu ya kifo cha Binyavanga RIPBinyavanga kulikuwa na maoni mabaya na aibu sana sijawahi kusoma
 Hata wezi ambao hutuibia kodi na kuua watu hawapati chuki kubwa kama ile
 Ukweli ni Binya alikuwa na akili na kipaji cha udadisi na ataendelea kusomwa na kukumbukwa
 Mganda ambaye ni mtetezi wa haki za akina mama na mwandishi Rosebell Kagumire alitonesha kile alichojifunza kutoka kwa ushupavu wa Wainaina wa kusema wazi
 Do not allow the fear
-Dont limit yourself
-Do speak that which needs to be said
-Better yet write it down
-Live your truth and with your heart
-That when you finally finally breathe your last there will be millions of words you brought so much meaning into
-RIPBinyavanga
-Rosebell Kagumire  RosebellK May 22 2019
 Msiruhusu woga
 Msijizuie ninyi wenyewe
 Ongeeni kile kinachohitajika kusemwa
@@ -1875,19 +1795,8 @@ Siku moja nitaandika juu ya kukataa kwako
 Leo naandika asante
 Mkenya Yvonne Adhiambo Owuor ambaye ni mwandishi wa habari na mwandishi wa Dust na kwa kweli rafiki wa Wainaina anahitimisha kwa maombolezo ya mwisho
 Nani alikuambia uondoke kutoka kwenye mwili wako usiku bila kuacha anuani mpya
-Face tilted eyes piercing he said You have exactly 3 seconds to reorganise this crap
-You there
-You Who told you you could leave Sneak out of your body at night without leaving a new address To whom does one now go in fear and trembling with first draft manuscripts pic
-twitter
-comDSawF6KGhY
-Yvonne Adhiambo Owuor AdhiamboKE May 22 2019
-Uso umeinama macho yanachoma alisema
-Una sekunde 3 tu za kurekebisha manunguniko wewe kule
-Wewe nani alikuambia uondoke Kutoka mwilini mwako bila kuacha anuani mpya Ni kwa nani mtu anaweza kwenda kwa hofu na kutetemeka akiwa maandishi ya kujaribia
-Sasa yeye ni miongoni mwa watu mashuhuri unaweza kuungana na sayari ya Binya ukiwa na kumbukumb kubwa ya kazi yake
-Sina nguvu za kutosha lakini ninamlilia Binya kama rafiki yangu mpendwa katika ugeni na utetezi wangu
-Ninasikitika sana kwamba aliumiza wengine
-Ninasikitika kwamba alikosea kama binadamu angetuchukia tukimsafisha
+Uso umeinama macho yanachoma alisema Una sekunde 3 tu za kurekebisha manunguniko wewe kule
+Wewe nani alikuambia uondoke Kutoka mwilini mwako bila kuacha anuani mpya Ni kwa nani mtu anaweza kwenda kwa hofu na kutetemeka akiwa maandishi ya kujaribia Sasa yeye ni miongoni mwa watu mashuhuri unaweza kuungana na sayari ya Binya ukiwa na kumbukumb kubwa ya kazi yake Sina nguvu za kutosha lakini ninamlilia Binya kama rafiki yangu mpendwa katika ugeni na utetezi wangu Ninasikitika sana kwamba aliumiza wengine Ninasikitika kwamba alikosea kama binadamu angetuchukia tukimsafisha
 
 makala 40
 Ukurasa wa mbele wa gazeti la de Angola kuhusu zabuni iliyoshinda ya kampuni ya Telstar
@@ -1902,28 +1811,17 @@ Baada ya matokeo ya zabuni ya kwanza kuwekwa wazi kwa umma wananchi wengi wa Ang
 Wengine walikwenda mbali kwa kusema kwamba mshindi Telstar hajawahi kuwa na tovuti haya yalisemwa na Skit Van Darken mhariri na muongozaji wa vipindi kupitia Facebook
 A Telstar  Telecomunicações Lda constituída a 26 de Janeiro de 2018 com capital de 200
 000 Kwanzasde acordo com o Diário da República cujos accionistas são o general Manuel João Carneiro 90 do capital na reforma e António Cardoso Mateus 10
-O accionista maioritário tem ligações à empresa Mundo Startel uma sociedade de capitais anónimos registada na INACOM o regulador das telecomunicações com licença de telefonia fixa entretanto expirada
-Uma empresa que nem se quer website tem
-EU NÃO ACREDITO SE QUER QUE EXISTIRAM OUTROS CONCORRENTES
-ESSE PAÍS É UMA DESGRAÇA
 Tafsiri Telstar  Telecommunications Ltd ilianzishwa tarehe 26 Januari 2018 na mtaji wa Kwanza 200000 kutokana na gazeti la Diário da República ambalo wadau wake ni  the general Manuel João Carneiro asilimia 90 na  António Cardoso Mateus asilimia 10
 Mshikadau mkubwa ana uhusiano na kampuni ya Mundo Startel kampuni yenye dhima inayojitosheleza iliyosajiliwa INACOM mdhibiti wa mawasiliano akiwa na leseni ingawa imeshapita muda wake
 kampuni ambayo haina hata tovuti
 SIAMINI HATA KIDOGO KWAMBA KULIKUWA NA WASHINDANI WENGINE
 NCHI HII NI AiBU
 kwa sasa Joaquim Lunda mwandishi wa habari na mtangazaji wa mara kwa mara katika mitandao ya kijamii alisifia kitendo cha Rais na hata nilifikilia kuwa waziri mhusika alikimbia hatari ya kufukuzwa kwa kushindwa huku
-Agradeço e é de louvar a decisão tomada pelo Presidente da República João Lourenço em anular o concurso público que atribuiu à empresa angolana Telstar a licença para a quarta operadora de telecomunicações em Angola
-Havia muitas reticências e muitos pontos por esclarecer no assunto
-Não se reconhece idoneidade numa empresa que foi criada em 2018 c capital social de 200 mil kwanzas em ser lhe atribuído a tal empreitada
-Tenho a plena certeza que os dias do Ministro das Telecomunicações e das Tecnologias de Informação José Carvalho de Rocha estão contados
-Após o desaire que foi o ANGOSAT 1 agora mais este que testemunhamos hoje duvido se o Dread vai resistir
-Apreciemos os CenáriosNas Calmas
 Tafsiri Ninshukuru na ni kitendo cha kupongezwa maamuzi yaliyochukuliwa na Rais wa Jamhuri João Lourenço kufuta zabuni ya serikali ambayo kampuni ya Angola ya Telstar ilishinda leseni ya kuwa mwendeshaji wa mawasiliano katika Angola the licence for the fourth telecommunications operator in Angola
 kulikuwa na watu wengi kutoridhishwa na mambo mengi ya muhimu ya kuweka wazi mazuiyoThere were many reservations and a lot of points to clarify around the issue
 Mtu haoni tija katika kampuni ambayo iliundwa mwaka 2018 na mtaji wa Kwanza elfu 200 kupewa tuzo ya zabuni
 Nina uhakika kabisa kuwa siku za waziri wa mawasiliano na teknolojia ya habari zinahesabika
 Baada ya kushindwa na  ANGOSAT 1 sasa na hiki tunachoshuhudia leo nina wasiwasi kama Hofu kama itafanya lolote
-
 Tufurahie mchezo huo kimya kimya
 Uamuzi wa Rais ulikuja baada waziri yule yule aliyeongoza mwaka 2017 mradi wa setilaiti Angosat 1   anaingia kwenye matatizo   tena
 Adriano Sapiñala makamu wa chama kikuu cha upinzani yeye anaona tatizo linaonesha mfarakano katika serikali
