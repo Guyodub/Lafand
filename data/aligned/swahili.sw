@@ -1312,10 +1312,6 @@ Hivi leo kuna zaidi ya lugha 7100 zinazozungumzwa kote dunianiasilimia 28 yazo z
 Licha ya hili Kiingereza kinaongoza mtandaoni katika eneo hili
 Miaka ishirini iliyopita asilimia 80 ya maudhui ya dunia mtandaoni yalikuwa yanaegemea Kiingereza
 Kwa sasa hata hivyo maudhui ya Kiingereza yanasemekana kupungua hadi kiwango cha kati ya asilimia 51 hadi 55
-44 English
-Can we argue that more people are yearning to get online in their local languages And is it true that 17 M people worldwide have no reason to get online httpst
-coowzk24xch4
-GV SSAfrica gvssafrica May 19 2020
 Swala kizushi kwa hivyo ni je kupungua huku kunaashiria kuwa sasa watu wanapendelea lugha zao za asilia kuliko Kiingereza ukizingatia kuwa ni chini ya asilimia 15 tu ya idadi ya watu duniani inayozungumza Kiingereza kama lugha yao ya kwanza
 Kiswahili Ujio wa Uzao
 Kiswahili kinatambuliwa kama mojawapo wa lugha rasmi za Umoja wa Afrika AU kando na Kiiengereza Kireno Kifaransa Kihispania na Kiarabu
@@ -1334,14 +1330,8 @@ Licha ya kuwa lugha ya Kiafrika inayozungumzwa sana na takribani watu milioni 15
 John Walubengo mhadhiri wa Chuo Kikuu cha Multimedia cha Kenya anachanganua kwenye makala yake katika Nation jarida la kila siku nchini Kenya kuwa ukosefu wa lugha na utamaduni mtandaoni unaunda jamii yenye mtazamo mdogo wa dunia
 Walubengo anaelezea kuwa tamaduni nyingi za kiasili huishia kusalimisha utambulisho wao kwa hali za Kiingereza za ufanyaji mambo
 Ukweli huu wa kusikitisha hata hivyo unaweza kubadilishwa tu iwapo jamii asilia zitapigania kuhifadhi utambulisho wao mtandaoni na vile vile nje ya mtandao anasema
-Join our cofounder for a Tweetchat on identity language and digital rights in Africa starting tomorrow
-For Swahili visit httpst
-copjjxAsMAva httpst
-copvHOpbxi6x
-Centre for Youth Empowerment and Leadership CYEL cyelke May 17 2020
 Hata hivyo yote si ya kutamausha
 Kuna mashirika kadhaa yaliyojitolea katika mstari wa mbele kuendeleza na kukuza Kiswahili mtandaoni
-The Internet Corporation for Assigned Names and Numbers
 ICANN  shirika la kimataifa lenye wadau wengi linaloratibu Mfumo wa Majina ya MtandaoDNS Anwani za Mtandao IP na nambari za mfumo huru lilianzisha Majina ya Kikoa ya Kimataifa IDNs yanayowezesha watu kutumia majina ya kikoa katika lugha na maandishi ya kiasili
 Kiuhakika huundwa kwa kutumia herufi kutoka maandishi tofauti kama vile Kiarabu Kichina au Kisiriliki
 Herufi hizi kisha husimbwa na kiwango cha Unicode na kutumiwa kama inavyoruhusiwa na vikoa vya IDN seti ya viwango vilivyoainishwa na Bodi ya Usanifu wa Mtandao IAB na vikundi vyake vya kampuni ndogo Tume ya Kazi ya Uhandisi wa Mtandao IETF na Tume ya Utafiti wa Mtandao IRTF
@@ -1370,7 +1360,8 @@ Hivyo ni muhimu kuweka mikakati itakayoendeleza utengenezaji wa programu za TEHA
 Hatua hii ikihimiliwa na juhudi zenginezo kama vile ujanibishaji wa vifaa vya kufunzia na kujifunzia na mipango ya kusoma na kuandika ya TEHAMA vijijini inaweza kuchochea mapinduzi ya kidijitali na hivyo basi kukuza haki za kidijitali za watumizi wa mtandao na kuziba pengo la mgawanyiko wa kidijitali
 Hatimaye mchakato huu utaharakisha ulindwaji uheshimiwaji na ukuzaji lugha zote za Kiafrika na lugha zingenezo ndogo mtandaoni kama inavyoafikiwa katika kanuni za Azimio la Afrika la Haki za mtandao na Uhuru
 Mradi wa Mantiki Utambulisho umefadhiliwa na Mfuko wa Haki za Kidijitali Afrika  unaoendeshwa na shirika la Ushirikiano wa Sera za kimataifa za TEHAMA kwa ajili ya Afrika ya Mashariki na Kusini CIPESA
-makala 33
+
+makala 32
 Chumba cha Intaneti cha TEDGlobal
 Picha ya Creative Commons ya mtumiaji wa Flickr Erik HASH Hersman Juni 3 2007
 CC BY 2
@@ -1380,7 +1371,6 @@ Soma zaidi MatrikiUtambulisho Mrandi mpya wa kukuza haki za kidigitali barani A
 Kama mwendelezo wa Uandishi wa Kuelekea kwenye Uhuru Siasa na haki za kidijitali barani Afrika  kampeni hii ya wiki tano ya mtandao wa kijamii kuhamasisha jamii itashirikisha mjadala ulioandaliwa na GVSSAfrica ukiwashirikisha wanaharakati wa lugha tano za Kiafrika ambao wataangazia uwiano wa lugha na haki za kidijitali
 Mradi huu umefadhiliwa na Mfuko wa Haki za Kidijitali Afrika  unaoendeshwa na Ushirikiano wa Sera za kimataifa za TEHAMA kwa ajili ya Afrika ya Mashariki na Kusini CIPESA
 Global Voices ni mmoja wapo wa wanufaika wa ufadhili huo
-
 Wanaharakati hao watatwiti kwa lugha za kiAfrika kama vile kiBambara kiIgbo kiKhoekhoe kiNuu kiSwahili kiYorùbá sambamba na kiFaransa na kiIngereza
 Pia wataweza kutushirikisha uzoefu na uelewa wao binafsi kwa mtazamo wa lugha kuhusu changamoto zinazotishia haki za kidijitali
 Mazungumzo hayo yatahoji namna gani tishio la kutoegemea upande wowote mtandaoni linavyoathiri maudhui ya mtandaoni kwenye lugha za Kiafrika uenezaji wa taarifa potovu katika lugha za Kiafrika kwenye lugha tofauti mtandaoni na kile kinachofanywa na makampuni au mashirika ya kijamii kuhusiana na hili athari za ukosekanaji wa mtandao wa bei nafuu katika maeneo yaliyo na jamii kubwa za wazungumzaji wa lugha ya Kiafrika umuhimu wa na changamoto za haki ya kupata taarifa katika lugha za kidijitali a Kiafrika
@@ -1406,7 +1396,6 @@ Wamali wanakiita Kibambara Waguinea wanakiita Kimalinke wengine wanakiita Kimand
 Mei 58 Blossom Ozurumba blossomozurumba
 Blossom Ozurumba
 Picha imetumiwa kwa ruhusa
-
 Ozurumba pia anajulikana kama Asampete jina ambalo linaweza kutafsiriwa kutoka kwa lugha ya Kiigbo kumaanisha yule mzuri
 Ozurumba anafurahishwa na lugha na utamaduni ya Kiigbo na amejitolea kuhakikisha kuwa watu kadhaa wanajifunza kwa kiasi fulani kuzungumza kuandika na kusoma
 Ozurumba ni mwanzilishi wa kundi la kiigbo la watumiaji wa Wikimedia na mara kwa mara huenda akaanzisha mazungumzo kuhusu Wikimedia Foundation bila kushinikizwa
@@ -1414,24 +1403,22 @@ Anaishi jijini Abuja Naijeria na anapenda utulivu na hisia ya mwendo wa aste ast
 Mei 1115 Ọmọ Yoòbá yobamoodua
 Adéṣínà Ayẹni
 Picha imetumiwa kwa ruhusa
-Adéṣínà Ayẹni ambaye pia anajulikana kama Ọmọ Yoòbá ni mwandishi wa habari na mwanaharati wa utamaduni ambaye anatumia kazi yake ya uanahabari kuendeleza
-utunzaji na usambazaji wa urithi wa utamaduni wa Kiyorùbá mtandaoni na nje ya mtandao
+Adéṣínà Ayẹni ambaye pia anajulikana kama Ọmọ Yoòbá ni mwandishi wa habari na mwanaharati wa utamaduni ambaye anatumia kazi yake ya uanahabari kuendeleza utunzaji na usambazaji wa urithi wa utamaduni wa Kiyorùbá mtandaoni na nje ya mtandao 
 Kama msanii wa sauti ametayarisha matangazo mengi ya Kiyorùbá ya kampeni za redio za Naijeria na TVC
 Yeye ndiye mwanzilishi wa Urithi wa Utamaduni wa Yobamoodua jukwaa lililojitolea kueneza lugha na utamaduni wa Kiyorùbá
-Ọmọ Yoòbá pia ni meneja wa lugha wa tovuti ya
-Global Voices Yorùbá
+Ọmọ Yoòbá pia ni meneja wa lugha wa tovuti ya Global Voices Yorùbá
 Yeye ni mwalimu wa lugha ya Kiyorùbá katika tribalingua
 com ambako anafunza wanafunzi kutoka sehemu mbali mbali duniani
 Pia amefanya kazi na Localization Lab jamii ya kimataifa ya watafsiri wa kujitolea na watumiaji mtandao watengenezaji programu za kompyuta na wapatanishaji ambao wanafanya kazi kwa pamoja kutafsiri na kubinafsisha vifaa vya usalama vya kidijitali na ala za kukwepa ufungiwaji au uzimwaji mtandao
 Ọmọ Yoòbá ameandika kitabu kiitwacho Ẹyà Ara Ẹdá Ọmọ Ènìyàn mkusanyiko wa michoro yenye majina ya anatomia na muundo wa mwili wa binadamu na mimea ambayo hufanya kazi ya kushangaza kwenye kila sehemu ya mwili
 Yeye ni mshiriki wa utafiti katika shirika la Firebird Foundation for Anthropological Research
-May 1822 Bonface Witaba bswitaba
 Bonface Witaba
 Picha imetumika kwa ruhusa
 Witaba mwandishi mtengenezaji maudhui ya asilia na mwanaharakati mkufunzi mtafiti na mshauri wa masuala ya utawala wa mtandao na sera
 Yeye ni mwanzilishi wa ICANNWiki Swahili tovuti kamusi yenye dhamira ni kukuza kutafsiri makala na misamiati 10000 ya utawala wa mtandao hadi lugha ya Kiswahili kwa wazungumzaji milioni 150 wa Kiswahili ifikiapo 2020
 Vile vile Witaba anaendesha mradi wa vijana unaolenga kujenga uwezo wa wanafunzi wasomi na watu binafsi kwenye sekta ya kibinafsi na serikalini kupitia kozi za kitaalamu kuhusu utawala wa mtandao
-makala 34
+
+makala 33
 Waandamanaji wakishinikiza kuondolewa kwa aliyekuwa rais Robert Mugabe ambaye sasa ni marehemu kutoka madarakani mnamo Novemba 18 2017
 Picha na mtumiaji wa Flickr Zimbabweaneyes Huru kutumika
 Mapema asubuhi ya Novemba 15 2017 raia wa Zimbabwe waliamka na habari zilizoenea kwamba aliyekuwa mbabe marehemu Robert Mugabe alikuwa amengolewa madarakani katika mapinduzi ya serikali na alikuwa nguvuni kwenye makazi yake Ikulu pamoja na familia yake
@@ -1484,7 +1471,8 @@ Vita vya msituni au vita vya Pili vya Chimurenga havijawahi kumalizika kabisa nc
 Leo hii Mnangagwa anaendeleza urithi huu kukandamiza sauti za wakosoaji kupitia mbinu za taarifa potovu mtandaoni na uzimaji wa mtandao
 Makala haya ni sehemu ya mfululizo wa machapisho yanayochunguza kuingiliwa kwa haki za dijitali kupitia mbinu kama vile ufungwaji wa mtandao wa intaneti na upotoshaji habari wakati wa matukio muhimu ya kisiasa katika nchi saba za Afrika Algeria Ethiopia Msumbiji Nigeria Tunisia Uganda na Zimbabwe
 Mradi huu unafadhiliwa na Mfuko wa  Africa Digital Rights Fund wa The Collaboration on International ICT Policy for East and Southern Africa CIPESA
-makala 35
+
+makala 34
 Waandamanaji wakishiriki Maandamano ya Wanawake ya Juni 2018 jijini Kampala Uganda
 Picha na Katumba Badru imetumiwa kwa ruhusa
 Nchini Uganda mtandao umekuwa uga wa makabiliano pale serikali inapojaribu kunyamazisha sauti ya upinzani inayozidi kukua mtandaoni
