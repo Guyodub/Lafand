@@ -19,11 +19,9 @@ def check_discrepancy(en_file, sw_file):
     
     line = []
     length = len(sw_file)
-    print(length)
+    
     for i in range(0,length):
-        #print(en_file[i])
-        print(en_file[i])
-        print(i)
+                
         if (en_file[i][0].isdigit()):  
             if (not sw_file[i][0].isdigit()):
                 print(i)
