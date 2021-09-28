@@ -3206,7 +3206,8 @@ Ushindi mdogo Kutokana na kampeni iliyofanywa na wanaharakati wa haki za binadam
 ratiba ya Bunge hatua inayofuata nikuondolewa kwa rasimu ya sharia kwa pamoja
 Tarehe 14 Machi 2019
 Haijaeleweka vizuri kama Bunge litaufanyia marekebisho mswada huo au kuupanga tena ili ujadiliwe
-makala 70
+
+Makala 70
 Hapana kwa udikteta na wala rushwa mchoro na Tibyan Albasha
 Umetumika kwa ruhusa
 Tangu Disemba 2018 maandamano yaliyoanza kwa sababu ya ongezeko la bei ya mkate yamekuwa ya kitaifa yakiupinga uongozi wa Omar Al Bashir uliodumu karibu miongo mitatu
