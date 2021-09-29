@@ -2672,10 +2672,8 @@ Picha kupitia Nasser Weddady akiwa anawasiliana kupitia Twitter
 Mamlaka za Mauritania ziliwakamata  mabloga wawili Abderrahmane Weddady na Cheikh Ould Jiddou kwa kutoa taarifa juu ya Rushwa
 Weddady  na Jiddou walikamatwa tarehe 22 Machi baada ya kuitika wito wa kuitwa na kitengo cha makosa ya kiuchumi cha Mauritania
 Wote walichunguza na kutoa taarifa kuhusu tuhuma kuwa Rais wa nchi Mohamed Ould Abdel Aziz anajihusisha na rushwa
-
 Kabla ya kukamatwa kwao  wote waliandika kupitia Facebook kuhusu tuhuma za Dolla za Kimarekani bilioni 2 zinzomhusu Ould Abdel Aziz katika akaunti yake iliyopo Dubai
 Kutokana na  taarifa ya chombo cha habari mamlaka ya Falme za Kiarabu zilisimamisha akaunti yake kutokana na maombi ya idara ya Fedha ya Marekani katika mapambano dhidi ya kutakatisha fedha
-
 Weddady aliandikakwenye ukurasa wake wa Facebook kuwa askari polisi walimhoji kuhusu chanzo chake na kwa nini hakusubiri serikali kuchunguza suala hilo
 Alijibu kwamba kufungiwa kwa akaunti kuliripotiwa mtandaoni na chombo cha habari cha nje na kwamba  hana imani juu ya uchunguzi makini juu maovu yanayomhusisha Rais na wale wanaomzunguka
 Mwanzoni mwa mwezi Machi mabloga wote waliitwa na kuhojiwa na kitengo cha makosa ya kiuchumi juu ya taarifa yao dhidi ya rasilimali zinazotuhumiwa
@@ -2684,7 +2682,6 @@ Pia tarehe 22 Machi askari polisi waliwakamata watu hao wawili baada ya ofisi ya
 Mabloga hao wawili wapo kizimbani wakishitakiwa kwa kusambaza shutuma za uongo dhidi ya Ould Abdel Aziz chini ya kifungu cha 348 cha sheria katika kanuni za adhabu za Mauritania
 Wanakabiliwa na kifungo kuanzia miezi sita hadi miaka mitano jela kila mmoja
 Wanaendelea kuwa jela wakisubiri kutajwa kwa kesi yao
-
 Katika mahojiano na Global Voices kupitia WhatsApp Nasser Wedaddy kaka yake na Abderrahmane Weddady na mjumbe mmoja wa jumuia ya Global Voices alisema waendesha mashtaka wameshindwa kuonesha Ushahidi halisi  dhidi ya Abderrahmane na Ould Jiddou
 Pia alieleza kuwa mwanasheria wao amegundua hakuna kesi yoyote dhidi yao Alisema
 Muendesha mashtaka alidai kuwa ushahidi ulipotea
@@ -2710,11 +2707,9 @@ Kwa sasa anatumia miaka 11 jera
 Mwezi Novemba 2014 Baraza la usalama wa Taifa la Mahakama kuu ya shirikisho ambalo maamuzi yake hayawezi kukatiwa rufaa lilimuhukumu  Osama miaka mitatu jera kwa kutumia sheria ya nchi ya makossa ya mtandaoni kwa mashtaka ambayo yalijumuisha kuchochea chukidhidi ya taifa kwa kuandaa na kuendesha tovuti yenye fikra na habari za dhihaka na kukashifu
 Alitakiwa kuachiwa tarehe 17 mwezi Machi 2017 lakini kwa takwa la kushtakiwa na umma Mahakama ilimuona kuwa ni tiishio kwa usalama wa Taifa na iliongeza kizuizi chake bila kuthibitisha kitachukua muda gani
 Miaka miwili baadaye Osama ameendelea kuzuiliwa bila kuwepo mwisho wa kizuizi chake
-
 Taasisi ya kimataifa ya kutetea uhuru na mageuzi ya kisiasa katika Falme za Kiarabu hivi karibuni katika taarifa yake ya kuadhimisha kumbukumbu ya mwisho wa kifungo cha Osama rasmi  ilisema 
 Kwa kuwa hakuna shauri linaloendelea juu ya kizuizi hiki wale wote wenye tatizo hili ni bora wakamatwe na serikali badala mahakama kutoa adhabu
 Aina hii ya uendeshaji wa kutoa kizuizi unakiuka viwango vya kimataifa vya mchakato wa utoaji vizuizi
-
 Ingawa hakutiwa hatiani kwa makosa ya ugaidi Osama anaendelea kushikiliwa kituo cha kutoa ushauri nasaha katika gereza la alRazeen kwa sheria ya nchi ya kupambana na ugaidi
 Mamalaka za Falme za Kiarabu zinadai  kwamba madhumuni ya maamuzi hayo ni kutoa uangalizi kwa wale ambao wanaonekana ni tiishio dhidi ya Taifa
 Hata hivyo vikundi vya haki za binadamu vinasema kwamba mamlaka zinatumia sheria ya kupambana na ugaidi na hizi zinazoitwa vituo vya kutoa ushauri nasaha kama kisingizio cha kuendeleza vizuizi visivyokuwa na muda usiojulikana kwa wafungwa waliofungwa kwa kutoa maoni
@@ -2731,18 +2726,15 @@ Wasichana wenye umri wa miaka 15 hadi 17 kama watapatikana na hatia wanaweza kuf
 Gazeti la Iwacu lilitaarifu kuwa familia za Watoto waliokamatwa walikuwa na huzuni sana
 Kuchorachora kwenye picha ya Rais ni kosa linalostahili adhabu kwa sheria ya Burundi kutokana na ripoti ya Reuters
 Hata hivyo umri wa mtenda kosa unaweza kutumika kama  jambo la kuzuiakatika kesi hii ya wanafunzi
-Mwalimu ambaye hakutaka jina lake kutajwa 
-Alibainisha kuwa vitabu hivyo  vya kiada vilikuwa havijakaguliwa kwa miaka kadhaa na mara kwa mara vimekuwa vikitumiwa na wanafunzi wengine kwa hiyo ni vigumu kujua nani kaviwekea alama
+Mwalimu ambaye hakutaka jina lake kutajwa Alibainisha kuwa vitabu hivyo  vya kiada vilikuwa havijakaguliwa kwa miaka kadhaa na mara kwa mara vimekuwa vikitumiwa na wanafunzi wengine kwa hiyo ni vigumu kujua nani kaviwekea alama
 Tukio kama hilo lilitokea mwaka 2016 kutokana na mabishano juu ya Rais kugombea mhula wa tatu ambapo wanafunzi wa elimu ya sekondari ya juu walichorachora kwenye picha ya Nkurunziza katika vitabu vya kiada
 Mamlaka zilichukulia jambo hili kama kumdhihaki sana Rais na kuamua kuwafukuza mamia ya wanafunzi kutoka shule mbalimbali nchi nzima wanafunzi
 kumi na moja walishtakiwa kwa kumfedhehesha mkuu wa nchi na kuhatariisha amani ya nchi ingawa baadaye ilitaarifiwa kuachiwa
-Vitendo hivi alivikosowa sana  Zeid Raad Al Hussein wa shirika la haki za binadamu la umoja wa mataifa ilitoa taarifa tarehe 29 Juni 2016
+Vitendo hivi alivikosowa sana  
+Zeid Raad Al Hussein wa shirika la haki za binadamu la umoja wa mataifa ilitoa taarifa tarehe 29 Juni 2016
 Nimefadhaishwa na kuendelea kuripotiwa kusimamishwa shule na kukamatwa kwa Watoto wa shule na wanafunzi kwa kuchorachora kwenye picha ya Rais katika vitabu vya kiada
 Nkurunziza ni Kiongozi Mkuu wa Milele
 Rais Pierre Nkurunziza wa Burundi
-Picha na Eric Miller  Kilele cha Jukwaa la uchumi la kimataifa Afrika katika mji wa Cape Town Juni 36 mwaka 2008
-Picha kupitia Flicker CC BYNCSA 2
-0
 Pierre Nkurunziza amekuwa Rais wa Burundi tangu mwaka 2005
 Mwaka 2015 aliteuliwa kuiongoza Burundi muhula wa tatu na chama chake katika mazingira ya kutatanisha
 Mwezi Machi mwaka jana Nkurunziza alitajwa  na chama chake cha  CNDDFDD kuwa kiongozi mkuu wa milele
@@ -2754,49 +2746,26 @@ Ndiyo maana nawaomba wanachama wetu kumheshimu kwa sababu nyumba isiyokuwa na mw
 Kwetu tuna kiongozi mzuri sana
 Wakati chama  CNDDFDD kikishusha hadhi ya cheo chake Hadhi ya Nkurunziza inayoshinikizwa ni kuwa Kiongozi mkuu wa milele imefanya kuwa vigumu kwa mtu yeyote kukataa maamuzi yake  ukijumuisha na hoja yake ya kubadilisha mihula ya miaka miwili inayoruhusiwa na katiba ya nchi
 Hii inaakisi mamlaka ya utawala wa chama tawala kuwa yapo kwa mtu mmoja Nkurunziza na wanaomuunga mkono na hasa taasisi zinazoongoza nchi
-
 Wachoraji wakiwa na mshikamano
 Raia mtandaoni wameamua kuchorachora picha za Rais Nkurunziza kama kupinga kupitia alama za tweeter Nkurunziza na Burundi
 Warundi mtandaoni wanachorachora kwa kupinga kuchorachora picha za Rais Nkurunziza na kukamatwa na kuwekwa kizuizini wasichana watatu ambao ni watoto wa shule ambao walichora kwenye picha ya Rais iliyopo kwenye vitabu
-Patience Atuhaire patuhaire tarehe 22 Machi 2019
-Burundi  des lycéennes en prison pour le gribouillage dun portrait du prédident Nkurunziza LewisMudge hrw hrw_fr httpst
-coBkAP5PfglK pic
-twitter
-comz4HkiFbi3Z
-Warundi mtandaoni wanachorachora kwa kupinga kuchorachora picha za Rais Nkurunziza na kukamatwa na kuwekwa kizuizini wasichana watatu ambao ni watoto wa shule ambao walichora kwenye picha ya Rais iliyopo kwenye vitabu
-Eléonore Abou Ez Eleoabouez March 22 2019
 Wanafunzi wa sekondari ya juu wapo jela kwa kuchorachora picha ya Rais Nkurunziza
 Kama nilifanya hivi kwaNkurunzizas Burundi Ningeweza kufungwa jela GribouilleMoi httpst
-coV7nVxKXZ0P pic
-twitter
-comahcO0apSQ7
 Wietske Nijman WietskeNijman March 21 2019
 Burundi Thank you CNN jeune_afrique FRANCE24 RFIAfrique africanews lemondefr  others for your solidarity with jailed teenage girls bcz they scribbled pnkurunziza s picture
 Utawala wa kimabavu Burundi lazima ujue kuwa jela haielimishi
-radio_rpa RadioInzamba pic
-twitter
-com3R9KQ1oz6Y
 NDAYISHEMEZA Denis NDAYISHEMEZAD Tarehe 22 Machi 2019
 Serikali ya Burundiimewafunga jela Watoto wa shule  kwa madai ya kuchorachora picha za Rais
 Tumetuma kwa njia ya tweeter picha zetu zilizochorwachorwa kwa mshikamano
 Walitudhirishia kuchorachora kwenye picha ya Rais wetu na mimi nimefanya
 Hapa nina ujasiri sitakamatwa
-httpst
-coeqrrxussun
 Utawala wa kimabavu wa Burundi lazima ujue kuwa jela haielimishi
-Serikali ya Burundi imewafunga jela watoto wa shule kwa maai ya kuchorachora picha za Rais
-Tumetuma kwa njia hii ya Tweeter picha zetu tulizochorachora kwa mshikamano
-Wametupa ujasiri wa kuchorachora kwenye picha ya Rais wetu na mimi nimefanya
-Hapa nina ujasiri sitakamatwa
-Andrew Stroehlein astroehlein  Tarehe 22 Machi 2019
-Kuchukuliwa hatua kali ukosoaji 
 Serikali ya Burundi imekuwa makini juu ya ukosoaji tangu mwaka 2015 baada ya kushindwa  kwa Mapinduzi yaliyopelekea mapigano wa vikundi vya waasi ukosoaji  wa ukiukwaji wa haki za binadamu  vikwazo  vya uchumi ugumu na  migogoro ya wakimbizi 
 Jaribio la Nkurunziza la kutaka kuongoza muhula wa tatu lilipingwa  na Umoja wa ulaya na Umoja wa mataifa ambao walitaka kurejeshwa kwa amani  kabla ya uchaguzi
 Kukiwa na changamoto hizi  kuzingirwa na mawazo kulifanya mamlaka kuwa wakali na kuminya kwa nguvu wale walioonekana tishio
 Taasisi ya kimataifa inayojihusisha na haki za Binadamu The Human Rights Watch mwezi Mei 2018 katika taarifa yake maalumu iliweka wazi kuwa majeshi ya nchi ya Burundi usalama wa taifa na wanachama wa umoja wa vijana wa chama kinachotawala ambao wanajulikana kama Imbonerakure walifanya ukatili wakilenga wapinzani wanaharakati wa haki za binadamu na waandishi wa habari wakiuwa watu wapatao 1700 ubakaji mateso kupigwa vitisho na kukamata watu ovyo
 Hii imesababisha mgogoro wa wakimbizi ambao umepelekea warundi kukimbilia hasa Tanzania Rwanda Jamhuri ya kidemokrasia ya Kongo DRC na Uganda
-Wakati maelfu wamerudi shirika la wakimbizi la Umoja wa mataifa UNHCR lilitoa taarifa ya zaidi wakimbizi wa Burundi 347000 mwezi Februari 2019
-UNHCR inadai
+Wakati maelfu wamerudi shirika la wakimbizi la Umoja wa mataifa UNHCR lilitoa taarifa ya zaidi wakimbizi wa Burundi 347000 mwezi Februari 2019 UNHCR inadai
 vurugu za kisiasa Burundi zilikuwa mbaya sana mwaka 2015 baada ya Rais kutangaza mpango wa kugombea kuongoza kwa muhula wa tatu
 Maandamano mtaani yalipelekea mapigano makali na mamia elfu walikimbilia nch jirani kutafuta usalama
 Mapema mwezi huu Burundi imefunga ofisi za shirika la umoja wa mataifa linalojihusisha na haki za binadamu baada ya kukaa humo miaka 23 ikisema kuwa halihitajiki tena
@@ -2809,9 +2778,6 @@ Suala la kuchorachora pia ni moja ya viashiria vya serikali isiyobadilika inayok
 Makala 66
 Upigaji kura ukiendelea wakati wa uchaguzi wa Rais Machi 28 2015 huko Abuja Nigeria
 Picha na Ubalozi wa MarekaniIdika Onyukwu
-Nakshi za picha Sio ya Kibiashara 2
-0 Generic CC BYNC 2
-0
 Nigeria itafanya uchaguzi wa Raisi hapo Februari 16 2019 na macho yote yapo katika uchaguzi huu kuthibitisha nguvu ya mila desturi na umoja katika demokrasia ya Nigeria
 Mwaka huu kuna  wagombea wakuu watano kati ya wagombea wote 73wa kinyanganyiro hiki cha Uraisi
 Wagombea wakuu wawili akiwepo Rais anayemaliza muda wake Muhammadu Buhari Chama cha Maendeleo kwa Wote na mgombea kutoka chama cha Upinzani Makamu wa Raisi wa zamani Atiku Abubakar Chama cha Demokrasia kwa Watu
@@ -2874,13 +2840,11 @@ Historia ndefu ya Saudi Arabia katika Siasa na Dini
 Kwa utaratibu wa kuongoza kwa kutumia sheria za dini hili sio jambo la ajabu katika Ufalme huu wa kihafidhina uliokithiri
 Kwa hiyo viongozi wa Saudia wamekuwa wakiitumia dini kama zana ya nguvu kisiasa tangu kuanzishwa kwa ufalme huo
 Saudi Arabia ni nyumbani mwa maeneo mawili matakatifu ya Uislam Mecca na Medina
-
 Kila mwaka Mamilioni ya Waislamu kutoka kote ulimwenguni husafiri kuelekea Mecca kwa ajili ya kuhiji ambapo ni moja ya nguzo tano za Uislamu
 Hili limeifanya serikali ya Saudia kudai uhalali maalum wa kidini katika Uislamu
 Ufalme umekuwa ukiutumia uhalali huo kupata na kuendeleza mamlaka yake ya kisiasa
 Wakati mamlaka ya kwanza ya Saudia ilipoanzishwa mwaka 1744 Amiri wa mji mdogo wa vijito vya Diriya Muhammad ibn Saud alifanya makubaliano na viongozi wa kidini na muumini wa dini ndugu Muhammad ibn Abd alWahhab
 Abd alWahhab alianzisha mchakato wa uhafidhina wa kidini uliopitiliza kwa sasa unafahamika kama Uwahhabi ukilenga tafsiri yenye msimamo mkali wa Korani na desturi za Mtume
-
 Fanack chombo huru cha habari na tovuti ya uchambuzi iliyojikita kwenye mji wa  MENA inafafanua  kuwa muungano ulikusudiwa kutengeneza mazingira ya Kiislamu yenye kuongozwa na tafsiri zenye msimamo mkali wa Uislam
 Mamlaka hii ya kwanza ya Saudia ilianguka miongo kadhaa baadaye na mamlaka ya pili iliundwa mwaka 1824 na ilianguka tena mwaka 1891
 Mwaka1924 na 1925 familia ya IbnSaud iliivamia Mecca na Medina Miji mitakatifu ya Uislamu wakisaidiwa kwa ukaribu na wapiganaji wa Wahhabi
@@ -2892,14 +2856,11 @@ Watoa mihadhara ya kidini wameorodheshwa ili kuwaondosha wale wanaokemea uvunjaj
 Januari 2019 Waziri wa Masuala ya Uislamu Saudia ndugu Abdullatif Ibn Abdulaziz AlSheikh alikemea machafuko ya Waarabu ya 2011 na 2012 akiyaelezea kama yenye sumu na uharibifu kwa Waarabu na binadamu wa Kiislamu
 Katika rejea thabiti ya ukosoaji uliolenga Ufalme baada ya mauaji ya Khashoggi waziri alikemea kile alichokielezea kama  mashambulizi yasiyo ya haki kutoka kwa maadui wa Uislamu na akawatuhumu Waislamu wanaokosoa Ufalme na sera zake kwaa kueneza uchochezi kuleta mafarakano na uchochezi dhidi ya watawala na viongozi wao
 Akiangazia kuhusu uhusiano baina ya Uwahhabi na ukandamizaji wa kisiasa mwanaharakati wa haki za binadamu huko Saudia Yahya Assiri ambaye anaishi uhamishoni huko London alitwiti hapo Januari 13
-الاستبداد منظومة متكاملة
-وتمكن عندنا باستخدام الدين عندما تحالف ابن عبدالوهاب مع ابن سعود فنشأت السعودية و الوهابية كتوأم خبيث لن تنجو بلادنا إلا بالخلاص من الاستبداد السعودي الوهابي وكلما قلنا ذلك قال البعض بحسن نية أن الوهابية حركة دينية بينما هي سياسية صرفة
-يتبع
-Yahya Assiri يحيى عسيري المقسطون abo1fares January 13 2019
-Ukandamizaji ni mfumo endelevu na katika nchi yetu unawezeshwa na dini Wakati Ibn Saud na Ibn Abd alWahhab walipoungana Saudi Arabia na Uwahhabi waliongezeka na kuwa mapacha wakubwa sana
+Ukandamizaji ni mfumo endelevu na katika nchi yetu unawezeshwa na dini 
+Wakati Ibn Saud na Ibn Abd alWahhab walipoungana Saudi Arabia na Uwahhabi waliongezeka na kuwa mapacha wakubwa sana
 Nchi yetu haitaweza kuhimili labda tutokomeze ukandamizaji wa Saudia na Wahhabi
 Kama ambavyo tulisema hili wengine wenye nia njema walishasema kwamba Uwahhabi ni harakati za kidini wakati kwa ukweli ni harakati za kisiasa
-Lakini sauti za watu kama vile Assiri zimenyamazishwa nchini Saudi Arabia
+Lakini sauti za watu kama vile Assiri zimenyamazishwa nchini Saudi Arabia 
 Sauti nyingine kama hiyo ni ya Abdullah AlHamid ambaye yupo gerezani sasa na ni mmoja wa waanzilishi wa Chama Cha Haki za Kiraia na Kisiasa cha Saudia ambacho hakipo tena
 AlHamid anatumikia kifungo cha miaka kumi na moja gerezani kwa sababu ya harakati zake za kutetea haki za Binadamu alihukumuwa kwa makosa ya  kutokutii watawala na uchochezi kwa kuitisha maandamano
 Alihukumiwa mwaka 2013 na mahakama Maarufu ya Makosa Maalumu ya Jinai iliyoundwa kwa ajili ya makosa ya kigaidi lakini mara nyingi hutumika kuwahukumu wanaharakati wa haki za binadamu
@@ -2919,7 +2880,6 @@ Na wote watatu wanaweza wakahukumiwa kifo
 Akiwa na miaka 62 Sheikh Salman AlAwda ni muhubiri muhimu akiwa na wafuasi wengi katika majukwaa ya mitandao ya kijamii sio Saudi Arabia Pekee bali ukanda wa Arabuni wote
 Idadi ya wafuasi wake ikiunganishwa kutoka Instagram Facebook Twitter and YouTube ni zaidi ya milioni 22
 Hapo mwanzo alishawahi kuunga mkono machafuko ya Waarabu mwaka 2011 na aliitisha mabadiliko ya kidemokrasia katika Ufalme na katika Ukanda wote
-
 Shirika la Haki za Binadamu na makundi mengine ya haki za Binadamu walihusianisha kukamatwa kwake na chapisho moja la 8 Septemba katika ukurasa wake wa twita ambapo aligusia  habari kuhusu mapatano muhimu baina ya mataifa
 Katika sehemu ya pili ya bandiko lake twita aliandika Mungu alete amani katika mioyo yao kwa kile kilicho chema kwa watu wao
 Ali AlOmari ni mwanazuoni wa masuala ya dini na mwenyekiti wa 4Shbab kituo cha runinga cha Kiislamu kinacholenga vijana
@@ -2929,7 +2889,6 @@ Sheikh Awad AlQarni amekuwa akipokea tuhuma mbalimbali ikiwamo kuwaunga mkono ki
 Wakutubi wengine kadhaa wako magerezani kwa sasa huko Saudi Arabia
 Baadhi wameitisha mabadiliko ya kidemokrasia katika Ufalme kama vile AlAwda wakati wengine walipaza sauti wakimpinga Bin Salman na sera  zake au mabadiliko ya kijamii
 Wengine kama vile alOmari hapo nyuma alishawahi kuunga mkono watawala wa Saudi Arabia na Mrithi wa Kiti cha Mfalme
-
 Kinachothibitishwa na kesi hizi ni kuwa chini ya utawala wa Bin Salman ukimya hautoshi tena
 Zaidi ya muhuri wa mamlaka kunyamazisha sauti huru maneno ya yeyote ambaye hayaandiki kwa ajili ya mamlaka ya ufalme au ajenda yake ya kisiasa wahubiri lazima waende mbali zaidi na kumsifia hadharani mrithi wa kiti cha ufalme na uongozi wa Saudia
 Mitazamo na itikadi za wafungwa wa hisia kwa sasa ziko kifungoni huko Saudi Arabia ikiwamo mpigania haki za wanawake mpigania haki za binadamu waandamanaji wa Kishia na wahutubu wa kidini zinaweza kutofautiana
@@ -2949,10 +2908,6 @@ Mpango huo ulitoa upendeleo kwa madaktari wa Brazili lakini baada ya kuajiriwa k
 Kwa makubaliano ya mkataba huo Brazili haiwaajiri madaktari wa Cuba moja kwa moja badala yake inailipa serikali ya Cuba ambayo iliwapa mafunzo kuwaongoza na kuwafidia madaktari hao kama watumishi wa umma kwa mshahara wa asilimia 25 ya kile Brazili ingewalipa kama ingewaajiri wenyewe
 Médicos cubanos atendendo brasileiros mais vulneráveis
 São esses aí que Bolsonaro mandou embora do Brasil com suas declarações desastrosas
-Fotos Araquém Alcântara
-pic
-twitter
-comridWZci46y
 rodrigo vianna rvianna November 15 2018
 Madaktari wa Cuba wakiwahudumia Wabrazili wenye hali mbaya kabisahawa ndio watu Bolsonaro aliowafukuza kwa tamko lake la kikatili
 Picha na Araquém Alcântara
@@ -2981,8 +2936,6 @@ Kwa upande mwingine Taifa dogo la kisoshalisti lina daktari wa kutosha
 Kwa sasa Cuba ina madaktari elfu 50000 waliosambazwa katika nchi 67
 Kukodisha madaktari ndio biashara kubwa ya Cuba hutengeneza  dola za Marekani bilioni 11 katika pato la Taifa kwa mwaka ni zaidi ya unavyofanya utalii
 Madaktari wa Cuba wakiwasili nchini Brazili mwaka 2013
-Picha na Valter CampanatoAgência Brasil CC BY 3
-0
 Cuba ilituma nje kikosi chake cha kwanza cha madaktari mwaka 1963 baada ya vita vya uhuru uko Algeria
 Kuanzia hapo kupitia simulizi za Radio Ambulante karibu matabibu 500000 wa Cuba wameshafanya kazi Afrika Asia na Marekani
 Baada ya miaka mingi Wacuba wachache wameweza kuviambia vyombo vya habari vya Brazili kuwa walijisikia kunyonywa
@@ -3004,12 +2957,6 @@ Ifikapo Disemba 12 Wataalamu wote wa Taasisi ya Pan American Health Organization
 Katika kliniki nyingi za umma watu wamejikuta wapo wenyewe bila msaada wa kitabibu  kwa wiki nzima iliyopita au waliambiwa daktari atakuwepo kwa wiki mara moja kuanzia sasa
 Ingawa serikali ya Brazili inadai kuwa asilimia 92 ya nafasi zilizoachwa wazi na Wacuba zimeshazibwa gazeti la Folha de S
 Paulo lilisema kuwa mwisho wa siku namba hiyo inaweza isimaanishe chochote
-Em 2017 o Ministério da Saúde abriu concurso para selecionar brasileiros para o Mais Médicos
-Ao todo 6
-285 se inscreveram para 2
-320 vagas mas só 1
-626 apareceram para trabalhar
-Cerca de 30 deixaram seus postos antes de um ano de serviço
 Mwaka 2017 Wizara ya Afya ilifungua mlango wa kuchaguwa waBrazili kwa ajili ya mpango wa Madaktari Zaidi
 Kwa ujumla watu 6285 waliomba kazi katika nafasi 2320 zilizokuwepo lakini ni 1626 ndio walioripoti katika vituo vyao
 Karibu asilimia 30 waliacha kazi kabla ya kumaliza mwaka mmoja katika nafasi zao
@@ -3018,11 +2965,6 @@ Labda changamoto kubwa ambayo serikali ijayo inapaswa ijifunze wapi ilikosea na 
 Ni kwa namna gani na ikiwa serikali ya Bolsonaro itahakikisha huduma za afya katika maeneo hayo zinapatikana na zinaonekana
 
 Makala 69
-Baghdad
-Picha ya  MohammadHuzam CC BYSA 4
-0 httpscreativecommons
-orglicensesbysa4
-0
 Makundi ya  Haki za Binadamu na Wanaharakati wanashauri Bunge la Irak kutupilia mbali Muswada wa makosa ya Mtandaoni ambao utazuia sana uhuru wa kutoa maoni mtandaoni kama utapitishwa
 Muswada unaweka hukumu ya kifungo kirefu cha gerezani kwa makosa yanayotokana na kauli ambazo hazikuelezwa vizuri katika mswada huo
 Ibara ya 3 inatamka kifungo cha Maisha jela na faini kali kwa wale wanaokutwa na hatia kwa kutumia kompyuta na mtandao  kudhoofisha uhuru  uadilifu na amani ya nchi au Uchumi wake Siasa jeshi au maslahi ya nchi au  kusababisha ugomvi wa kidini kuvuruga amani na utulivu au kuharibu heshima ya nchi
@@ -3032,9 +2974,7 @@ Bila kuwepo maana iliyo wazi ya ugaidi itakuwa rahisi kutumia sheria hiyo kufili
 Haki za mtandaoni tayari zinakiukwa Irak
 Majira ya kiangazi yaliyopita mamalaka zilijibu  maandamano kukemea rushwa na Maisha ya anasa katika Basra na miji mingine kwa kuzima  mtandao
 Kama utapitishwa mswada huo utafanya iwe vigumu kwa Wairaki kutumia haki zao za kuwasiliana kuongea kwa uhuru na kupata habari mtandaoni
-
 Mapema mwezi huu makundi tisa ya haki za binadamu pamoja na AccessNow Amnesty International na waangalizi wa haki za binadamu walichapisha  kauli ya kuliomba bunge la Irak kutupilia mbali mswaada huo
-
 Sheria hii itawafanya watumiaji wa mtandao kuwa waoga katika kutumia haki zao za msingi na uhuru wa kutumia mtandao na itaondoa haki ya kutoa maoni
 Pia sheria ina athari kubwa katika kufurahia haki na uhuru wa habari na haki ya kushiriki katika mambo ya umma katika nchi ya Irak
 Bunge lilitazamia kujadili mswada huo tarehe 4 Machi lakini baadaye uliondolewa
@@ -3042,11 +2982,6 @@ Katika akaunti ya Twita ya Afisa wa Baraza la Bunge la Irak aliwashukuru  wale w
 Makundi ya haki za binadamu na wanaharakati walipokea jibu hilo kwa furaha lakini bado wana wasiwasi
 Ushindi mdogo Kutokana na kampeni iliyofanywa na wanaharakati wa haki za binadamu waandishi wa habari wa Irak ndani na nje na Mashirika yasio ya kiserikali kufanikiwa kuondolewa kwa rasimu ya uharifu mtandaoni kutoka ratiba ya Bunge 
 hatua inayofuata nikuondolewa kwa rasimu ya sharia kwa pamoja httpst
-coKWaXABej1r
-Raz Salayi razsalayi Tarehe 14 Machi 2019
-Ushindi mdogo Kutokana na kampeni iliyofanywa na wanaharakati wa haki za binadamu waandishi wa habari ndani na nje na Mashirika yasio ya kiserikali kufanikiwa kuondolewa kwa rasimu ya uhalifu mtandaoni kutoka
-ratiba ya Bunge hatua inayofuata nikuondolewa kwa rasimu ya sharia kwa pamoja
-Tarehe 14 Machi 2019
 Haijaeleweka vizuri kama Bunge litaufanyia marekebisho mswada huo au kuupanga tena ili ujadiliwe
 
 Makala 70
