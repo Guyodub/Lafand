@@ -414,7 +414,7 @@ Kipindi hiki ni bure na wazi kwa umma na kitaruka moja kwa moja kwenye mtandao w
 Tunasuburi kwa hamu kukuona ukiungana nasi Jumatani Februari 10 saa 200mchana GMT bofya hapa kuangalia muda unaoendana na eneo ulipo
 Kununua kitabu hiki kupitia kiungo hiki kutasaidia kuichangia Global Voices
 
-makala 12
+Makala 12
 Kijana akitazama simu yake ya kiganjani nchini Tanzania Desemba 9 2018
 Picha na Riaz Jahanpour kwa mradi wa USAID  Mawasiliano ya Maendeleo ya kiDijitali kupitia mtandao wa Flickr CC BY 2
 0
@@ -473,7 +473,7 @@ Katika hali ambayo serikali inakanusha uwepo wa UVIKO19 na kuwepo kwa sheria zin
 Makala haya ni sehemu ya mfululizo wa makala zinazochunguza kuingiliwa kwa haki za kidijitali wakati wa hatua za kuwafungia watu ndani kudhibiti kusambaa kwa UVIKO19 katika nchi tisa za Afrika Uganda Zimbabwe Msumbiji Aljeria Naijeria Namibia Tunisia Tanzania na Ethiopia
 Mradi huu umefadhiliwa na Mfuko wa Haki za Kidijitali Afrika unaendeshwa na Ushirikiano wa Sera za Kimataifa za TEHAMA kwa Afrika Mashariki na Kusiki mwa Bara la Afrika  CIPESA
 
-makala 13
+Makala 13
 Picha ikionesha uhitimu wa mafunzo ya polisi huko Msumbiji  picha ya skrini ya Agosti 19  STV  Youtube ilipigwa na mmiliki  
 Nyaraka  za jeshi la polisi  la Msumbiji zilizovujishwa katika vyombo vya habari mapema mwezi Agosti zilidhihirisha kwamba wanafunzi 15 walipata ujauzito wakiwa katika shule ya mafunzo ya polisi huko Matalane wilaya ya  jimbo la Maputo
 Nyaraka hizo zinasema  kuwa mimba hizo ni matokeo ya uhusiano wa kingono uliopo baina ya wanafunzi na wakufunzi bila kufafanua kama mahusiano hayo yalikuwa ya hiari
@@ -520,7 +520,7 @@ Licuco alihukumiwa kwenda gerezani miaka 3 na miezi 4 pamoja na kulipa fidia ya 
 2 kwa Josina
 Hata hivyo Rofino alikata rufaa na Juni mwaka huu Mahakama kuu ya Rufaa iliifutilia kesi hiyo mbali kwa madai kuwa hapakuwepo na ushahidi wa kutosha katika kesi hii
 
-makala 14
+Makala 14
 Jumanne Hii ya Utoaji changia Global Voices httpsglobalvoices
 orgdonate
 Mwaka 2020 umekuwa wa pekeena haujakamilika bado
@@ -531,7 +531,7 @@ Kazi yetu na jumuiya ya waandishi wetu wa kimataifa ni ushahidi kwamba uhusiano 
 Tafadhali changia leo kutusaidia kuendeleza kazi hii muhimu
 Changia Global Voices 
 
-makala 15
+Makala 15
 Desemba 2004
 Ilikuwa lazima uwe mwanafunzi wa chuo kikuu kutumia mtandao wa Facebook Twitter ilikuwa bado haijaanza kutumika wachokozi bado walikuwa wanaishi kwenye madaraja ya masimulizi ya kusadikika
 Simu zetu bado hazikuwa na akili kuvuja wakati huo ilimaanisha maji na ungemwita fundibomba kurekebisha na bado Amazon
@@ -550,7 +550,7 @@ Michango kutoka kwa watu binafsi inatusaidia kulinda uhuru wetu na kutuwezesha k
 Tafadhali tuunge mkono leo
 Changia sasa
 
-makala 16
+Makala 16
 Wasafiri wakivuka mpaka kati ya Ghana na Togo Afrika Magharibi mnamo Januari 25 2016
 Picha ya Enock4seth kupitia Wikimedia Commons CC BYSA 4
 0
@@ -591,7 +591,7 @@ Kwa kulinganisha kinyumeidadi ya walioathiriwa na kufa Amerikani ni mara sita id
 Wataalam wa afya ya umma walikadiria kwamba janga lingeathiri pakubwa bara la Afrika na miili ya walokufa kutanda mitaa 
 Bayana Afrika imethibitisha vinginevyo
 
-makala 17
+Makala 17
 Habari hii imetumia utafiti wa Factcheck Lab wakala wa uhakiki wa ukweli ulioko Hong Kongambaye pia ni mshirika wa habari wa Global Voices ambapo mwandishi ni mwanachama
 Tokea Septemba 22 taarifa za habari na machapisho ya mtandao ya kijamii inayoenea katika mitandao ya Kichina ilinukuu sivyo kuwa mwanasayansi mkuu wa Shirika la Afya Duniani SAD Dkt
 Soumya Swaminathan alisema chanjo za Uchina dhidi ya COVID19 zimethibitishwa kuwa na athari
@@ -635,7 +635,7 @@ Vyombo vya habari yanayoegemea Beijing huko Hong Kong kama Speak Out HK 港人�
 Kuna chanjo takriban 200 za UVIKO19 yalioko katika hatua mbali mbali ya majaribio ya kliniki ulimwenguni na mengi miongini mwao yameandaliwa na maktaba za Uchina
 Hakuna ambayo imepita awamu ya 3 ya majaribio kwa sasa
 
-makala 18
+Makala 18
 Maandamano dhidi ya kifo cha daktari Silvio Dala huko Luanda
 Picha na Simão Hossi CCBY 3
 0
@@ -682,7 +682,7 @@ Quando o George Floyd foi morto os chamados Influencers Angolanos mostraram o se
 Ale Alejandro AlejandroCutieG September 7 2020
 Wakati  George Floyd alipouawa hao wanaojiita wahamasishaji wa kiAngola mitandaoni walionesha kuunga mkono mchakato wa Maisha ya Weusi Yana Thamani lakini katika kifo cha daktari wa kiAngola Silvio Dala hawa ndugu hawafanyi chochote kuhusu janga hili
 
-makala 19
+Makala 19
 Hachalu Hundessa akifanyiwa mahojiano na OMN kupitia Firaabeek Entertainment  CC BY 3
 0
 Dondoo ya Mhariri Huu ni uchambuzi wenye sehemu mbili juu ya Hachalu Hundessa mwanamuziki maarufu wa Oromo ambaye mauaji yake yaliamsha vurugu za itikadi za kidini na kikabila kwa sababu ya taarifa zisizo sahihi zilizotolewa katika mitandao ya kijamii
@@ -732,7 +732,7 @@ Alizungumzia moja kwa moja mgogoro baina yake na Getachew Assefa Afisa Usalama M
 Guyo aliyeyatangaza mahojiano hayo katika ukurasa wake wa Facebook kwa kuyaita lazima uyaone siku chache kabla ya kurushwa kwake hewani amekamatwa na polisi tangu wakati huo na serikali inafanya upelelezi wa mkanda wa dakika 71 za mahojiano hayo ili kupata vielelezo vitakavyosaidia kupata ufumbuzi wa chanzo cha mauaji ya Hachalu
 Soma zaidi kuhusu madhara yaliyotokana na mauaji ya Hachalu Hundessa katika sehemu ya II
 
-makala 20
+Makala 20
 Picha kutoka  Guardian YouTube video kuhusu ukeketaji wa wanawake
 Janga la COVID19 limeathiri kwa kiwango kikubwa haki za wanawake huko Mashariki ya Kati na Kaskazini mwa Afrika  kutoka kuongezeka kwa ukatili majumbani mpaka kupoteza ajira zao
 Lakini kuna eneo moja lililowazi ambapo wanawake wameathirika ambalo mi ukeketaji na hii ni baada ya kulipuka kwa janga la Korona na heka heka za kukabiliana nalo
@@ -792,7 +792,7 @@ Mfululizo wa majanga ya kikanda na mamlaka za kidikteta imechelewesha mabadiliko
 Sasa macho yote ya ulimwengu yameelekezwa kwenye kupambana na COVID19 na madhara yake katika uchumi na programu nyingi ambazo zinahusika moja kwa moja na haki za wanawake walio katika mazingira hatarishi na kutoa huduma za kijamii zimeahirishwa kwa au pengine sio kipaumbele tena
 Kukiwa na familia nyingi maskini na wasichana wengi wanaoachishwa shule au ndoa utotoni ukeketaji ni kama vile unaendelea kupata nafasi bila kujulikana katika ukanda huu
 
-makala 21
+Makala 21
 Picha ya Abubakar Idris Dadiyata imetumika kwa ruhusa kutoka kwa The SignalNg
 Abubakar Idris Dadiyata mhadhiri na mkosoaji mashuhuri wa serikali ya Nigeria alitekwa nyumbani kwake mnamo mwezi Agosti 1 2019 huko Barnawa jirani na Kaduna Kaskazini Magharibi mwa  Nigeria
 Mwaka mmoja baada ya kutekwa kwake bado Dadiyata hajapatikana
@@ -832,7 +832,7 @@ Zaidi ya kusema kuwa hawajui alipo hakuna mtu ameonesha  jitihada za kutuambia 
 Hii inakuonesha ni jinsi gani hatuna maana kama raia wadogo
 Kidogo tunachoweza kufanya ni kuuliza yuko wapi Dadiyata na ni kwa nini serikali yetu haimtafuti
 
-makala 22
+Makala 22
 Wanafunzi katika Jimbo la Kaduna Nigeria
 Picha na  Jeremy Weate Januari 15 2010 kupitia  Flickr  CC BY 2
 0
@@ -877,7 +877,7 @@ Lakini gavana wa jimbo la Kaduna  Nasir ElRufai alikataa uharamia huo kuhusis
 Agosti 22 serikali ya jimbo la Kaduna iliamuru watu kutokutoka ndani kuanzia saa 12 jioni  mpaka saa 12 asubuhi ambapo katika baadhi ya maeneo inasadikika kuwa ni sehemu ya mkakati wa  serikali kukomesha uharamia
 Hata hivyo msemaji wa Umoja wa watu wa Kaduna Kusini Luka Binniyat alilalamika kwamba njaa pia inatuua kwa sababu watu hawaendi mashambani mwao watu wetu wamekosa tumaini kabisa
 
-makala 23
+Makala 23
 Mshairi Henry Swapon na Mwanasheria Imtiaz Mahmood
 Muunganiko huu ni wa picha zao zilizosambaa sana katika mitandao ya kijamii
 Watu wawili walikamatwa hapo Mei 14 na 15 kwa kuweka maoni yao katika kurasa zao za Facebook
@@ -932,7 +932,7 @@ Baraza la Wahariri la Bangladeshi lilisema kuwa sheria hii ni kinyume na uhuru 
 Soma zaidi wanaharakati wa Uhuru wa Kujieleza Bangladesh wanasema sheria moja ya Usalama wa Digitali ni kwa kusudi la kunyanyasa
 Sheria inatoa  mamlaka kubwa sana  kwa  taasisi za kusimamia sheria kuanzisha upelelezi kwa yeyote ambaye shughuli zake zinahisiwa kuwa zina madhara na ni tishio kwa usalama
 
-makala 24
+Makala 24
 Baada ya mapinduzi ya Sudani mamlaka za mpito za Sudani zimesaini makubaliano ya amani na The Sudan Revolutionary Front  kikundi kikuu cha waasi ambacho kimeendelea na utendaji wake hata baada ya kuondolewa kwa kiongozi wake wa zamani Omar alBashir mwaka jana
 Makubaliano haya ya amani ya Kihistoria yalisainiwa hapo Agosti 31 katika mji wa Juba Sudani Kusini ambapo yanaungwa mkono na jumuiya za Kikanda na zile za Kimataifa kama vile nchi za Kitroika Umoja wa Ulaya Misri na baadhi ya nchi za Ghuba
 Pia jambo hili la kusisimua limegubikwa na kipindi cha mafuriko ya Kihistoria ambayo yameathiri baadhi ya maeneo ya Sudani yakisababisha kuendelea kuporomoka kwa uchumi ambao tayari ulikuwa umeshadorora
@@ -990,7 +990,7 @@ Kudorora kwa fedha ya Sudani sasa imezidi asilimia 202 kulingana na  Professor
 Hata hivyo mpaka sasa serikali ya mpito haijaweza bado kulitawala soko
 Sasa tena kuna ahadi ya amani ni nini hasa mkakati wa serikali kuyarahisisha maisha ya wananchi
 
-makala 25
+Makala 25
 Kiongozi wa wanafunzi Jutatip Sirikhan akiwa amefunikwa kwa rangi nyeupe ikiwa ishara ya mgomo baada ya kuachiliwa kwake
 Picha na maelezo kutoka kwa Prachatai
 Makala hii ni kutoka kwa Prachatai chanzo huru cha habari huko Thailand ikiwa imehaririwa na kuchapishwa na Global Voices kama sehemu ya makubaliano ya kushirikishana mahudhui
@@ -1032,7 +1032,7 @@ Rangi inaweza kusafishwa lakini uonevu hauwezi kusafishwa
 Baada ya hapo Jutatip alimshukuru Mhadhiri ambaye alimuwekea dhamana na watu waliokuja kumuunga mkono na kusaidia umati kusafisha rangi iliyokuwa imetapakaa katika njia ya waenda kwa miguu mbele ya mahakama
 Hatutaacha kupambana mpaka tushinde kila kitu ikiwemo marekebisho ya ufalme na  katiba mpya alisema Jutatip
 
-makala 26
+Makala 26
 Picha ya skrini kutoka katika video huko YouTube  na VideoVolunteers
 Chapisho hili liliandikwa na Grace Jolliffe na mwanzoni and originally alilirushwa na Video Volunteers kikundi cha kumtandao cha kimataifa kilichoshinda tuzo na makao yake makuu ni  India
 Toleo lililohaririwa kidogo imechapishwa hapo chini kama sehemu ya makubaliano ya kushirikishana maudhuhi
@@ -1066,7 +1066,7 @@ Hata hivyo hakuna mgomo wowowte kati ya hii ambao umechukuliwa hatua na serikali
 Wapiga kura wengi wameanza kuzoea kutumia mbinu hii kama ishara ya kuonesha hasira zao kwa wanasiasa na maofisa wa serikali ambao huzigeukia jamii walizozitelekeza katika kipindi cha uchaguzi wakiwa ma matumaini ya kupata kura zao huku wakishindwa kutekeleza ahadi zao baada ya uchaguzi
 Lakini mwishowe kama Kugomea chaguzi haitaleta mabadiliko katika jamii je ni kitu gani wanajamii wataamua kufanya ili kuvuta masikio ya wenye mamlaka ambao wanapaswa kusikia sauti zao na kuchukua hatua za utekelezaji
 
-makala 27
+Makala 27
 Mwandishi wa Habari  Amade Abubacar
 Picha na  caiccajudaYoutube
 Waandishi wa Habari Amade Abubacar na  Germano Adriano ambao waliokamatwa mapema mwaka huu wakati wakikusanya habari za mgogoro wa kijeshi  katika ukanda wa Kaskazini mwa Msumbiji wameachiliwa huru bila kushtakiwa mnamo tarehe 23 April  2019
@@ -1103,7 +1103,7 @@ Sasa ni kuhakikisha kuwa mashtaka yanatupiliwa mbali na AmadeAbubacar anaweza 
 Ukweli ni kwamba amevumilia kuwa kizuizini bila kushtakiwa kwa siku 106 kabla ya dhamana  sio uungwana aliotendewa
 Hastahili kushtakiwa kabisa  httpst
 
-makala 28
+Makala 28
 Picha ya kiongozi wa Mapinduzi ya Irani Imamu Khomeini ikiwa katika ukuta wa jengo huko Sanandaj katika Mjii mkuu wa Irani kitongoji cha Kurdistan inavyoonekana kupitia dirishani
 Picha na  Jordi Boixareu
 Hakimiliki Demotix
@@ -1179,7 +1179,7 @@ Lakini waIrani wenye asili ya Marekani na waIrani wenye asili ya Ulaya wameandik
 Kwa sasa wanauelewa mzuri kidogo na kuna vitabu vingi kidogo
 Irani sio kitendawili cha kipekee lakini kilicho cha pekee ni kuwa watu wengi hawafahamu mengi kuhusu Irani
 
-makala 29
+Makala 29
 Waandamanaji mjini Rio de Janeiro Elimu ndio silaha yetu Picha na Marianna Cartaxo  Mídia NINJAImetumiwa kwa ruhusa
 Hapo Mei 15 maelfu ya Wabrazili waliingia mitaani katika majimbo yote 26 wakiandamana kuipinga serikali ya Bolsonaro kukata fedha za elimu ambapo itaathiri mamia ya shule na vyuo
 Mwishoni mwa mwezi Aprili serikali ya Brazili ilitangaza kukata kiasi cha asilimia 30 ya kile kinachosemekana ni bajeti ambayo ilikuwa kwa ajili ya gharama za maji umeme uendeshaji wa jumla pamoja na tafiti
@@ -1218,7 +1218,7 @@ Kama utawauliza jawabu la 7 mara 8 hawajui
 Kama unaju waulize kuhusu muundo wa maji hawatajuwa hawajui kitu
 Ni wajinga na wapumbavu wenye faida na wamekuwa wakitumiwa na watu wachache wenye hila wanaoongoza vyuo kadhaa vya umma nchini Brazili
 
-makala 30
+Makala 30
 Mwandishi wa habari wa Uganda Gertrude Uwitware Tumusiime ameonja matukio ya mzigo maradufu wakati akifanya kazi kama mwandishi wa habari mwanamke nchini Uganda
 Picha ya Skrini kutoka The Other Side Gertrude Uwitware Tumusiime kwenye YouTube
 Nchini Uganda waandishi wa habari wanawake wanaotumia vifaa vya kidijitali kuripoti kutoa maoni na kupata habari hukabiliwa na mashambulizi na udhalilishwaji kwa sababu wanachunguza na kuchapisha maudhui nyeti ya kisiasa
@@ -1299,7 +1299,7 @@ Makala haya ni sehemu ya mfululizo unaoitwa Jedwali la Utambulisho Jukwaa la kud
 Machapisho haya yanahoji kauli za chuki zenye utambulisho au kubagua kwa misingi ya lugha au asili ya kijiografia habari potovu na udhalilishwaji haswa dhidi ya wanaharakati wanawake na waandishi wa habari uliokithiri mtandaoni katika nchi saba za Kiafrika Algeria Kamerun Ethiopia Nigeria Sudani Tunisia na Uganda
 Mradi huu umefadhiliwa na Mfuko wa Haki za Kidijitali wa Afrika wa shirika la Ushirikiano wa Sera za kimataifa za TEHAMA kwa ajili ya Mashariki na Kusini mwa Afrika CIPESA
 
-makala 31
+Makala 31
 Mizizi ya miti iliyojikita kwenye ukuta wa karne ya 15 uliopo kisiwa cha Kilwa Kisiwani Tanzania
 Mnamo mwaka wa 1981 magofu ya sultani hodari wa Kiswahili kisiwani humo yalitangazwa kuwa eneo la UNESCO la urithi wa dunia
 Picha na David Stanley Januari 1 2017 CC BY 2
@@ -1361,7 +1361,7 @@ Hatua hii ikihimiliwa na juhudi zenginezo kama vile ujanibishaji wa vifaa vya ku
 Hatimaye mchakato huu utaharakisha ulindwaji uheshimiwaji na ukuzaji lugha zote za Kiafrika na lugha zingenezo ndogo mtandaoni kama inavyoafikiwa katika kanuni za Azimio la Afrika la Haki za mtandao na Uhuru
 Mradi wa Mantiki Utambulisho umefadhiliwa na Mfuko wa Haki za Kidijitali Afrika  unaoendeshwa na shirika la Ushirikiano wa Sera za kimataifa za TEHAMA kwa ajili ya Afrika ya Mashariki na Kusini CIPESA
 
-makala 32
+Makala 32
 Chumba cha Intaneti cha TEDGlobal
 Picha ya Creative Commons ya mtumiaji wa Flickr Erik HASH Hersman Juni 3 2007
 CC BY 2
@@ -1599,9 +1599,9 @@ MuyembeTamfum  alieleza  kuwa hatutasema tena kuwa ugonjwa wa  Ebola EVD hautib
 Kutokana na kazi adhimu ya MuyembeTamfum wanasayansi walifanya majaribio ya dawa nne za kutibu Ebola ZMapp remdesivir mAb114 and REGNEB3
 Majibu ya majaribio ya kitabibu conducted kwa washiriki 499 wa utafiti yalionesha kuwa wagonjwa waliotibiwa kwa REGNEB3 au mAb114 walionesha kuwa na nafasi kubwa ya kupona ukilinganisha na wale waliotibiwa kwa dawa nyingine mbili
 Utafiti huu uliofanyika chini ya uangalizi wa taasisi ya Institut National de Recherche Biomédicale INRB Wizara ya Afya ya Congo pamoja na mashirika mengine matatu yanayojihusisha na utoaji wa huduma za afya Jumuia ya Kimataifa ya Masuala ya Afya ALIMA the International Medical Corps IMC na Médecins Sans Frontières MSF
-Raia wa Congo aliyehusika kwenye upatikanaji wa tiba ya Ebola 
-MuyembeTamfum amekuwa akifanya tafiti zinazohusiana na ugonjwa wa Ebola tangu kuripotiwa kwa ugonjwa huu kwa mara ya kwanza nchini Congo ambapo  mwaka 1976 alikuwa  mtafiti wa kwanza  kuzuru eneo ambalo ugonjwa wa Ebola uripotiwa kwa mara ya kwanza Nilitumia miongo minne ya maisha yangu kutafuta tiba kwa aajili ya kutibu ugonjwa wa Ebola
-Kwa hiyo haya ni mafanikio katika maisha yanguDr JeanJacques Muyembe ambaye ni Mkurugenzi Mkuu wa Institut National de Recherche Biomedicale ya Jamhuri ya Kidemokrasia ya Congo pamoja na wenzake wamegundua tiba mpya ya ugonjwa wa Ebola inayoweza kutibu dalili za ugonjwa huu katika muda wa masaa matatu tu Nilitumia miongo minne ya maisha yangu kutafuta tiba kwa aajili ya kutibu ugonjwa wa Ebola Kwa hiyo haya ni mafanikio katika maisha yanguDr JeanJacques Muyembe ambaye ni Mkurugenzi Mkuu wa Institut National de Recherche Biomedicale ya Jamhuri ya Kidemokrasia ya Congo pamoja na wenzake wamegundua tiba mpya ya ugonjwa wa Ebola inayoweza kutibu dalili za ugonjwa huu katika muda wa masaa matatu tu
+Raia wa Congo aliyehusika kwenye upatikanaji wa tiba ya Ebola
+MuyembeTamfum amekuwa akifanya tafiti zinazohusiana na ugonjwa wa Ebola tangu kuripotiwa kwa ugonjwa huu kwa mara ya kwanza nchini Congo ambapo  mwaka 1976 alikuwa  mtafiti wa kwanza  kuzuru eneo ambalo ugonjwa wa Ebola uripotiwa kwa mara ya kwanza
+Dr JeanJacques Muyembe ambaye ni Mkurugenzi Mkuu wa Institut National de Recherche Biomedicale ya Jamhuri ya Kidemokrasia ya Congo pamoja na wenzake wamegundua tiba mpya ya ugonjwa wa Ebola inayoweza kutibu dalili za ugonjwa huu katika muda wa masaa matatu tu
 Rosebell Kagumire  RosebellK August 13 2019
 Profesa wa maikrobaolojia wa Chuo Kikuu cha Tiba cha Kinshasa Jamhuri ya Kidemokrasia ya Congo hadi sasa ametumia muda wa takribani miaka 40 kutafuta tiba ya ugonjwa huu
 Mwaka 1995 alifanya kazi na WHO kwa ajili ya utekelezaji wa mradi wa he worked with WHO in implementing  utambuzi mbinu za kukabiliana na ugonjwa huu mara baada ya kuripotiwa kwa mara ya kwanza wagonjwa wa Ebola katika mji wa Kikwit Jamhuri ya Kidemokrasia ya  Congo
@@ -1632,18 +1632,18 @@ Waligundua nyakati kuu tatu kuhusu habari za ugonjwa wa Ebola katika vyombo viku
 Tarehe 27 Julai iliripotiwa kwa mara ya kwanza kuwa madaktari kutoka Marekani wanaohudumu nchini Liberia waliambukizwa ugonjwa wa Ebola
 Tarehe 30 On Septemba vyombo vya habari viliripoti kwa mapana kuhusu Thomas Duncan kuugua ugonjwa wa Ebola huko Texas na ikiwa ndio mara ya kwanza ugonjwa huo kuripotiwa nchini Marekani
 Mwezi Oktoba tarehe 12 taarifa za mgonjwa wa Ebola ambaye ni ambaye ni mtoa huduma za afya zilisambamba kwa kina nchini Marekani
-Baada ya tarehe 12 Oktobamatuko mengine ya mlipo wa Ebola yaliripotiwa mfululizo hali iliyopelekea utipotiwaji wake kufifia siku hadi siku
+Baada ya tarehe 12 Oktoba matuko mengine ya mlipo wa Ebola yaliripotiwa mfululizo hali iliyopelekea utipotiwaji wake kufifia siku hadi siku
 Kuna uwezekano kuwa vyombo vya habari vya nchini Marekani vimeripoti sana kuhusu ugonjwa wa Ebola kwa sababu ya matukio ya uwepo wa ugonjwa huu nchini humo
 Pia kutokana na urahisi wa upashanaji habari kutpia mitandao ya kijamii ugonjwa wa Ebola umetokea kujadiliwa sana kwenye vyombo vya habari vya Ulaya na Marekani
 Hata hivyo kinachosubiriwa ni kuona ikiwa taarifa za dawa ya kutibu ugonjwa wa Ebola iliyogunduliwa na Mwafrika kutoka Jamhuri ya Kidemokrasia ya Congo inayotibu gonjwa hili la Kiafrika itapewa nafasi kwenye vyombo vya habari kama ilivyokuwa mwaka 2017
 
-makala 37
+Makala 37
 Erick Kabendera akitoa mafunzo kwa waandishi wa habari mwaka 2012 Dare s salaam
 Picha na Pernille Baerendtsen imetumika kwa ruhusa
 Tarehe 29 Julai askari kanzu 6 walimkamata kwa nguvu Erick Kabendera nyumbani kwake jijini Dar es Salaam Tanzania na kumuweka mahabusu
 Polisi wanasema Kabendera amekaidi agizo la kujisalimisha mwenyewe kwa minajili ya kuchunguzwa juu ya uraia wake kama ni mTanzania
 Kwa wiki nzima iliyopita polisi walipekua nyumba ya kabendera mara mbili wakanyanganya hati yake ya kusafiria nyaraka zake nyingine binafsi na kuihoji familia yake
-Ilipofika tarehe 5 Agosti mamlaka zikabadili hoja Kabandera akashitakiwa kwa makosa ya utakatishaji wa fedha kukwepa kulipa kodi kiasi cha Dola za Kimarekani 75000 pamoja na kujihusisha na mtandao wa kiuhalifu Makosa haya ni kwa mujibu wa hati ya mashitaka waliyonayo Shirika la Kutetea Waandishi wa Habari CPJ
+Ilipofika tarehe 5 Agosti mamlaka zikabadili hoja Kabandera akashitakiwa kwa makosa ya utakatishaji wa fedha kukwepa kulipa kodi kiasi cha Dola za Kimarekani 75000 pamoja na kujihusisha na mtandao wa kiuhalifu makosa haya ni kwa mujibu wa hati ya mashitaka waliyonayo Shirika la Kutetea Waandishi wa Habari CPJ
 Polisi wanasema Kabendera ametenda makosa haya kwa muda wa kipindi cha miaka minne sasa tangu mwaka 2015
 Kwa mashitaka yanayomkabili Kabendera anaweza kukumbwa na hukumu ya mpaka miaka 15 jela na haruhusiwi kupata dhamana
 Magufuli wa Tanzania
@@ -1654,9 +1654,10 @@ Muwakilishi wa Taasisi ya Kuwatetea Waandishi wa Habari CPJ katika nchi za kusin
 Inaonekana kwamba kwa muda wote wa wiki iliyopita mamlaka zimekuwa zikitafuta namna ya kuthibitisha sababu za kumuweka kizuizini mwandishi huru huyu na mkosoaji
 Kwanza walidai walidai kwamba uraia wa Erick Kabendera hauleweki leo hii wameongeza mashtaka mengine tofauti kabisa ambayo yanafanya tujiuliza sababu ya nia ya wao kumshikilia
 Kama mwandishi wa habari Kabendera amekuwa akiukosoa utawala wa Rais John Magufuli na mara nyingi amekuwa akisimamia upande wa uhuru wa habari
-Ameripoti kwenye vyombo vya habari vya ndani na vya kimataifa kama vile The Guardian African Arguments na The East African kuhusu siasa za Tanzania na namna zinavyowagawa watu
-JJebra Kambole ambaye ni wakili wa Kabendera anasema malamka pia zilimshtumu Kabendera kwa kauli za uchochezi dhidi ya serikali kupitia makala yake iliyochapishwa kwenye gazeti la The Economist yenye kichwa cha habari kisemacho  John Magufuli anakandamiza uhuru wa habari Tanzania Hata hivyo mashtaka haya yaliondolewa baadae
-Habari zilizonifikia hivi punde mwandishi wa habari Erick Kabendera kushatakiwa kwa kauli za uchochezi dhidi ya serikali kutokana na makala iliyochapichwa kwenye gazeti la The economist isemayo  John Magufuli anakandamiza uhuru wa Habari Tanzania maelezo kutoka kwa Zebra Kambole yanasema kwamba Bwana Kabendera amenyimwa dhamana
+Ameripoti kwenye vyombo vya habari vya ndani na vya kimataifa kama vile The Guardian African Arguments na The East African
+Jebra Kambole ambaye ni wakili wa Kabendera anasema malamka pia zilimshtumu Kabendera kwa kauli za uchochezi dhidi ya serikali kupitia makala yake iliyochapishwa kwenye gazeti la The Economist yenye kichwa cha habari kisemacho  John Magufuli anakandamiza uhuru wa habari Tanzania Hata hivyo mashtaka haya yaliondolewa baadae
+Habari zilizonifikia hivi punde mwandishi wa habari Erick Kabendera kushatakiwa kwa kauli za uchochezi dhidi ya serikali kutokana na makala iliyochapichwa kwenye gazeti la The economist isemayo  John Magufuli anakandamiza uhuru wa Habari Tanzania 
+maelezo kutoka kwa Zebra Kambole yanasema kwamba Bwana Kabendera amenyimwa dhamana
 Uraia umefanywa kama nyenzo ya kuwanyamazisha watu
 Familia ya kabendera inasema hii siyo mara ya kwanza serikali kuuliza kuhusu uraia wa kabendera
 Mwaka 2013 pia serikali ilimfungulia mashtaka yanayofanana na haya lakini kesi ilifutwa baadae hili ni kwa mujibu wa The Citizen
@@ -1676,14 +1677,11 @@ Alikuja kama mkufunzi aliyealikwa kuja kutufundisha shule ya uandishi wa habari 
 Lakini pamoja na kuwa nasi kwa muda mfupi nilijifunza mengi kutoka kwake
 Mtumiaji mwingine wa mtandaoni aanafikiri kukamatwa kwa Kabendera na kubambikiwa makosa ni alama ya tahadhari kwa wananchi wengine
 SIMTETEI Kabendera Kwasababu Ni Mtanzania Au Sababu Ni Mwanahabari NAMTETEA Kwasababu Naishi Tanzania Anayoishi Erick
-Haki Isipotendeka Kwake Leo Na Nikanyamaza Inaweza Kesho Kutotendeka Kwangu VileVile
-Hakuna Aliye Salama Udhalimu Unapotawala 10k4Erick FreeErickKabendera pic
 
-makala 38
+Makala 38
 Mimi na sisi Wote ni Ivan Golunov
 Bendera iliyotolwa na Meduza na kutumiwa kwa ruhusa
-Точка кипения Haya maelezo ya lugha ya Kirusi maana yake ni kiwango cha kuchemka kiwango ambacho kikifika inatosha inakuwa inatosha labda njia nzuri ni kuwasilisha namna idadi ya warusi walioguswa na kukamatwa kwa Ivan Golunov mwandishi mchunguzi maarufu inavyoongezeka
-Alikamatwa tarehe 6 Juni Moscow kwa kile kinachoonekana  mashitaka ya kusingiziwa  ya kujihusisha na kumilki madawa ya kulevya
+Точка кипения Haya maelezo ya lugha ya Kirusi maana yake ni kiwango cha kuchemka kiwango ambacho kikifika inatosha inakuwa inatosha labda njia nzuri ni kuwasilisha namna idadi ya warusi walioguswa na kukamatwa kwa Ivan Golunov mwandishi mchunguzi maarufu inavyoongezeka Alikamatwa tarehe 6 Juni Moscow kwa kile kinachoonekana  mashitaka ya kusingiziwa  ya kujihusisha na kumilki madawa ya kulevya
 Golunov alikamatwa na kukataliwa kuonana na mwanasheria jambo ambalo ni kinyumecha sheria za Urusi
 Mwanasheria wake alithibitisha ana maumivu makali akiwa mahabusu 
 Baada ya kupelekwa hospitalini aliruhusiwa na kuwekwa kwanye nyumbe maalumu tarehe 8 Juni
@@ -1706,7 +1704,7 @@ Watu wanaomuunga mkono Golunov wametangaza kuwa watakuwa na matembezi yao wenye
 Waangalizi wa Kremlin wanasema serikali ya Urusi inaangalia kuondoa mashtaka dhidi ya mwandishi wa habari huyo  kabla ya tarehe 20 Juni
 Siku ambayo Rais  Vladimir Putin ambaye viwango vyake vimeshuka katika historia  nchini atakuwa anaongea na  simu moja kwa moja  katika kipindi cha kuongea na umma kwa mwaka ambapo anapokea maswali kutoka kwa wananchi kwa simu na mitandao ya kijamii
 
-makala 39
+Makala 39
 Mwandishi Mkenya Binyavanga Wainaina akiwa kwenye sherehe ya Kitabu Brooklyn mwaka 2009
 Wainaina aliyekuwa na miaka 48 alifariki Jumanne tarehe 22 Mei katika Mji wa Nairobi Kenya
 Ni masaa 24 tu tangu  Binyavanga Wainaina Mwandish Mkenya kutoweka katika ulimwengu huu lakini uwepo na athari yake vinaendelea kurindima duniani kote
@@ -1752,7 +1750,7 @@ Mimi ni mwafrika wa waafrika wote ninahitaji kuona bara hili likibadilika
 Mara kwa mara Wainaina alipitsha shauku lake la madiliko kupitia uandishi wake elimu na uongozi
 Mwaka 2002 baada ya kushinda tuzo bora ya Caine kwa makala yake ya kugundua nyumbani  alitumia fedha ya tuzo hiyo kushirikiana  kuanzisha Kwani Gazeti lenye lengo la kuendeleza sauti  na fikra mpya zinazoibuka barani kote
 Kwani iliendelea kwa muda likichapishwa na kuwa na mtandao ukiwaunganisha waandishi kutoka Lagos to Nairobi Mogadishu hadi Accra
-Soma zaidiTunafanya kazi kuzuia milipuko Neno la kuzungumzwa katika Afrika Mashariki 
+Soma zaidi Tunafanya kazi kuzuia milipuko Neno la kuzungumzwa katika Afrika Mashariki 
 Wakati alitikisa bila huruma mikataba ya kijamii Kenya   alivyojitokeza hadharani kuwa ni shoga na baadaye kuweka wazi kuwa ana virusi vya ukimwi kupitia Twitter siku ya UKIMWI duniani mwaka 2016  mara nyingi ilileta maumivu kushindana na it often came with backlash struggle and pain
 Wainaina alikuwa mtu  mtata ambaye alipambana akiwa na msongo na mara nyingi alipigana sana kutokana na  kuwa mtu mashuhuri shoga lilionekana ni jukumu lake tata katika jamii kama mtu wa watu
 Alikuwa na mashabiki lakini alikumbana na ukosoaji kutoka kwa mwandishi mashuhuri Shailja Patel ambaye alimshtumu Wainaina kuwa mtu mwenye sumu ya kuwachukia watu wa jinsia moja wenye mahusiano ya kimapenzi
@@ -1762,8 +1760,9 @@ Ninasikitika sana kwamba aliumiza wengine
 Ninasikitika kwamba alikosea kama binadamu angetuchukia tukimsafisha
 Mwandishi Bwesigye Mwsigire mkurugenzi wa Writivism Festival nchini Uganda pia  alielezea mkanganyiko huu   kupitia Facebook
 mtindo wake wa maisha ilikuwa ni tatizo
+Nzuri na kuachia makosa Beautiful and freeing transgression
 Watu tunaoshikilia kwa sababu ya kazi na mawazo yao ni watu tu
-Ni binadamu
+Ni binadamu 
 Tupo tayari kuwapenda katika changamoto zao Are we ever ready to love them in their complexity
 Kwa sasa mengi yamezungumzwa juu yake
 hakuna haja ya kurudia yaliyosemwa
@@ -1775,11 +1774,11 @@ Tusherehekee maisha yake
 Kipaji cha udadisi
 A queer icon Binya  kama alivyokuwa akijulikana sana   often received torrents of vitriolic antigay rhetoric that only spiked online as the news of his death spread across various channels
 Mwanaharakati Mkenya Boniface Mwangi atuma ujumbe kupitia Twitter baada ya kutuma ujumbe wa kusifia Wainaina kupitia Facebook chuki na maoni ya ushoga zilifuata ujumbe wake
+that after writing a Facebook tribute to Wainaina hateful homophobic comments derailed his message  Wainaina alikuwa mtu mwenye kipaji cha udadisi ambaye inapaswa akumbukwe
 Nilituma ujumbe mfupi kupitia Facebook juu ya kifo cha Binyavanga RIPBinyavanga kulikuwa na maoni mabaya na aibu sana sijawahi kusoma
 Hata wezi ambao hutuibia kodi na kuua watu hawapati chuki kubwa kama ile
 Ukweli ni Binya alikuwa na akili na kipaji cha udadisi na ataendelea kusomwa na kukumbukwa
 Mganda ambaye ni mtetezi wa haki za akina mama na mwandishi Rosebell Kagumire alitonesha kile alichojifunza kutoka kwa ushupavu wa Wainaina wa kusema wazi
-Do not allow the fear
 Msiruhusu woga
 Msijizuie ninyi wenyewe
 Ongeeni kile kinachohitajika kusemwa
@@ -1795,10 +1794,13 @@ Siku moja nitaandika juu ya kukataa kwako
 Leo naandika asante
 Mkenya Yvonne Adhiambo Owuor ambaye ni mwandishi wa habari na mwandishi wa Dust na kwa kweli rafiki wa Wainaina anahitimisha kwa maombolezo ya mwisho
 Nani alikuambia uondoke kutoka kwenye mwili wako usiku bila kuacha anuani mpya
-Uso umeinama macho yanachoma alisema Una sekunde 3 tu za kurekebisha manunguniko wewe kule
-Wewe nani alikuambia uondoke Kutoka mwilini mwako bila kuacha anuani mpya Ni kwa nani mtu anaweza kwenda kwa hofu na kutetemeka akiwa maandishi ya kujaribia Sasa yeye ni miongoni mwa watu mashuhuri unaweza kuungana na sayari ya Binya ukiwa na kumbukumb kubwa ya kazi yake Sina nguvu za kutosha lakini ninamlilia Binya kama rafiki yangu mpendwa katika ugeni na utetezi wangu Ninasikitika sana kwamba aliumiza wengine Ninasikitika kwamba alikosea kama binadamu angetuchukia tukimsafisha
+Uso umeinama macho yanachoma alisema
+Una sekunde 3 tu za kurekebisha manunguniko 
+wewe kule
+Wewe nani alikuambia uondoke Kutoka mwilini mwako bila kuacha anuani mpya Ni kwa nani mtu anaweza kwenda kwa hofu na kutetemeka akiwa maandishi ya kujaribia
+Sasa yeye ni miongoni mwa watu mashuhuri unaweza kuungana na sayari ya Binya ukiwa na kumbukumb kubwa ya kazi yake
 
-makala 40
+Makala 40
 Ukurasa wa mbele wa gazeti la de Angola kuhusu zabuni iliyoshinda ya kampuni ya Telstar
 iiliyopigwa na Dércio Tsandzana tarehe 19 Aprili 2019 na kwa idhini
 Rais wa Angola João Lourenço tarehe 18 Aprili alifuata zabuni ya serikali kwa ajili ya mwendesha simu za mkononi katika nchi hiyo akisema kwamba mshindi wa zabuni Telstar hakukidhi vigezo muhimu vinavyohitajika kutoa huduma hiyo
@@ -1809,9 +1811,6 @@ Gazeti la Observador lilitaarifu kwamba makampuni 27 yalishiriki katika mchakato
 Kutokana na gazeti la Angola tarehe 25 Aprili João Lourenço alisaini taratibu ambazo ziliweka sheria mpya kwa ajili ya kufungua mwaliko wa zabuni
 Baada ya matokeo ya zabuni ya kwanza kuwekwa wazi kwa umma wananchi wengi wa Angola walihoji uadilifu katika mchakato huo
 Wengine walikwenda mbali kwa kusema kwamba mshindi Telstar hajawahi kuwa na tovuti haya yalisemwa na Skit Van Darken mhariri na muongozaji wa vipindi kupitia Facebook
-A Telstar  Telecomunicações Lda constituída a 26 de Janeiro de 2018 com capital de 200
-000 Kwanzasde acordo com o Diário da República cujos accionistas são o general Manuel João Carneiro 90 do capital na reforma e António Cardoso Mateus 10
-Tafsiri Telstar  Telecommunications Ltd ilianzishwa tarehe 26 Januari 2018 na mtaji wa Kwanza 200000 kutokana na gazeti la Diário da República ambalo wadau wake ni  the general Manuel João Carneiro asilimia 90 na  António Cardoso Mateus asilimia 10
 Mshikadau mkubwa ana uhusiano na kampuni ya Mundo Startel kampuni yenye dhima inayojitosheleza iliyosajiliwa INACOM mdhibiti wa mawasiliano akiwa na leseni ingawa imeshapita muda wake
 kampuni ambayo haina hata tovuti
 SIAMINI HATA KIDOGO KWAMBA KULIKUWA NA WASHINDANI WENGINE
@@ -1824,13 +1823,9 @@ Nina uhakika kabisa kuwa siku za waziri wa mawasiliano na teknolojia ya habari z
 Baada ya kushindwa na  ANGOSAT 1 sasa na hiki tunachoshuhudia leo nina wasiwasi kama Hofu kama itafanya lolote
 Tufurahie mchezo huo kimya kimya
 Uamuzi wa Rais ulikuja baada waziri yule yule aliyeongoza mwaka 2017 mradi wa setilaiti Angosat 1   anaingia kwenye matatizo   tena
-Adriano Sapiñala makamu wa chama kikuu cha upinzani yeye anaona tatizo linaonesha mfarakano katika serikali
-JLo tem de andar a combinar bem com os seus auxiliares porque ontem o Ministro de tutela dizia que o tempo das reclamações tinha terminado e por isso a Telstar teria avançado com os passos subsequentes sendo ela vencedora do concurso fraudulento e hoje JLo vem e anula o concurso Vocês comunicam assim tão mal
-Agora ou o Ministro coloca o seu cargo à disposição demitindode ou então JLo tem de o exonerar porque se anulou o concurso é porque não correu bem e para não beliscar ninguém inocente que se apurem responsabilidades
-Tafsiri JLo João Lourenço anapaswa kupanga vizuri timu yake kwa sababu jana waziri mwenye dhaman alikuwa anasema kwamba muda wa malalamiko umeisha na kwa hiyo Telstar ingeendelea na hatua inayofuata kutokana na kwamba ilikuwa mshindi wa zabuni ya ulaghai na leo JLo anajitokeza na kufuta zabuni Mawasiliano si mazuri
 Sasa labda waziri aweke msimamo wa kujihuzuru au JLo anapaswa kumfukuza kwa sababu kama amefuta zabuni ni kwa sababu mchakato wake haukuwa mzuri na ili isiathiri mtu yeyote safi lazima watu wawajibike
 
-makala 41
+Makala 41
 Blanka Nagy akizungumza katika maandamano ya Januari 2019
 Picha na Márk Tremmel CC BYNCSA 2
 5
@@ -1852,8 +1847,6 @@ Chanzo hicho cha habari kiliamua kuchapisha taarifa kutoka katika ripoti ya mato
 When VyomboVinavyoungamkonoserikaliHungary  vyadanganya kuhusu binti mdogo mwandamanaji Blanka Nagy amewashtaki kwa kumkashfu na akashinda
 Wametakiwa waombe radhi na kurekebisha taarifa yao lakini wamekataa na kuendelea kumkashfu
 Kituo cha runinga cha TV2 kilitenga muda wote wa taarifa ya habari kukashifu matokeo yake wakitaja nakala zilizopelekwa mahakamani lakini hawakusema hukumu ilikuwaje httpst
-coMyllWb2Jwh
-Joost almodozo April 5 2019
 Mimi na Wakili wangu tunafikiria kuwashitaki chanzo cha habari kilichochapisha nakala ya matokeo yangu kutoka shuleni Nagy aliwaambia Atlatszo katika mahojiano
 Alisema kuwa Origo hawakuwa na haki ya kuchapisha matokeo yake
 Yeye na wakili wake wanadhani kuwa Origo hawakuwa na haki hata ya kuyaona matokeo yake walipoyawakilisha mahakamani
@@ -1868,14 +1861,11 @@ Blanka Nagy mwanafunzi wa shule ya upili Fidesz anatia kinyaa mzandiki mbaya na 
 Kikundi hiki kiovu cha majambazi serikali hii ya wachache wanaojaza mifuko yao kwa ajili ya maisha yao ya uzeeni wakati ninyi mnataabika kwa Umaskini mkiwa wastaafu
 Alisema ukweli
 HII ndiyo Hungary
-httpst
-coN8ar0prXj6
-Zsuzsa Gál JulieSueGal April 6 2019
 Kukashfu na kutoa taarifa za uongo ndizo silaha pekee za vyombo vinavyounga mkono serikali ya Hungary
 Baadhi ya mamlaka za upinzani zimejibu kwa kuvishtaki vyombo hivyo vya habari kwa kukashfu
 Kulingana na takwimu za hivi karibuni zilizokusanywa na Atlatszo vyanzo vikuu vya propaganda vimeshindwa kesi nyingi na viliamriwa na mahakama kusahihisha taarifa mara 109 kwa mwaka 2018
 
-makala 42
+Makala 42
 Hawawezi kutuwekea mawazo yao vichwani mwetu hivyo wanatupiga risasi SOSNicaragua Ndivyo linavyosomeka bango la mwandamanaji mmoja wakati wa maandamano kwa ajili ya wafungwa wa kisiasa huko Managua
 Agosti 2018
 Picha na Jorge Mejía Peralta CC BY 2
@@ -1886,28 +1876,17 @@ Maandamano yalianza kwa kupinga mabadiliko ya sera za mifuko ya hifadhi za jami
 Mwanzoni mchakato huo ulifanywa na mamlaka ulifungua mlango wa maandamano ya nchi nzima yakimtaka Rais Daniel Ortega mkewe na Makamu wa Rais Rosario Murillo wajiuzulu
 Takwimu za vifo vilivyotokana na maandamano hayo yanapishana na hayajahuishwa tangu mwaka jana kwa sababu vikwazo dhidi ya uwekaji wa taarifa na kumbukumbu umeongezeka
 Disemba 2018 serikali iilizifungia baadhi ya NGO ambazo zilikuwa zikifuatilia kwa karibu vurugu za polisi na uvunjaji wa Haki za Binadamu ikiwepo kituo cha Haki za Binadamu cha Nicaragua Cenidh na Taasisi ya Maendeleo ya Demokrasia Ipade
-
 Pia Disemba hiyo vikundi viwili vya Kamisheni ya Haki za Binadamu Ndani ya Amerika IACHRMpango Maalumu wa Kuratibu Ufuatiliaji Nicaragua MESENI na Kikundi cha Wanazuoni Huru wa Fani Mbalimbaliwalifukuzwa kutoka nchini na kuiacha Nicaragua bila chombo huru cha kusimamia Haki za Binadamu na kufungua hatua mpya ya unyanyasaji hii ni kulingana na Mwanaharakati wa haki za Wanawake na Muelimishaji María Teresa Blandón
 Soma zaidi Sisi ni Wahanga tunaowasaidia wahanga Wakinakili uvunjaji wa Haki za Binadamu Nicaragua
 Makadirio ya chini ya majeruhi waliotambuliwa na serikali Agosti 2018 imeongezeka na kufika 197
 Hata hivyo Shirika la Haki za Binadamu limekaridia kuwepo kwa vifo 322 mpaka ilipofika Septemba 18 2018 ambapo vifo vingi vilikuwa kwa kupigwa risasi kichwani shingoni na kifuani
 Mwanablogu Ana Siú aliandika kwenye Medium hivi karibuni kuhusu uzoefu wake katika maandamano ya Aprili 2018
-A través de una transmisión en vivo en Instagram vi a una amiga de la universidad ser atacada por turbas
-Escuché cómo ella gritaba y luchaba por no salir lastimada  Finalmente el motorizado la soltó pero se llevó consigo el celular sin saber que seguía transmitiendo
-Entonces dijo vamooos vamooos
-Hay que llevar estos celulares a revisarlos
-Esto siguió como por 20 minutos
-
 Nilimuona rafiki yangu wa chuoni akiwa anashambuliwa na genge kupitia Instagram Mubashara
 Nilimsikia akipiga kelele na akipambana kuepuka kuumizwa  Mwishowe mwanaume aliyemshambulia akiwa kwenye pikipiki alimwacha lakini alichukua simu yake
 Hakujua kuwa bado anaonekana mubashara
 Kisha akasema tuondoke Tunatakiwa kuzichukua hizi simu zikakaguliwe
 Tukio hilo liliendelea kwa dakika 20
 Pia aliangazia kuhusu maandamano ya Mei 30 ambapo yalikuwa maandamano ya kihistoria yaliyoitishwa katika tarehe ambayo Nicaragua husherehekea siku ya Mama ambapo watu 15 waliuawa
-Este día cambió la forma en que vivíamos las protestas
-Los que estábamos en esa marcha multitudinaria vimos cómo asesinaron a jóvenes
-Fue la primera vez que atacaron con balas de plomo a una marcha masiva
-Nunca me había sentido tan cerca de la muerte como esa tarde
 Siku ile tulibadili mitazamo yetu kuhusu maandamano
 Baadhi yetu tuliokuwa katika maandamano yale tuliona jinsi walivyokuwa wanawaua vijana
 Ni mara ya kwanza polisi  kushambulia maandamano makubwa kama yale kwa risasi za moto
@@ -1918,37 +1897,33 @@ Serikali iliwashambulia waandamanaji waliotengeneza vizuizi vya kujilinda na kuj
 Waandamanaji walizidi kujihusisha na vurugu na mapigano na kufikia Agosti 2018 vilikuwa vimetokea vifo 22 vya maafisa wa polisi na hii ni kulingana na takwimu za serikali
 Katikati ya 2018 polisi walianzisha walichokiita operación limpieza Operesheni ya kusafisha kuharibu vizuizi na kuwashtaki watuhumiwa walioshukiwa kujihusisha navyo
 Taarifa zinasema kuwa vyombo vya usalama vilifanya hivyo vikishirikiana na Vikundi vya wanamgambo
-Wanafunzi wengi viongozi wa harakati za wakulima wapigania haki na wanahabari walilengwa katika kampeni hiyo hatari na wengi wao wameshtakiwa na baadhi ya watumishi wa afya waliohudumia majeruhi wakati wa maandamano wamepata misukosuko kwa kile walichokifanya
+Wanafunzi wengi viongozi wa harakati za wakulima wapigania haki na wanahabari walilengwa katika kampeni hiyo hatari na wengi wao wameshtakiwa 
+na baadhi ya watumishi wa afya waliohudumia majeruhi wakati wa maandamano wamepata misukosuko kwa kile walichokifanya
 Chama cha Madaktari wa Nicaragua wamesema kuwa angalau madaktari 240  walifukuzwa kazi katika hospitali za umma kama njia ya kuwakomoa
 Soma zaidi Waandamanaji wa Nicaragua na waandishi wa habari wakumbana na mashambulizi makali mitaani na kwenye mitandao
-
 Hapo Septemba maandamano yalifanywa kuwa sio halali tena na shughuli zozote kwa sasa katika mitaa zinahitaji kibali maalum kutoka kwa mamlaka ambapo mara nyingi vibali hivyo hukataliwa
 Hapo Februari 27 2019 meza ya  mazungumzo ilirejelewa kati ya serikali na chama cha upinzani Alianza Cívica por la Justicia y la Democracia Muungano wa Haki na Demokrasia kwa Raia ikifuatiwa na kuachiliwa huru kwa mamia ya watu kutoka gerezani
 Ukilinganisha na mazungumzo ya kipindi kilichopita kikao hiki hakikujumuisha viongozi wa harakati za wakulima na wanafunzi kwa sababu baadhi yao wako kifungoni na wengine wapo uhamishoni
 Sio Rais mpya pekeeni mwanzo mpya
 Kwa kuwa mgogoro huu wa nchi unaingia mwaka wa pili sasa wahka na wasiwasi wa kesho ya Nicaragua umebebwa na hashtagi SOSNicaragua ambayo hutolewa kila siku pamoja na madai picha za waathirika na vilio juu ya wanafunzi walio magerezani na familia zao
-
 Soma zaidi Wanaharakati wa Diaspora wa Nicaragua wabeba mzigo mara mbili
 Chanzo cha habari cha Nicaragua Niú waliwahoji waandamanaji walioongoza maandano ya Februari katika maeneo ya jirani na Costa Rica na walielezea ugumu wa maisha waliyo nayo huko uhamishoni
 Alejandro Donaire mwanafunzi alisema kuwa alikimbia nchini baada ya kushiriki maandamano ya amani aliiambia Niú jinsi ilivyo vigumu kujisikia kuwa sehemu ya jamii na maisha ya kawaida baada ya kutumia muda mrefu kwa  kuishi kwa kujificha kukimbia na kuandamana
 Madelaine Caracas msemaji wa kikundi cha wanafunzi kinachofahamika kama Ushirikiano wa Wanafunzi kwa Demokrasia pia alishirikisha Niú kiu yake ya kutaka kuona mabadiliko ya Nicaragua ambayo yatakuwa ni zaidi ya Ortega kuondoka
-Tenemos que erradicar autoritarismos machismos caudillismo y demás males que han penetrado en la cultura política del país  Ahora más que nunca estamos seguros de que Ortega se va este año  este año estaré en Nicaragua y tengo esa seguridad porque Ortega está ahogado internacionalmente está ahogado económicamente y también porque la parte insurreccionada que se levantó en abril está hoy más que nunca más organizada
 Tunataka kuuondoa udikteta ukandamizaji wa kijinsia ubinafsi na madhaifu mengine ambayo yamejipenyeza katika utamaduni wa siasa za nchi
-Tunaamini zaidi kuwa Ortega ataondoka mwaka huu na kwamba nitarudi Nicaragua mwaka huu
-Na nina hakika kwa sababu Ortega kwa sasa hasikiki katika anga za kimataifa na za kiuchumi na pia kwa sababu wale wote walioshiriki maandamano ya Aprili wamejiandaa kikamilifu kwa sasa
+Tunaamini zaidi kuwa Ortega ataondoka mwaka huu na kwamba nitarudi Nicaragua mwaka huu Na nina hakika kwa sababu Ortega kwa sasa hasikiki katika anga za kimataifa na za kiuchumi na pia kwa sababu wale wote walioshiriki maandamano ya Aprili wamejiandaa kikamilifu kwa sasa
 Raundi hii ya mwisho ya mazungumzo kati ya Serikali na upinzani ilifikia mwisho Aprili 3 kukiwa na makubaliano katika mada mbili kati ya nne zilizojadiliwa
 Kwanza serikali imeahidi kuwa itawaachia huru wafungwa wote wa kisiasa na pili itaheshimu uhuru wa raia
 Hapakuwepo na  makubaliano yoyote yaliyofanywa kuhusu haki kwa wahanga wa vurugu za uchaguzi au kujinadi kwa ajili ya uchaguzi wa 2021
 Kikundi cha upinzani cha Muungano wa Kiraia ulisema kuwa hata hivyo serikali imeshindwa kabisa kuheshimu makubaliano hayo
 Imeendelea kuripotiwa kuwa Polisi  wameendelea kuvuruga maandamano ya amani 
 Kama ilivyokuwa April 6 ni wafungwa 50 pekee kati ya wafungwa wa kisiasa 600 walioachiliwa huru na waliowekwa katika vizuizi majumbani mwao
-
 Baadaye hapo April 17 kufuatia kitisho kipya cha kuwekewa vikwazo na Marekani zaidi ya wafungwa 600 waliachiliwa huru na kwenda kumalizia vifungo vyao katika vizuizi vya nyumbani hata hivyo kulingana na Muungano wa Kiraia ni wanachama 18 pekee wa kikundi hicho waliokuwa katika orodha ya wafungwa wa kisiasa waliokuwa na tumaini la kuachiliwa huru
 Katika fikra za watu kama vile Mwanaharakati na mtafiti Felix Madariaga kiongozi mpya wa Kesho ya Nicaragua amebaki gerezani leo
 Wakati huo huo vikundi vya upinzani vimeitisha  maandamano ya kuadhimisha kumbukumbu ya  matukio ya Aprili 2018
 Kukiwa na katazo toka kwa mamlaka na zuio la kibali dhidi ya maandamano hayo pia inatarajiwa kuwa kutakuwepo na ukandamizaji mpya kutoka kwa polisi
 
-makala 43
+Makala 43
 Picha ya video iliyotumwa na halmashauri ya mkoa wa wazawa wa Cauca
 Video inaonesha picha za waandamanaji wa maandamano yaliyotokea Kusini Magharibi mwa nchi mapema mwezi Aprili
 Wazawa wakolombia weusi na jamii za wakulima wameanza maandamano ya umma nchini Kolombia wakipinga mpango wa maendeleo ya Taifa wa Rais Ivan Duque
@@ -1984,17 +1959,9 @@ Wakati tarakimu zinatofautiana kutegemea namna kiongozi wa jamii anavyotafsiriwa
 Duque pamoja na mshirika wake mkuu Rais wa zamani Álvaro Uribe ni miongoni mwa wanaokashifu sana makuabaliano ya amani katika miezi ya hivi karibuni amejaribu kudhoofisha nguvu ya chombo maalumu  JEP cha utekelezaji  wa mapatano ya amani kilichoundwa na mwanajeshi wa msituni na serikali
 Makundi mengi yamekasirika  kwa hatua hizo ambazo wanasema zinaweza kudidimiza makubaliano ya kweli
 Watu walishirikishana sababu zilizowafanya waungane kwenye maandamano tarehe 25 Aprili  wanaenda kuandamana kwa kuwa nii kazi ya taifa ya pamoja kwa maisha
-VamosAlParoPor la Minga Indígena porque exijimos protección para los líderes sociales los excombatientes y en respaldo a la JEP y a la implementación de los acuerdos de paz
-Por mejores condiciones laborales para el magisterio y las centrales obreras
-C_Pueblos cutcolombia pic
-twitter
-com3wFAsyTeDZ
-Juan Camilo JUANCAELBROKY April 25 2019
 Tafsiri Tunaenda kuandamana kwa ajili ya umoja wa wazawa kwa sababu tuanahitaji kuwalinda viomngozi wa jamii wakulima wapiganaji katika kuunga mkono JEP na utekelezaji wa makubaliano ya amani
 Pia kuwepo na mazaingira bora ya walimu na wafanyakazi wa serikali kuu
-
-La Pulla ambayo ni redio kupitia  YouTube inayojihusisha na masuala ya kisiasa
-Katika mgogoro huu unaokuwa ilifanya uchunguzi wa kina wa video yenye kichwa cha habari Hiki ndicho huwa kinatokea pale serikali inaposahau watu wake wakichunguza historia ndefu ya serikali kutowajali katika maeneo ya nchi hasa idara ya  Cauca Nariño La Guajira na Catatumbo
+La Pulla ambayo ni redio kupitia  YouTube inayojihusisha na masuala ya kisiasa Katika mgogoro huu unaokuwa ilifanya uchunguzi wa kina wa video yenye kichwa cha habari Hiki ndicho huwa kinatokea pale serikali inaposahau watu wake wakichunguza historia ndefu ya serikali kutowajali katika maeneo ya nchi hasa idara ya  Cauca Nariño La Guajira na Catatumbo
 Mwandishi wa habari anaeleza
 La minga nos recuerda que eso no es el único lugar donde viven incumpliendo la gente y le hacen pistola cada vez que pueda
 Vemos cuatro regiones del país que el estado ignora por completa
@@ -2002,7 +1969,7 @@ Tafsiri Umoja unatukumbusha kwamba watu hawawezi kuishi bila kutekelezewa ahadi 
 Tunaona mikoa minne ambayo serikali imeisahau moja kwa moja
 Hakuna suluhusho la kudumu lililotolewa kwa mahitaji ya waandamanaji kwa hiyo maandamano yanaweza kuendelea katika miezi inayokuja
 
-makala 44
+Makala 44
 Swichi ya kuwasha na kuzima
 Picha na Andrew Huff
 Creative Commons CC BYNC 2
@@ -2020,7 +1987,6 @@ Wanaharakati mtandao wa wazi wa shirika la vyombo vya habari kwa Afrika Magharib
 Kamati ya Haki za binadamu ya Umoja wa mataifa ambayo ndiyo mtafsiri rasmi wa mkataba wa kimataifa wa haki za kiraia na kisiasa inasistiza katika kutoa maoni ya jumla namba 34 kwamba makatazo ya kuongea mtandaoni ni lazima yatiliwe umuhimu ili kupata malengo halisi
 7 Kuzima kuna matokeo yasiyo mazuri kwa watumiaji na pia nikuwanyima fursa ya kupata habari na mawasiliano ya dharura wakati huu muhimu
 Kuzima sio muhimu pia huadhiri upatikanaji wa malengo halisi kwa kuwa mara nyingi hueneza kutokuelewa na kuhamasisha watu wengi kujiunga kwenye maandamano
-
 Kwa heshima tunawaomba
 kuhakikisha kwamba mitandao ya kijamii inarudishwa katika hali yake ya mwanzo 
 Tangazeni kwa umma ahadi yenu ya kuhakikisha mtandao utakuwa wazi na mtaarifu umma kwa usumbufu wowote utakaotokea 
@@ -2030,7 +1996,7 @@ Kuzima mtandao siku ya uchaguzi inaongeza tu mashaka kwa mchakato wa uchaguzi am
 Kwa sasa Benin inafanya vibaya katika masuala ya Demokrasia
 Mitandao yote iliunganishwa na kuwashwa asubuhi tarehe 29 Aprili muda ambao kupiga kura kulikuwa kumefungwa tayari
 
-makala 45
+Makala 45
 Maandamano ya WoteKwaJan kwa ajili ya kumkumbuka mwandishi wa habari Ján Kuciak aliyeuawa pamoja na mchumba wake Martina Kušnírová huko Bratislava Machi 2 2018
 Picha na Peter Tkac CC BYSA
 Mfanyabiashara Marián Kočner ameshtakiwa kwa kuamuru mauaji ya mwanahabari Ján Kuciak na mchumba wake Martina Kušnírová mwaka 2018 kulingana na tamko la Machi 15 la Ofisi Maalum ya Mashtaka ya Slovakia
@@ -2056,8 +2022,6 @@ Tunaamini mamlaka zitatimiza ahadi yake ya kuwaleta wahusika wote mbele ya sheri
 Harlem Desir kutoka Taasisi ya Ulinzi na Ushirikiano ndani ya Ulaya aliandika
 Ninapongeza mashtaka ya leo dhidi ya mchochezi wa mauaji ya mwanahabari JanKuciak huko Slovakia
 Alilipa gharama ambayo hakustahili kwa sababu ya kuchunguza rushwa kwa viwango vya juu kabisa amekuwa alama ya uhuru wa vyombo vya habari kupambana na uhalifu wa mafioso
-Taarifa nzima httpst
-coBB8bsemt6K
 OSCE Uhuru wa vyombo vya habari OSCE_RFoM March 14 2019
 Mei 2018 baada ya kifo chake Kuciak alipewa tuzo ya Mwanahabari Mfichuaji Maovu na Mlinda Haki ya Kuhabarishwa na Umoja wa Ulaya MagharibiNordic Green Left GUENGL ndani ya Bunge la Umoja wa Ulaya
 Ikiitwa kwa jina la mwanahabari wa Maltese aliyeuawa Daphne Caruana Galizia tuzo hiyo imekusudiwa kuzitambua kazi na ushupavu wa watu katika kufichua uhalifu na rushwa kwa nguvu
@@ -2070,14 +2034,13 @@ Lakini ICJK iliweka wazi kupitia twita jinsi baadhi ya mamlaka hazitoi ushirikia
 Leo saa saba mchana mkutano wa waandishi wa habari kuhusu upelelezi juu ya kifo cha Martina na Jan utafanyika katika ofisi za Mwendesha mashtaka maalum
 Hatutakuwa pale
 Kulingana na mashtaka sisi sio wanahabari ni raia wadadisi tu ambao tunaweza kusoma tu gazetini
-justice4jan
 Kituo cha upeleleze cha Jan Kuciak icjkuciaka March 14 2019
 Pamoja na ukweli kwamba mamlaka sasa zimewashtaki wahusika wa mpango wa mauaji wanahabari na mawakili wa habari wanasisitiza kuwa bado haujapatikana ufumbuzi wa maswali kuhusiana na kesi kama vile tetesi za kuhusika kwa mwanasiasa mkubwa
 Hasa hasa mawakili wanania ya kufahamu waziri mkuu wa zamani Fico na Robert Krajmer Mkuu wa idara ya kupambana na rushwa na kitengo cha uhalifu nchini Slovakia wanajua nini kuhusu mauaji
 Marafiki na familia za Kuciak na Kušnírová tayari zimeshazitaka mamlaka kuchunguza uhusiano uliopo baina ya mshtakiwa mpya Kočner na maafisa wenye mamlaka ambao walikuwa wakimlinda kwa miongo miwili iliyopita
 Mwanasheria wa familia ya Kušnírová anahofia kuwa urafiki wa karibu baina ya Kočner na mwendesha mashtaka mkuu wa zamani wa Slovakia Dobroslav Trnka unaweza kuathiri mwenendo wa kesi
 
-makala 46
+Makala 46
 Picha za skirini kutoka katika tovuti ya papa
 mk imewekwa na Serikali ya Jamuhuri ya Makedonia Kaskazini wakati Papa alipowatembelea Mei 7 2019
 Papa Francis ataitembelea Makedonia Kaskazini Mei 2019 kwa siku mbili baada ya raundi ya pili ya uchaguzi wa Rais
@@ -2097,36 +2060,22 @@ Kipengele cha kisiasa katika ziara hiyo kinafunika umuhimu wake kidini
 Kama mkuu wa nchi Papa amepangiwa kuonana na waziri mkuu na rais anayemaliza muda wake  ambaye madaraka yake yatakoma siku tano baadaye
 Wamakedonia wanaona ziara hii kama ishara ya kutambuliwa na nchi za Magharibi na kuinua jitihada za serikali kuiweka nchi karibu na uanachama wa NATO na Umoja wa Ulaya
 Hisia hizi zinapatikana huko twita katika chapisho la jenerali mstaafu wa polisi Stojanche Angelov ambapo alitoa maoni katika ziara ya maandalizi ya Mkuu wa Taasisi ya Usalama wa Raia ya Makedonia kwa Vatican
-Благодарение на мудрата храбра и одлучна меѓународна политика на оваа Влада нашата мала држава со големи чекори оди напред
-Директорот на БЈБ Сашо Тасевски подготвува највисоко ниво на безбедност за престојот на Папата Франциск во Скопје
-Стево за Претседател pic
-twitter
-comzF2m2lvzL3
-Stojanche Angelov StojanceAngelov April 17 2019
-Asante kwa siasa za hekima na za kijasiri zilizoamuliwa na serikali hii nchi yetu ndogo inasonga mbele kwa kasi kubwa
-Mkurugenzi wa Taasisi ya Usalama wa Raia Sasho Tasevski aliandaa usalama wa hali ya juu kwa ajili ya Papa Fransis atakapokuwa hapa Skopje
+Asante kwa siasa za hekima na za kijasiri zilizoamuliwa na serikali hii nchi yetu ndogo inasonga mbele kwa kasi kubwa Mkurugenzi wa Taasisi ya Usalama wa Raia Sasho Tasevski aliandaa usalama wa hali ya juu kwa ajili ya Papa Fransis atakapokuwa hapa Skopje
 Stevo Pendarovski kwa urais
 Mwezi mmoja kabla ya safari ya Papa habari za Vatican mfumo wa habari wa Holy See waliongeza lugha ya Kimakedonia  katika kazi zake
 Ni lugha ya 34 inayopatikana katika chombo hicho
 Askofu wa Skopje Askofu Kiro Stojanov alisema hili ni tunda la awali la ziara ya kitume ya Papa Francis
 Kabla ya safari ya Kitume yaPapaFrancis kuelekea MakedoniaKaskazini hapo Mei 7 VaticanNews waongeza ukurasa unaoandikwa kwa Lugha ya Kimakedonia
-httpst
-co2obxroAMcx
-Vatican News VaticanNews April 8 2019
 Septemba Papa atatembelea Msumbiji Madagascar na Mauritius
 Global Voices imeandika mrejesho kutoka Msumbiji kuhusu ziara hiyo
 
-makala 47
+Makala 47
 Picha za skrini za video iliyochukuliwa wakati wa maandamano ya Paris Machi 28
 Mwandamanaji akiwa amebeba bango linalosema wamemuua rafiki yangu na akiandamana  pembeni ya orodha ya majina ya wahanga
 Video imeshirikishwa huko YouTube na Agence France Press kwa Kihispania
 Aprili 5 kikundi cha WaColombia wapatao 20 na umoja wa wanaharakati umewasilisha ombi rasmi kwa mahakama ya Kimataifa ya makosa ya jinai ICC kupeleleza uhalifu kuhusu mauaji makubwa ya viongozi wa kijamii  nchini mwao
 Umoja huo na wanaowaunga mkono wamewasilisha barua wenyewe huko The Hague baada ya kuandamana kwa juma moja huko Paris huku wakisimama katika miji tofauti tofauti ya Ufaransa na Ubelgiji katika njia zote walizokuwa wakiandamana
 Picha inayofuata ni ya kusanyiko lililofanyika huko Paris
-Homenaje a los 472 líderes sociales asesinados en Colombia los caminantes de la Haya hicieron trapo con los nombres de los 472 OjaláLeRinda al gobierno su política de seguridad y esta cifra no aumente PorLosLideresMarchamosALaHaya MarchamosALaHaya YoApoyoLaMarchaALaHaya pic
-twitter
-comnIkuFE33KO
-Hermisaurio  Hermisaurio2 April 2 2019
 Heshima kwa ajili ya viongozi wa kijamii 472 waliouawa nchini Colombia watembeaji kuelekea The Hague wametengeneza bango la kitambaa lenye majina yao wote
 Tunaamini serikali ina mambo ya kutosha kuhusu sera yao ya ulinzi na idadi hii haitaendelea kuongezeka
 Maandamano yalianzishwa na Umoja wa Wacolombia walio Uholanzi  na vikundi vingine kuunga mkono baadaye
@@ -2142,8 +2091,6 @@ Moja kati ya maelekezo yaliyowekwa na Mkataba wa amani  ni kuwa FARC watakabidh
 Lakini FARC wameacha ombwe la mamlaka tangu waachie maeneo yao ya zamani ambayo kwa sasa yanashikiliwa aidha na vikundi vya wanamgambo na waasi ambao hawakubaliani na mchakato wa amani
 Viongozi wa kijamii wanalengwa kwa sababu wanatetea jamii zao dhidi ya vikundi hivyo ambavyo mara nyingi huongozwa na wauza dawa za kulevya au wachimbaji haramu wa madini katika maeneo wanayoyashikilia
 Kulingana na Carlos Guevara ambaye anaongoza taasisi ya Somos Defensores sisi ni walinzi  mara nyingi viongozi wa kijamii huuawa wakiwa majumbani mwao mbele ya familia zao na mara zote hukosa msaada kutoka kwa mamlaka wanapotafuta haki
-las agresiones contra personas que se dedican a defender de los derechos humanos en Colombia está al nivel de una crisis humanitaria  los están matando porque están impulsando quitar una economía considerada ilegal y que beneficia a los narcotraficantes y grupos armados
-Y el Gobierno no está tomando medidas para proteger a esos líderes
 Ukatili dhidi ya watu waliojitolea kutetea haki za binadamu nchini Colombia umefikia viwango vya janga la kibinadamu wamekuwa wakiuawa kwa sababu ya kupambana katoka katika uchumi ambao ni haramu na unaowanufaisha wauzaji wa dawa za kulevya na vikundi vya wanamgambo wenye silaha
 Serikali haichukui hatua yoyote kuwalinda viongozi hao
 Wakati huo huo Kongamano la kitaifa la taasisi za Kicolombia ilionesha jambo la msingi kuhusu mauaji hayo ambalo limekuwa likiwekwa pembeni ukweli kwamba viongozi wengi wa kijamii wanatoka katika jamii zisizo na watu wengi
@@ -2152,7 +2099,7 @@ Mtandao wa twita nchini Colombia mara zote hutumia hashitagi ya NosEstánMatando
 Kwa maandamano ya kwenda ICC wanaharakati wanatarajia kuamsha mtazamo wa kimataifa kuhusu hatma yao
 Wakati huo huo idadi inaendelea kuongezeja tangu kuanza kwa mwaka 2019 viongozi 73 wameshatishiwa katika eneo la idara ya Boyacá pekee
 
-makala 48
+Makala 48
 Bruno Saraiva alishinda tuzo nchini Hong Kong  picha ilitolewa na Bruno 20
 04
 2019
@@ -2161,30 +2108,17 @@ Baada ya kuwashinda wapinzani watano mwanariadha huyo alishinda nafasi ya kwanza
 Pia Bruno alishinda tuzo ya ujumla kwa wanariadha bora katika kundi la pili
 Alishiriki katika makundi matatu kushindana na watunisha misuli wa kiume katika shindano la watunisha misuli nchini Hong Kong Wanaume wenye maungo  ya kimwanariadha wanaume wenye maungo thabiti na wanaume wenye maungo ya kimichezo mashindano yaliyopangwa kufanyika tarehe 23 Juni
 kama mrejesho wa  maombi yetu yaliyotumwa kupitia mazungumzo ya Facebook kuhusu mashindano yalivyokwenda Saraiva alieleza kuwa yalikuwa ni mashindano ya kwanza ambayo yalikuwa na muda mfupi wa maandalizi
-Eu fui preparado pelo Castro Cazé em apenas poucos dias e lá fomos fazer as inscrições e ele disse Bruno tu vais fazer a categoria que eu sempre quis que fizesses a mais conhecida por Classic Physique e logo na minha primeira aparição ganhei na minha categoria e fui ganhar ainda o overall como se fosse chamar todos os primeiros lugares da tua categoria
-Tafsri Nilifanyiwa mazoezi na Castro Cazé kwa siku chache sana na kisha tukaenda kujisajili
-Bruno alisema alishindana katika kundi ambalo huwa anataka kushindana ambalo linajukana kama ni kundi la watusha msuli bora na nilivyotokea tu kwa mara kwanza nikashinda katika kundi langu na kisha nikashinda kwa ujumla kwa sababu ya kushika nafasi ya kwanza katika kila kundi
+Tafsri Nilifanyiwa mazoezi na Castro Cazé kwa siku chache sana na kisha tukaenda kujisajili Bruno alisema alishindana katika kundi ambalo huwa anataka kushindana ambalo linajukana kama ni kundi la watusha msuli bora na nilivyotokea tu kwa mara kwanza nikashinda katika kundi langu na kisha nikashinda kwa ujumla kwa sababu ya kushika nafasi ya kwanza katika kila kundi
 Watu wapatao elfu 24 walimfuatilia kwenye akaunti yake ya Instagram Bruno ambaye anaishi mji mkuu Maputo ana umbo la pekee kwa watunusha misuli katika Msumbiji
 Kutokana na  Wikipedia kiingilio katika shindano la kutunisha misuli
 Kunisha msuli ni zoezi endelevu la ukinzani kutawala na kuendeleza misuli kwa madhumuni ya uzuri
 Mtu anayejiunga katika shughuli hiyo anaitwa mtunisha misuli
 Katika mashindano mtunisha misuli husimama katika mstari na kuonesha mikao mbalimbali ili jopo la waamuzi liwapime na kuwaweka katika matabaka ya uzuri kwa kuzingatia vigezo kama hali zao misuli na ulinganifu
 Saraiva alielezea furaha yake ya kushinda tuzo huko Hong Kong kwa kutuma ujumbe kupitia Instagram
-Obrigado pela vitória senhor
-É com muita alegria que tenho o prazer de anunciar e compartilhar com todos vocês a minha vitória na categoria Classic Physique e tendo vencido o overall na competição global clássica em Hong Kong
 Tafsiri Nakushukuru kwa ushindi Bwana
 Ninayo furaha kubwa ya kutangaza na kushirikiana nanyi kwa ushindi wangu katika kundi bora la watunisha misuli na kushinda ushindi wa jumla katika mashindano ya kimataifa ya kutunisha misuli nchini Hong Kong
 Katika  ujumbe mwingine  Bruno alielezea vikwazo au ugumu aliokutana nao kabla ya kwenda nchini Hong Kong
-Por favor meu amigoa leia esta mensagem com muito carinho porque essa é a mais pura realidade não tenho vergonha de dizer e sei que muitos vão se emocionar quando estava pra vir a Hong Kong pra competir andei em vários sítios batendo as portas pedindo apoio falei com varios amigos que alguns eu tinha a certeza que pudessem ajudar e as respostas de alguns eram
-1
-Bruno tu não vas conseguir ou seja não tens chances de ganhar e nem de ficar entre os melhores
-2
-Outros diziam que não me podiam ajudar porque seria deitar fora o dinheiro
-3
-Outros ate disseram Bruno você deve fumar muita maconha
-Tafsiri Tafadhali rafiki yangu soma ujumbe huu kwa ukarimu kwa sababu ni uhalisia
-sina soni kuuelezea na najua wengi watahamaki sana
-Nilipokuwa nakaribia kuja Hong Kong kumalizia nilipita sehemu nyingi nikipiga hodi na kuomba msaada niliongea na marafiki zangu wengi ambao wengi niliamini watanisaidia na majibu yao yalikuwa haya
+Tafsiri Tafadhali rafiki yangu soma ujumbe huu kwa ukarimu kwa sababu ni uhalisia sina soni kuuelezea na najua wengi watahamaki sana Nilipokuwa nakaribia kuja Hong Kong kumalizia nilipita sehemu nyingi nikipiga hodi na kuomba msaada niliongea na marafiki zangu wengi ambao wengi niliamini watanisaidia na majibu yao yalikuwa haya
 1
 Bruno hutashinda na huna nafasi ya kushinda au kumaliza miongoni mwa wale bora
 2
@@ -2192,15 +2126,14 @@ Wengine walisema hawawezi kunisaidia kwa sababu watakuwa wanapoteza fedha yao
 3
 Wengine hata waliniambia Bruno lazima unavuta bangi
 
-makala 49
+Makala 49
 Ould Mkhaitir alihukumiwa kifo mwaka 2014 kutokana na maoni aliyoyatoa katika kipande cha habari kilichochapishwa mtandaoni
 Pamoja na hukumu yake ya kifo kubadilishwa  zaidi ya mwaka mmoja uliopita mwanablogu wa Mauritania Mohamed Cheikh Ould Mkhaitir bado yuko gerezani 
 Ould Mkhaitir alihukumiwa kifo mwaka 2014 baada ya kutoa maoni katika makala iliyochapishwa katika tovuti ya gazeti la Aqlame
 Katika makala hiyo yenye kichwa cha habari Dini Udini na Wafanyabishara Ould Mkhaitir alikosoa majukumu ya mfumo wa dini nchini Mauritania na alitumia hadithi za maisha ya Mtume Muhammad kuthibitisha maoni yake
 Makala halisi iliondolewa katika tovuti hiyo na Aqlame lakini bado ipo katika mitandao
 Mahakama ilimkuta na kosa la kuisaliti dini na alihukumiwa kifo chini ya Kifungu cha sheria 306 na Hukumu ya Kifo ya Mauritania
-
-Hapo April 2016 mahakama ya rufaa iliendelea kukazia hukumu hiyo na kuihamishia kesi yake katika mahakama kuu ambapo nayo iliirudisha  kesi hiyo katika mahakama ya rufani kwa sababu ya kukiukwa kwa taratibu
+Hapo Aprili 2016 mahakama ya rufaa iliendelea kukazia hukumu hiyo na kuihamishia kesi yake katika mahakama kuu ambapo nayo iliirudisha  kesi hiyo katika mahakama ya rufani kwa sababu ya kukiukwa kwa taratibu
 Hapo Novemba 2017  hukumu yake ya kifo ilibatilishwa na kupunguzwa hadi kifungo cha miaka miwili gerezani na faini  katika mahakama ya rufaa
 Hata hivyo pamoja na kuwa alishakaa gerezani zaidi ya miaka miwili mamlaka husika hazikumwacha huru Ould Mkhaitir
 Karibu miezi 18 baada ya uamuzi wa mahakama ya rufaa kumwachilia huru ameendelea kuwa kizuizini
@@ -2214,35 +2147,23 @@ Lakini kuanzia wakati huo wafanyakazi wa Umoja wa Mataifa na wafanyakazi wa Hak
 Serikali ya Mauritania hukataa kuendelea kuwepo kwa utumwa katika nchi na watu wengi kama vile Ould Mkhaitir ambao huzungumza wazi kuhusu matendo ya ubaguzi dhidi ya Waharatine wamekuwa wakishtakiwa na kufungwa
 Septemba iliyopita mamlaka  zilimfunga mwanaharakati Abdallahi Salem Ould Yali kwa kutuma ujumbe katika kundi la WhatsApp wenye  uchochezi na kueneza chuki za kikabila na kuharibu  usalama wa jamii yake
 
-makala 50
+Makala 50
 Shawkan akiufurahia mchana kabla hajafungiwa tena wakati wa usiku
 Picha imepigwa na Wael Abbas na kubandikwa katika ukurasa wa Mwanahabari za Picha huko Twitter
 Mwanahabari za picha wa Misri Mahmoud Abu Zeid ambaye pia hufahamika kama Shawkan alitumukia miaka mitano gerezani kwa kutimiza wajibu wake tu kama mwanahabari
-
 Aliwekwa kizuizini Agosti 2013 alipokuwa akipiga picha mtawanyiko wa kikao cha Rabaa El Adaweya ambapo waungaji mkono wa Rais wa zamani wa Misri Mohamed Morsi walikusanyika wakipinga mapinduzi ya kijeshi ambapo uongozi wake uliishia Julai 3 mwaka huo huo
 Vyombo vya ulinzi vya Misri vilipowatawanya watu hao waliuwawa watu karibu 817 kujeruhi wengi wao na hii ni kulingana na Shirika la Haki za Binadamu
 Shawkan aliyekuwa akifanya kazi na Demotix wakati wa kukamatwa kwake alitumia karibu miaka minne akiwa mahabusu kabla ya kuanza kusikilizwa kwa kesi yake akiwa na watuhumiwa wengine 739 wa shauri lililokuja kujulikana kama Kesi ya Mtawanyo wa Rabaa kuanza
 Septemba 2018 Mahakama ya Jinai ya Cairo ilimkuta na hatia ya kosa la mauaji na kujihusisha na kikundi cha Kiislam Cha Muslim Brotherhood na miezi michache baadaye aliachiliwa huru kutoka gerezani
-
 Wanaomuunga mkono Shawkan walifurahishwa kwa kumuona akiungana na wapendwa wake alipoachiliwa Machi 4
 Lakini mwandishi huyo ni kuwa hayupo huru moja kwa moja
 Kila siku jioni saa 12 anatakiwa kuripoti katika kituo cha polisi cha karibu naye na hulala hapo usiku wote kisha huruhusiwa tena kuondoka saa 12 asubuhi inayofuata
 Shawkan anapaswa kufanya hivi kila siku kwa miaka mitano baada ya kuachiliwa kwake
-
 Ninataka kuwa huru ili niweze kuyarudia maisha yangu ya kawaida Shawkan aliiambia Sauti ya UjerumaniDeutsche Welle Baada ya kuachiliwa kwake  katika kipindi chake cha uangalizi
-
 Uko Twitter na Instagram mwanahabari huyo amekuwa akitafakari na kushirikisha kuhusu maisha yake chini ya sheria hizi zinazombana na masaa yake ya uhuru kuanzia saa 12 asubuhi mpaka saa 12 jioni
-
 Machi 31 aliandika kuhusu yeye kutembelea mapiramidi huko Giza
-الاهرامات من ورا 
-فسحة قريبة من مكان المراقبة عشان الوقت
-pyramids Egypthalffreesomfrom6to6 pic
-twitter
-comwS1iGfoUxd
-Shawkan ShawkanZeid March 31 2019
 Mapiramidi yako kwa nyuma
 Matembezi katika eneo la karibu na kituo cha uangalizi kituo cha polisi ambapo anatakiwa kulala usiku kwa sababu ya ukosefu Wa muda
-Aprili 6 akitumia hashitagi ya نص_حرية Nusu Uhuru alibandika picha huko Instagram aliyopiga akiwa kwenye pikipiki
 Alielezea kuwa ili kufika katika kituo cha polisi kwa wakati kila usiku husafiri kwa pikipiki ili kuwahi foleni barabarani 
 Habari ya Shawkan sio mpya kwa Wamisri
 Mwanablogu maarufu na mwanaharakati wa Misri Alaa Abd El Fattah ambaye aliachiliwa huru kutoka gerezani Machi 28 naye yupo katika uangalizi na kwa muda wa namna hiyo hiyo
@@ -2258,7 +2179,6 @@ Lakini pia sijui jinsi ya kuuelezea ukatili wa kumuacha katikati ya mafunzo yake
 Dada yake Alaa Mona Seif ambaye pia ni mwanaharakati wa Haki za Binadamu alifananisha masharti ya kifungo cha kaka yake kila siku usiku kama vile Bughudha ya faragha
 Alaa hutakiwa kujipeleka kwenye Kituo cha polisi cha Dokki kila siku saa 12 jioni na humwachilia huru kila siku saa 12 asubuhi
 Anaporipoti kituoni humtenga na wengine katika kibanda kidogo cha mbao kilicho ndani ya kituo cha polisi na humfungia humo kwa masaa 12
-
 Hizi taratibu mbaya kabisa kuliko zile alizovumilia akiwa gerezani kwa miaka mitano
 Alaa kwa sasa anatumia nusu siku yake kifungoni katika kituo cha polisi na anaitazama miaka hiyo mitano ya jinamizi hili
 Alaa ametambua kuwa kuna hatari ya kuongezewa muda wa kifungo gerezani ikiwa ataendelea kuzizungumzia taratibu hizo
@@ -2266,11 +2186,6 @@ Katika usiku wa Aprili 9 maafisa wa usalama walimtishia kumrudisha gerezani ikiw
 Ahmed Maher mwanaharakati za kisiasa aliyekuwa na harakati za vijana Aprili 6 alitumikia miaka mitatu gerezani kwa kufanya maandamano haramu
 Aliachiliwa huru  Januari 2017 na aliwekwa chini ya uangalizi wa polisi kwa kipindi sawa na kile alichokaa gerezani
 Huko Twitter alielezea taratibu za wakati huo
-في المراقبة بيكون مكان النوم أكثر قذارة من السجن والتعسف بيكون اكتر رغم إن بالقانون مش من حقهم يحبسونا في القسم ولا يحرمونا من عيالنا وشغلنا ودراستنا وحياتنا الطبيعية
-بالقانون ممكن المراقبة تكون ألطف وأكثر آدمية لكن واضح إن المحرك هو الرغبة في التنكيل والإذلال ليس إلا
-httpst
-covIARjRLS3K
-Ahmed Maher Ahmed_Maher08 April 4 2019
 Chini ya uangalizi wa polisi tulipokuwa tunalala palikuwa pachafu kuliko gerezani na kulikuwa na uholela uliopitiliza ingawa kulingana na sheria hawakuwa na haki ya kutufungia kwenye vituo vya polisi au kutunyima watoto wetu kazi zetu masomo na maisha yetu ya kawaida
 Kulingana na sheria uangalizi unatakiwa uwe wa Kistaarabu na wa kkibinadamu lakini ni wazi kuwa msingi wake ni kiu ya kuumiza na kudhalilisha
 Kitendo hiki cha kuwafungia wafungwa wa zamani wakati wa usiku ni kutumia madaraka vibaya
@@ -2283,10 +2198,10 @@ Busara hii imekuwa ikitumika kuondoa haki ya mtuhumiwa kumaliza muda wake wa uan
 Lakini mwisho wa kila siku WaMisri wengi wanalazimishwa kurudi kwenye vyumba vidogo vya selo za polisi mbali na wawapendao na ulimwengu wote wako nje ya magereza lakini hawako huru kwa kweli
 Wengi wao ni wanaharakati waandamanaji na wanahabari ambao kosa lao pekee lilikuwa ni kutumia haki yao ya msingi ya uhuru wa kujieleza kukusanyika na kuandamana
 
-makala 51
+Makala 51
 Maafisa wa jeshi wakiwa katika ulinzi huko Rio de Janeiro mwaka 2018
 Picha Kwa heshima imeruhusiwa kuchapishwa tena na Tânia RêgoAgência Brasil
-Jumapili April 7 mwanamuziki Evaldo dos Santos Rosa 51 alikuwa njiani kuelekea kwenye sherehe huko Guadalupe mji mdogo na maskini pembezoni mwa jiji la Rio de Janeiro
+Jumapili Aprili 7 mwanamuziki Evaldo dos Santos Rosa 51 alikuwa njiani kuelekea kwenye sherehe huko Guadalupe mji mdogo na maskini pembezoni mwa jiji la Rio de Janeiro
 Katika gari yake alikuwa na mkewe baba mkwe wake mtoto wao wa miaka 7 na rafiki yao
 Jua lilikuwa limechomoza na ilionekana kuwa mwisho wa juma wa kawaida katika mji huo mkubwa wa mwambao wa Brazili
 Walipokuwa wanaendesha kupita eneo la karibu na  kambi ya jeshi  wanajeshi waliachilia mvua ya risasi kulielekea gari hilo
@@ -2295,10 +2210,7 @@ Abiria wengine walisalimika
 Jeshi la polisi ambao ndio waliokagua eneo la tukio baadaye walitabanaisha kwamba gari hilo lilipigwa risasi 80
 Mkuu wa Jeshi la polisi Leonardo Salgado alisema kuwa anaamini kuwa wanajeshi hao walikosea kwa kulifananisha gari la Evaldo na gari lingine la waalifu walilokuwa wanalifuatilia na hii ni kutokana na tovuti ya habari ya G1
 Aliongeza kuwa polisi hawakukuta silaha yoyote katika gari la Evaldo
-Mke wa Evaldo Luciana Nogueira mwenye miaka 27 aliyesalimika katika shambulio hilo aliwaambia Estado de S
-Paulo kuwa
-Os vizinhos começaram a socorrer o meu marido mas eles continuaram atirando
-Eu botei a mão na cabeça pedi socorro disse pra eles que era meu marido mas eles não fizeram nada ficaram de deboche
+Mke wa Evaldo Luciana Nogueira mwenye miaka 27 aliyesalimika katika shambulio hilo aliwaambia Estado de S Paulo kuwa
 Majirani walianza kwa kumsaidia mume wangu lakini askari waliendelea kurusha risasi
 Niliweka mikono yangu kichwani nikiomba msaada nikiwaambia ni mume wangu lakini hawakufanya chochote walisimama kwa kiburi
 Wakati mauaji ya kikatili ya mtu asiye na hatia yakifanywa na maafisa wa serikali yakiwashtua wengi Rais Jair Bolsonaro ameendelea kuwa kimya juu ya jambo hili kwa siku sita
@@ -2306,12 +2218,6 @@ Hatimaye alipozungumza katika mkutano na vyombo vya habari Aprili 12 alisema  J
 Hapo kabla maneno pekee yaliyotoka kwa Planalto Palace nafasi pekee ya utawala yalikuwa ni kupitia msemaji wa Rais ambaye alizungumzia mauaji ya Evaldo kama tukio tena bila kutoa salamu za rambirambi kwa familia yake
 Jioni ya Aprili 8 gavana wa Rio de Janeiro Wilson Witzel na mshirika wa Bolsonaro alitangaza kuwa haikuwa juu yake kuhukumu
 Siku mbili baadaye katika mahojiano na kituo cha runinga Waziri wa Sheria na Ulinzi wa Raia Sergio Moro alisema mauaji hayo yalikuwa ya bahati mbaya 
-Número de menções no Twitter do primeiro escalão do governo Bolsonaro ao fuzilamento de um carro de família no Rio de Janeiro
-Sim o gráfico está VAZIO pois ninguém se posicionou nem ao menos para lamentar o ocorrido
-O carro foi atingido por 80 tiros disparados p militares pic
-twitter
-comK2tbvxwrff
-Gabriel Zanlorenssi gzanlorenssi April 9 2019
 Hii ni idadi ya mara walizotajwa baraza la Bolsonaro huko katika mtandao wa Twita kuhusu shambulizi lililolenga gari la familia huko Rio de Janeiro
 Ndiyo  mchoro ni MTUPU kwa sababu hakuna aliyejiweka wazi hata kwa kusema samahani kwa lililotokea
 Gari lilipigwa risasi 80 na wanajeshi 
@@ -2327,45 +2233,28 @@ Jaji alimuachilia huru mmoja wa maafisa hao 10 hapo Aprili 10 baada ya kesi kuan
 Siyo mara ya kwanza
 Polisi wa Brazili wanafahamika kwa kupiga risasi kwanza na kuuliza baadaye ambapo huu ni msemo ambao umeendelea kuthibitika tena na tena
 Ripoti ya Kimataifa ya shirika la Haki za binadamu iliyotolewa mwaka huu inasema Polisi wa Brazili ni hatari na katili zaidi duniani
-Mwaka 2018 pekee asilimia 15
-6 ya mauaji yote nchini yalifanywa na maofisa wa vyombo vya kusimamia sheria
+Mwaka 2018 pekee asilimia 156 ya mauaji yote nchini yalifanywa na maofisa wa vyombo vya kusimamia sheria
 Katika jimbo la Rio de Janeiro kwa mwezi Januari 2019 polisi wameshaua watu 160
 Muswada uliopambwa na mfuniko wa kuzuia uhalifu ambao serikali ya Bolsonaro umeuwasilisha katika Bunge unaweza kuongeza idadi ya matukio ambayo yamekwisha kutokea
 Muswada huo unataka mabadiliko ya baadhi ya maelekezo ambayo huenda yakaondoa au yanalenga kupunguza adhabu kwa polisi na maafisa wa jeshi watakapofanya mauaji ya mtu wakiwa kazini
 Mazingira ya mauaji ya Evaldo mwanaume mweusi mwenye miaka 51 sio ya kipekee lakini ni ya kawaida sana Brazili kama vile Samira Bueno na Renato Sérgio de Lima wakurugenzi wa Jukwaa la Ulinzi wa Raia Brazili walivyosema katika makala ya Folha de São Paulo
-Evaldo teve sua vida ceifada por aqueles que juraram defendêla
-Seu filho jamais se livrará do trauma de ter assistido ao pai ser fuzilado por agentes estatais
-Mas que fique claro que a culpa não é apenas daqueles que apertaram o gatilho
-Ou começamos a responsabilizar toda a cadeia de comando pelos atos cometidos ou vamos continuar contando os nossos mortos e desacreditando as nossas instituições
 Evaldo amenyanganywa maisha yake na wale waliowekwa kuyalinda
 Mwanae wa kiume hatatokwa na mshtuko huo wa kumuona baba yake akipigwa risasi na maafisa wa serikali
 Lakini tuwekane sawa kwamba makosa sio ya wale tu waliofyatua risasi
 Labda tuanze kwa kuuwajibisha mnyororo wote wa mamlaka kwa vitendo vyao au tutaendelea kuhesabu wanaokufa huku tukizilaumu taasisi zetu
 
-makala 52
-Dr
-Wairagala Wakabi Picha na CIPESA na imetumiwa kwa ruhusaWairagala Wakabi ni wakili kutoka Uganda anayeongoza shirika linalotetea haki za kidijitali alishikiliwa  katika uwanja wa ndege wa kimataifa wa Julius Nyerere Dar es Salaam Tanzania tarehe 25 Aprili
+Makala 52
+Dr Wairagala Wakabi Picha na CIPESA na imetumiwa kwa ruhusaWairagala Wakabi ni wakili kutoka Uganda anayeongoza shirika linalotetea haki za kidijitali alishikiliwa  katika uwanja wa ndege wa kimataifa wa Julius Nyerere Dar es Salaam Tanzania tarehe 25 Aprili
 Wakabi alialikwa katika siku ya kilele cha mkutano wa mwaka wa watetezi wa haki za Binadamu Tanzania ambao mwenyeji wake ni muungano wa walinda haki za Binadamu Tanzania THRDC
 Wakabi ni mtendaji mkuu  wa muungano wa sera ya TEHEMA kimataifa Mashariki na kusini mwa mwafrika CIPESA  moja ya shirika linalojihusisha na sera ya mtandao na uhuru wa kutoa maoni mtandaoni katika Afrika
 Wakabi alifukuzwa na kupelekwa Uganda baada ya masaa kadhaa ya mahojiano ambapo alinyimwa kuwasiliana na mwanasheria
 Wanasheria kutoka muungano wa watetezi wa haki za Binadamu Tanzania walijaribu kumtetea lakini waliambiwa tu kwamba Wakabi anarudishwa Uganda kwa sababu ya maslahi ya taifa
-UPDATE Baada ya masaa ya mahojiano Dkt
 Wakabi amerudishwa  Uganda Jioni hii this evening
 Hata hivyo wanasheria walishindwa kujua chanzo cha kuzuiliwa na kufukuzwa
 Waliaarifu kuwa mamlaka zilikataa asiingie nchini Tanzania kwa sababu ya maslahi ya taifa
-pic
-twitter
-comFfEPJTMiz2
-CIPESA cipesaug April 25 2019
-Baada ya masaa ya mahojiano Dkt
-Wakabi amerudishwa Uganda Jioni hii
-Hata hivyo wanasheria walishindwa kujua chanzo cha kuzuiliwa na kufukuzwa
-Waliaarifu kuwa mamlaka zilikataa asiingie nchini kwa sababu ya maslahi ya taifa
 Ingawa tatizo liliisha baada ya masaa machache lakini lilisababisha fadhaa na mshangao mkubwa kwa wanasheria wa haki za binadamu ambao wameonesha wasiwasi juu ya namna Tanzania inavyoshughulikia wanaharakati na waandishi wa habari
 Novemba mwaka jana Angela Quintal na Muthoki Mumo wote wakiwa wajumbe wa Kamati ya kutetea waandishi habari walishikiliwa  na pasipoti zao kwa masaa kadhaa Dar es Salaam Tanzania
 Je Tanzania ina mpango wa makusudi wa kunyamanzisha watetezi wa haki za binadamu kwa kuwanyanyasa ili kuwazuia kuja nchini Mwishoni mwa mwaka jana alikuwa pressfreedoms angelaquintal and muthokimumo sio Dkt Wakabi Hii haiwezi kutunyamanzisha FreeDrWakabi
-Felicia Anthonio FelAnthonio April 25 2019
-Je Tanzania ina mpango wa makusudi wa kunyamanzisha watetezi wa haki za binadamu kwa kuwanyanyasa ili kuwazuia kuja nchini Mwishoni mwa mwaka jana alikuwa sio Dkt Wakabi Hii haiwezi kutunyamanzisha
 Shirika la haki za binadamu la Human Rights Watch lilieleza kuwa Tanzania chini ya uongozi wa Rais John Magufuli limeshuhudia  kushuka kwa hali ya juu katika uhuru wa kutoa maoni kukusanyika na kukutana
 Mwaka  2015 Jamhuri ya Tanzania ilitangaza rasmi sheria ya makosa mtandaoni 
 Ndani ya mwaka ambao sheria hiyo ilipitishwa   watanzania 14  walikamatwa na kushitakiwa kwa sheria hiyo kwa kumtukana Rais kupitia mitandao ya kijamii
@@ -2374,7 +2263,7 @@ Hii ilisababisha blogu nyingi za kujitegemea kufungwa
 Kuzuia vyombo vya habari binafsi  kupitia vikwazo mbalimbali dhidi ya vyombo vya habari na vitisho vya kisheria dhidi ya waandishi wa habari imejenga mazingira ya vitisho udhibiti binafsi na woga wa kueleza habari mbalimbali kuhusu viongozi wa nchi
 Kushikiliwa na baadaye kurudishwa Uganda kwa Wakabi kunaonekana kuwa mwendelezo wa serikali ya Tanzania kushambulia uhuru wa kutoa maoni na hasa yanayokinzana na serikali
 
-makala 53
+Makala 53
 Alpha Condé akiwa katika mkutano wa jukwaa la uchumi ulimwenguni mwaka 2012 CC BYSA 2
 0
 Ingawa katiba ya Guenea inaruhusu  tu  mihula miwili mfululizo  kuwa madarakani Rais wa sasa wa nchi hiyo Alpha Condé hivi karibuni alitangaza kwamba ana nia ya kugombea urais kwa muhula wa tatu mfululizo
@@ -2382,18 +2271,13 @@ Ili kusaidia kufanikisha hilo hakusita kushawishi wafuasi wake kufanya vurugu
 Katika uchambuzi uliochapishwa na gazeti la Horizon Guinée mwandishi wa bahari Sonny Camara anayeishi Conakry mji mkuu wa nchi hiyo alilipoti sehemu za hotuba ambayo Rais alihutubia tarehe 24 Machi 2019
 Nitakuwa ninavua kofia yangu ya Urais
 Nitavaa kofia ya uanaharakati kwa sababu sasa niko tayari kupambana dhidi  ya watu hawa katika upinzani  mwe tayari kukabiliana  Hakuna mtu yeyote katika Guinea atakayenizuia kuwauliza watu wangu wanachokitaka  kwa ajili ya nchi  Kama Upinzani wanataka kushinda kirahisi muwe tayari kuwashinda ili wajue hamuogopi kitu chochote
-Condé alichaguliwa kuwa Rais wa Guinea mwaka 2010
-Ni Rais wa kwanza kuchaguliwa kidemokrasia katika historia ya nchi hiyo
+Condé alichaguliwa kuwa Rais wa Guinea mwaka 2010 Ni Rais wa kwanza kuchaguliwa kidemokrasia katika historia ya nchi hiyo
 Hata hivyo uchaguzi wa mwaka 2010 ulikuwa na malalamiko kutoka kwa waangalizi wa uchaguzi ikiwepo kituo cha Carter ambapo ililipotiwa kuwa karibu kura milioni moja zilipotea katika uhesabuji wa mwisho
 Condé alichaguliwa tena mwaka 2015 kwa asilimia karibu 58 ya kura zote
-mwaka 2016
-Idhaa mpya ya redio ya FRANCE 24 ilitangaza kuwa kampuni ya madini  ya Rio Tinto ilimlipa afisa wa serikali ya Guinea dola milioni 10
+mwaka 2016 Idhaa mpya ya redio ya FRANCE 24 ilitangaza kuwa kampuni ya madini  ya Rio Tinto ilimlipa afisa wa serikali ya Guinea dola milioni 10
 5 kwa ajili ya kupata haki  ya kuchimba madini katika mkoa wa  Simandou
-
 Miezi michache  baada ya kuchaguliwa mwezi Mei 2015 Condé alianza kupendekeza nia yake ya kugombea muhula wa tatu
 Ibrahima Diallo ambaye ni mkurugenzi wa Liberté FM kituo cha redio kilichopo Conakry ilisistiza  juu ya ripoti ya hali ya Guinea
-Mais à entendre Alpha Condé dire à lopinion publique nationale et internationale que le souverain peuple de Guinée décidera ou non dun troisième mandat pour lui sous  entend que celui qui voulait être la synthèse de feu Mandela et dObama pour son pays est pire que ses prédécesseurs quil a toujours combattus durant sa vie déternel opposant
-Aujourdhui quand Koro dit cest le peuple qui décidera il veut juste faire porter par le vaillant peuple de Guinée le mérite pour lui de briguer un éventuel mandat après les deux consécutifs
 Lakini kusikia Alpha Condé akiwatangazia  wananchi na watu wakimataifa kuwa watu wa Gunea walio huru wataamua kama atagombea au hatagombea muhula wa tatu inamaanisha kwamba yeye ambaye alitaka kuwa kiunganishi kati ya marehemu Mandela na Obama kwa nchi yake ni mbaya zaidi ya mtangulizi wake ambaye alipambana maisha yake yote kama mpinzani wa maisha
 Leo wakati Koro Jina la utani la Alpha Condé anataka kuwafanya watu mashujaa wa Guinea kuhalalisha lengo lake la kugombea muhula wa tatu baada ya ile mihula miwili mfululizo
 Condé amenuia kutekeleza mpango wake kwa kuchukua hatua kuhakikisha hakosi kwa kumuondoa rais wa mahakama ya katiba Kéléfa Sall hatua ambayo haikufuata utaratibu halali
@@ -2403,14 +2287,12 @@ Kuanzia sasa na kuendelea chama kilichopo madarakani kinatakiwa kuwa na theluthi
 Watu hawa iwe ndiyo kigezo cha kuanzisha marekebisho ya katiba
 Kwa hiyo itakuwa hatua kubwa ambayo imechukuliwa ya kutoondoa kizuizi cha katiba ambacho kinazuia idadi ya mihula ya rais wa Jamhuri kuwa miwili
 Inaonekana kosa la Sall lilikuwa kumuonya Condé  wakati alipokuwa kwenye sherehe ya kuapa kuongoza nchi kwa muhula wa pili dhidi ya kubadilisha katiba
-Sall alisema 
-Uongozi wa taifa lazima utukusanye kwa pamoja kwa jambo la muhimu
+Sall alisema Uongozi wa taifa lazima utukusanye kwa pamoja kwa jambo la muhimu
 Hatutakusanyika na watu wenye msimamo mkali ambao ni hatari kwa umoja wa taifa
 Epuka njia zinazokatazwa na Demokrasia na utawala bora
 Acha kukumbwa na wimbo wa vigora vya mbadilisha itikadi ya siasa ingawa wananchi wa Guinea wamekuchagua na kuweka matumaini yao kwako hawaendelei kuwa watazamaji tu
 Upinzani wa wananchi wa Guinea umekuwa wazi
-Kwenye mkutano na waandishi wa habari  tarehe 29 Machi ambao uliandaliwa na wanachama wa zamani wa halmashauri ya mpito ya taifa aina ya bunge la mpito na mwenyeji alikuwa ni umoja wa usiguse katiba yangu
-Boubacar Siddighy Diallo mmoja wa wazungumzaji alikumbushia  kuwa katiba ya Guinea ina sehemu mbili ambazo zinafanya katiba kamili
+Kwenye mkutano na waandishi wa habari  tarehe 29 Machi ambao uliandaliwa na wanachama wa zamani wa halmashauri ya mpito ya taifa aina ya bunge la mpito na mwenyeji alikuwa ni umoja wa usiguse katiba yangu Boubacar Siddighy Diallo mmoja wa wazungumzaji alikumbushia  kuwa katiba ya Guinea ina sehemu mbili ambazo zinafanya katiba kamili
 Alisema kuwa kwa pamoja sehemu hizi zinalinda katiba kutobadilishwa badilishwa ili isisababishe kuathiri amani na umoja wa taifa
 Wapinzani walijibu kwa hasira
 Kwenye mkutano wa wapinzani Cellou Dalein Diallo ambaye ni rais wa umoja wa nguvu ya kidemokrasia ya Guinea chama huru cha siasa alisema
@@ -2419,17 +2301,11 @@ Sekou Koundouno ambaye ni kiongozi wa  nguvu ya umma ya Guinea  FSG  alitangaza 
 Pia wananchi wa Guinea walijibu kupitia Tweeter 
 Maneno ya Rais wa Jamhuri yanahatarisha amani na utulivu wa jamii katika Guinea
 Bado pia ninalaani sana tabia  hii ya mheshimiwa wa nchi yetu
-Hakika nilazima kuwaita Jumuia ya kiuchumi ya nchi za Afrika magharibi CEDEAO Umoja wa Afrika Umoja wa Mataifa n
-k
-
+Hakika nilazima kuwaita Jumuia ya kiuchumi ya nchi za Afrika magharibi CEDEAO Umoja wa Afrika Umoja wa Mataifa
 Kila mahali nchini Guinea Watu wanaongea wakipinga mihula mitatu
 Kama ilivyokuwa mapema katika Coyah Mkoa wa Kindia ambayo ni makao makuu ya polisi vijana wanne walilipotiwa kukamatwa kutokana na maelekezo ya wafuasi wa mihula mitatu
 Hakuna kitisho kitasimamisha wananchi wa Guinea katika suala la Demokrasia
 Mtumiaji mashuhuri wa Facebook  Alimou Sow alichagua kejeli  kama njia ya kutoa maoni kuhusu suala hili akidokeza upepo mkali ambao uliipiga Conakry usiku wa tarehe 2 Aprili
-Il paraît que dans la mythologie grecque Eole était le dieu des vents doù ladjectif éolien
-Alors à Eole la Guinée cette nuit pour emporter non pas seulement des affiches démagogiques mais également ceux qui les posent et promeuvent le 3ème Nambara Problèmes
-Autant en emporte le vent
-Bon ennui
 Inaonekana kwamba katika Ugiriki mythology Aeolus alikuwa mungu wa upepo ambapo Aeolian ni kivumishi
 Kwa hiyo Aeolus wa Guinea alikwenda usiku ule kuvuma sio tu kwenye picha cha mfitini bali hata wale walioiweka picha hiyo na kushabikia muhula wa tatu ni matatizo
 Ameenda na upepo
@@ -2437,12 +2313,11 @@ Usiku mwema
 Hata hivyo majibu ya msingi yalitoka kwa mwandishi na mchumi wa Guinea Ibrahima Sanoh
 Tarehe 2 Januari alianzisha  chama chake cha Wazalendo kwa ajili ya mabadiliko na ukombozi kupinga kila anachojaribu kufanya Condé katika kutafuta muhula wa tatu mwaka 2020
 
-makala 54
+Makala 54
 Emília Nhalevilo Mkuu wa chuo kikuu cha Púnguè
 Picha na  Emília Nhalevilo na imetumiwa kwa idhini 
 Mwezi  Machi 2019 Profesa wa Msumbiji Emília Nhalevilo aliteuliwa kuwa mkuu wa chuo kikuu kilichoanzishwa hivi karibuni cha Púnguè  hivyo kuwa mwanamke wa kwanza kabisa kuongoza chuo kikuu cha umma katika  nchi hii ya kiafrika
-Aliteuliwa  na Rais Filipe Nyusi lakini maamuzi hayo juu ya chuo hicho kilichoanzishwa hivi karibuni yalitangazwa na halmshauri ya mawaziri  tarehe 29 mwezi Januari
-Kisheria Nhalevilo ataendelea kuwepo ofisini kwa muda wa miaka minne
+Aliteuliwa  na Rais Filipe Nyusi lakini maamuzi hayo juu ya chuo hicho kilichoanzishwa hivi karibuni yalitangazwa na halmshauri ya mawaziri  tarehe 29 mwezi Januari Kisheria Nhalevilo ataendelea kuwepo ofisini kwa muda wa miaka minne
 Nhalevilo ambaye ni Daktari alizaliwa Nampula ambalo ni jimbo maarufu Msumbiji
 Ana shahada ya uzamili ya Elimu kutoka chuo kikuu cha Perth Uastralia na shahada ya elimu ya sayansi kutoka chuo kikuu cha Pedagogical  UP
 Kuanzia mwaka 2005 hadi 2007 alifanya kazi kama Profesa katika Chuo kikuu cha Teknolojia cha Curtin kilichopo Australia
@@ -2450,13 +2325,7 @@ Mwaka 2008 Nhalevilo alikuwa mkuu  wa idara ya kemia pale Chuo kikuu cha Pedagog
 Mwaka 2017 alikuwa mjumbe wa program ya matembezi ya wanafunzi ya Fulbright  katika shule ya utamaduni elimu na Maendeleo ya rasilimali watu cha chuo kikuu cha New York Marekani
 Nhalevilo alikuwa mkuu wa kitivo cha utafiti na ugani katika chuo kikuu cha Pedagogical tangu mwaka 2018
 Nafasi aliyonayo ya Mkuu wa chuo kikuu cha umma ni sawa na nafasi ya waziri katika nchi ya Msumbiji
-
 Eliana Nzualo mwanaharakati na  feministi bloga  anasema kuteuliwa kwa  Nhalevilo ni kwa kihistoria
-UM DIA NA HISTÓRIA
-Professora Doutora Emília Nhalevilo é a primeira mulher na liderança de uma Universidade Pública em Moçambique
-Parabéns à Magnífica Reitora
-Por mais mulheres nas Universidades
-Por mais mulheres na liderança
 SIKU YA KIHISTORIA 
 Profesa Emília Nhalevilo ni mwanamke wa kwanza kuongoza Chuo kikuu cha umma katika Msumbiji
 Hongera Mkuu wa Chuo Adhimu
@@ -2472,7 +2341,7 @@ Shirka hilo hutafsiri ndoa za utotoni kama muungano wa ndoa ambapo angalau mmoja
 Katikati ya mwaka 2018 rubani  Admira António alikuwa mwanamke wa kwanza kuwa rubani wa ndege katika Msumbiji wakati mwezi Desemba 2018 ndege yenye wahudumu wa kike wote iliruka kwa mara kwanza
 Mwaka  2014 wakati askari polisi wa Jamhuri ya Msumbiji ilipopandisha vyeo askari 39 Arsenia Massingue aliteuliwa kuwa mwanamke wa kwanza kuwa jenerali  katika jeshi hilo
 
-makala 55
+Makala 55
 Papa Francisco  Gabriel Trujillo  maelezo na ShareAlike ya 2
 0CC BYSA 2
 0
@@ -2485,10 +2354,6 @@ John Paul II alikuwa ni Papa wa mwisho kutembelea Msumbiji mwezi Septemba 1988
 Uthibitisho wa matembezi ya  papa ulikuwa tayari umetegemewa katikati ya mwezi wa Februari
 Msumbiji itakuwa na uchaguzi mkuu mwezi Oktoba  ingawa  haijapata ahueni kutokana na kimbunga cha    Idai ambacho  kilisababisha vifo vya zaidi ya watu 500 na wengine zaidi ya milioni kukosa makazi  ya kuishi
 Papa ameonesha mshikamano na waathirika
-Expresso a minha dor e a minha solidariedade às queridas populações de Moçambique Zimbábue e Malauí atingidas pelo ciclone Idai
-Confio as inúmeras vítimas e suas famílias à misericórdia de Deus
-PrayForAfrica cycloneIdai
-Papa Francisco Pontifex_pt 20 mars 2019
 Nina maumivu na ninaungana na wapendwa wananchi wa Msumbiji Zimbabwe na Malawi walioathirika na kimbunga cha Idai
 Ninawakabidhi katika rehema za Mungu wote walioathiriwa pamoja  na familia zao
 Balaa lilisababishwa na mojawapo ya vimbunga vibaya sana vilivyowahi kupiga katika eneo la kusini lilipiga mji wa Beira katikati ya Msumbiji tarehe 14 Machi na halafu katika nchi jirani za Zimbabwe na Malawi
@@ -2497,17 +2362,12 @@ Tangu balaa hilo  nchi ipo katika hali ya hatari ambalo limeifanya serikali kupi
 Katikati ya balaa serikali inajaribu kupanga namna ya kuwaokoa kwa kuwatafutia makazi ya kuishi maelfu ya watu baada ya madhara yaKimbunga Idai
 Rais Nyusi alitoa taarifa mbashara kwa taifa kutangaza kwamba Papa anatazamia kutembelea Msumbiji mwezi Septemba
 Kutoeleza vizuri ni vibaya
-Zenaida Machado zenaidamz
 Ukweli ni kwamba uchaguzi kufanyika baada tu ya kutembelewa na Papa kumeibua maswali kutoka kwa wananchi ambao wanaona kuwa kutakuwa na athari katika mchakato wa kupiga kampeni
-Eh claro que a vinda do Papa Francisco em Setembro joga a favor da Frelimo e Filipe Nyusi
-Directa ou indirectamente a visita será politicamente aproveitada
-Seria bom que fosse adiada para Novembro isto eh depois da confusão das eleições gerais agendadas para 15 de Outubro
-Alexandre AllexandreMZ 27 mars 2019
 Ni wazi kuwa ujio wa Papa Francis mwezi Septemba unampendelea Filipe Nyusi na Frelimo
 Matembezi yake yanaweza kumfaidisha kisiasa  moja kwa moja au la
 Ingekuwa vizuri kama ungeahirishwa hadi mwezi Novemba baadala ya mkanganyiko wa uchaguzi mkuu ulipangwa tarehe 15 Oktoba
 
-makala 56
+Makala 56
 Picha ya skrini kutoka katika tamthilia ya La Pulla Pablo Escobar ni shujaa inapatikana YouTube
 Jambo hili halikuanza na tamthilia kutoka  Netflix lakini Narcos kwa hakika ilisaidia  kufufua hadhi ya muuzaji mkubwa wa dawa za kulevya  kwa miaka ya 1980 wa Colombia ndugu Pablo Escobar katika utamaduni maarufu Amerika Kaskazini
 Tangu imezinduliwa mwaka 2015 tamthilia zenye utata zimechochea mijadala kuhusu Colombia kuendelea kuonekana kimataifa kama  Paradiso ya dawa za kulevya inayoshikiliwa na wauza dawa za kulevya wachakaramu
@@ -2523,7 +2383,7 @@ Shujaa huyu alitulazimisha kuishi maisha ya hofu isiyokoma
 Waongoza watalii waliojumuishwa katika video hii wanafahamika kama Waongozaji wa Narco na huwaongoza watalii kuzunguka mji wa Medellin kupitia maeneo maarufu yanayohusiana na maisha ya Pablo Escobar
 Mwaka 2018 mshirika wa Global Voices Radio Ambulante aliwaelezea waongozaji hao katika moja ya sehemu ya vipindi vyao vya podcast vilivyopata tuzo
 
-makala 57
+Makala 57
 Picha ya makamu Ana Paula katika siku yake ya kwanza ofisini
 Chanzo Ukurasa binafsi wa Facebook tumia vizuri
 Katika kuzindua bunge la jimbo lake hapo Januari 31 makamu mpya wa Brazili aliyechaguliwa karibuni Ana Paula da Silva alivaa nguo angavu nyekundu na mapambo
@@ -2541,10 +2401,6 @@ Mwaka 2017 mwanasheria Pamela Helena de Oliveira Amaral aliapa kumshitaki jaji�
 Pamela alikuwa amevaa gauni refu la bluu ambalo lilikuwa likionesha mabega yake
 Jaji Eugênio Cesário aliondoka ukumbini na alirudi baada ya Pamela kuazima nguo ya kujifunika kutoka kwa mfanyakazi mwingine wa kike
 Pamela alisema katika mahojiano katika kipindi kile kuwa
-Eu fiquei estarrecida sem entender
-Não assimilei até agora
-Foi humilhante vergonhoso e constrangedor o que ele me fez passar na frente dos meus colegas
-A sala estava cheia de estudantes e advogados
 Nilishangazwa na kuchanganyikiwa
 Bado sijaelewa kwa ujumla
 Alichofanya nipitie kilinidhalilisha na kutia aibu mbele ya wenzangu
@@ -2560,19 +2416,13 @@ Katika mahojiano na Universa tovuti ya nyumbani inayojihusisha na masuala ya wa
 Pia aliweka video katika ukurasa wake wa Facebook akijibu mashambulizi hayo
 Hata hivyo maoni katika video hiyo yalikuwa yamejaa matusi
 Mtumiaji mwenye jina Vitor alisema
-Com todo respeito mas você se esqueceu em qual ambiente trabalhará nos próximos dias Formalidade por favor
-Tenha respeito Decoro parlamentar
 Kwa heshima kubwa je umesahau ni katika mazingira gani utakuwa unafanya kazi siku chache zijazo Ustaarabu tafadhali
 Kuwa na heshima Jamala wa Bunge
 Mtumiaji mwingine mwanamke anayeitwa Yelena Sier alipokea maoni 252 ndani ya maoni yake ambapo alimkosoa mwanasiasa huyo
-Geral não entende Ninguém vai no hospital com biquíni as crianças não vão a escola de pijama os homens não vão comprar pão só de cueca ninguém vai fazer uma cirurgia com qualquer roupa ninguém vai para uma festa de 15 anos ou um casamento de pijama etc cada ocasião uma traje adequado nas empresas existem uniformes e assim por diante e todo mundo sabe disso
-A questão não é a roupa que a mulher usa ou deixa de usar mas para cada local um traje adequado
 Watu hawaelewi Hakuna mtu huenda hospitali akiwa amevaa bikini watoto hawaendi shuleni wakiwa wamevaa nguo za kulalia wanaume hawaendi kununua mkate wakiwa wamevaa nguo za ndani na hakuna mtu anaweza fanya upasuaji akiwa amevaa nguo holela hakuna mtu anaweza kwenda harusini akiwa amevaa nguo za kulala n
 k Kila tukio lina mavazi yake rasmi katika makampuni kuna sare na kadhalika na kila mmoja anajua hilo
 Jambo la msingi hapa sio ni kitu gani mwanamke amevaa au hakuvaa lakini kila sehemu ina mavazi yake rasmi
 Katika chapisho lingine tofauti Rosimere Furtado alitetea  haki ya Ana Paula kuvaa kama atakavyo
-Parabéns pela discussão levantada Enquanto uma Deputada com vestes comportadissima levanta discussões perseguindo Educadores e afirmando que a Educação não necessita de investimento financeiro a senhora levanta discussão sobre a importância da mulher na política sobre feminicidio sobre causas que independe da cor ou traje
-Em um mundo onde a mente é deturpada e a sexualidade é esarcebada qualquer decote é uma guerra
 Hongereni kwa kuibua suala hili Wakati mwakilishi wa jimbo akiwa katika mavazi ya heshima ya hali ya juu akiwakisoa waalimu  na akisema kuwa elimu haihitaji uwekezaji wa fedha mmeanzisha mjadala wa umuhimu wa wanawake katika siasa na sababu ambazo ni uhuru wa rangi au mavazi
 Katika ulimwengu ambapo fikra haziwakilishwi ipasavyo jinsia hukosolewa na nguo ya kuonesha kidogo huwa sababu ya vita
 Ana Paula aliwajibu wanaomshambulia kwa kuwakumbusha historia yake kabla hajachaguliwa kuwa mbunge alishachaguliwa mara mbili kuwa meya wa mji wa Bombinhas na aliiacha ofisi ikiwa na ufanisi wa kukubalika kwa asilimia 90
@@ -2580,11 +2430,10 @@ Ana Paula pia aliposti katika ukurasa wa Facebook mahojiano ambapo alisema Wan
 Kuna mambo mengi ya msingi kwa bunge la wawakilishi kujadili
 Pia aliyahifadhi mashambulizi hayo na kusema kuwa atawashitaki  watu waliomdhalilisha
 Alimwambia mhojaji mwingine 
-Vou continuar vestindo o que eu quero
-Não pretendo me violentar para agradar ninguém
-Nitaendelea kuvaa ninavyotaka Sikusudii kujiumiza mwenyewe kwa kuwafurahisha wengine
+Nitaendelea kuvaa ninavyotaka 
+Sikusudii kujiumiza mwenyewe kwa kuwafurahisha wengine
 
-makala 58
+Makala 58
 Mwanaharakati wa Haki za binadamu Ahmed Mansoor sasahivi anatumikia kifungo cha miaka kumi jela katika Falme za Kiarabu
 Picha na Taasisi ya Martin Ennals kupitia Citizen Lab
 Mtetea haki za binadamu katika Falme za Kiarabu Ahmed Mansoor ameendelea na mgomo wake wa kutokula ulioanza tangu katikati ya mwezi Machi 2019
@@ -2597,32 +2446,27 @@ Ni mshindi wa Nobel wa taasisi ya Martin Ennals 2015 ambayo hutetea na kulinda h
 Ni mwanachama wa shirika la haki za binadamu la Human Rights Watch Mashariki ya kati na Kamati ya ushauri Kaskazini mwa Afrika
 Hii si mara ya kwanza kwa Mansoor kuwekwa kizuizini
 Mwaka 2011 yeye na wanaharakati wa kisiasa wanne walifungwa jela  kutokana na kuhusishwa na kuendesha mjadala mtandaoni kupita UAEHewar
-net
 Pia alitumia jukwaa hilo kuchapisha ombi akiomba mageuzi ya kisiasa katika Falme za Kiarabu
 Maafisa usalama waliutumia wito huo kama msingi wa kumshtaki Mansoor kwa kutukana viongozi wa Falme za Kiarabu
 Alitiwa hatiani na kuhukumiwa miaka mitatu jela lakini aliachiwa huru  kwa msamaha wa Rais baada ya kutumikia miezi saba tu
-
 Kabla ya kukamatwa kwake mwaka 2017 alipiga kampeni mtandaoni kwa niaba ya wanahakati waliokuwa wamefungwa jela katika Falme za Kiarabu na mahali pengine
 Siku moja kabla ya kukamatwa kwake alituma ujumbe kupitia tweeter juu ya kuendelea kukamatwa kiholela kwa mwanaharati katika Falme za Kiarabu Osama alNajjar ambaye ameendelea kuwepo jela ingawa amemaliza  kifungo chake cha miaka mitatu jela
 Kutokana na shirika la haki za binadamu la Human Rights Watch pia alisaini  barua ya pamoja na wanahakati wengine wakiomba viongozi wa The Arab League katika mkutano mkuu wao mwezi Machi 2017 huko Jordan kuawaachia  wafungwa wa kisiasa katika nchi zao
 Mwezi Desemba 2018 Baraza la usalama wa taifa la Mahakama kuu ya Shirikisho ambalo ndilo lenye maamuzi ya mwisho lilithibitisha hukumu yake ya miaka kumi
-
 Kutokana na kituo cha Ghuba cha haki za binadamu GCHR Mansoor alianza  mgomo  kupinga hali mbaya ya gerezani na uendeshwaji mbaya wa kesi yake
 sasa hivi Mansoor amefungwa katika gereza la AlSadr lililopo Abu Dhabi ambapo amewekwa peke yake
 Chanzo kiliiambia GCHR kwamba amefungwa katika hali mbaya katika chumba kidogo bila kitanda maji na hakuna bafu
 Afya yake imedhoofika sana na yupo katika hali mbaya
 Makundi ya watetezi wa haki za binadamu wameeleza kuguswa na afya ya mwanahakati huyo na kuomba mamlaka za UAE kumuachia huru
-
 Ahmed Mansoor anahatarisha afya yake akiomba uangalizi wa kifungo chake cha dhuruma kwa sababu alitetea jamii ya uvumilivu na Maendeleo ambayo Falme za Kiarabu hudai kujenga alisema  Sarah Leah Whitson Mkurugenzi wa taasisi ya haki za binadamu ya Human Rights Watch katika Mashariki ya kati
 Mamlaka za UAE zinapaswa haraka na bila ya maasharti kumuachia  Monsoor ili aendelee kutumika kama sauti kwa ajili ya haki katika bara hili kwa kuwa inahitajika sana aliongeza
 Kampeni ya kimataifa ya uhuru katika UAE iliomba  mamlaka kumhudumia Mansoor kwa kufuata viwango vya haki za binadamu kimataifa na kuruhusu makundi ya kimataifa ya haki za binadamu kumtembelea
 Tunasistiza wito wetu wa kuachiwa huru Ahmed Mansoor haraka na bila ya masharti
 Kutokana na hili tunashauri mamalaka za Falme za Kiarabu kumhudumia kwa kufuata viwango vya chini vya Umoja wa mataifa vya kuhudumia wafungwa ambavyo vinaruhusu utolewaji wa matibabu na usafi magerezani
 Ili kuhakikisha hili ni muhimu mashirika binafsi  yaruhusiwe kuingia na kumtembelea Mansoor
-
 Jifunze juu ya athari za kimwili zinazotokana na mgomo wa kutokula kwa kutumia mkusanyiko wa maandishi na majdwali hapa chini iliandaliwa na washirika wa Visualizing Impact
 
-makala 59
+Makala 59
 Mabaraza ya Wanawake ya Jirga yanaendelea katika majimbo yote ya Afhanistani
 Picha imetumika kwa ruhusa kutoka kwa Wanawake wa Afghanistan kwa ajili ya Amani
 Katika miezi inayokuja Afghanistan itaandaa mkutano wa kwanza kabisa wa wanawake kwa ngazi ya kitaifa ambapo wanawake maelfu wataungana kuikumhusha serikali na na Taliban kuwa amani wanayoisubiri kwa kipindi kirefu haitawezekana bila sauti zao
@@ -2640,9 +2484,7 @@ Mabaraza ya Wanawake ya Jirga yanaendelea katika majimbo yote ya Afhanistani
 Picha imetumika kwa ruhusa kutoka kwa Wanawake wa Afghanistan kwa ajili ya Amani
 Kuwa Umesikika
 Na wanawake wa Afghanistan na wanaharakati wa haki za wanawake kutoka maeneo yote wamekutana na kuunda kampeni ya Wanawake wa Afghan kwa ajili ya Amani a  ikiwa na washiriki 15000 na zaidi kutoka katika majimbo yote 34
-
 Kampeni hiyo ilianza miezi sita iliyopita kama mpango shirikishi wa Mtandao wa Wanawake wa Afghan Wizara ya Masuala ya Wanawake Baraza Kuu la Amani na Ofisi ya Mke wa Rais wa Afghanistan
-
 Wanawake 15000 pote nchini walijumuika katika makusanyiko 34 moja katika kila jimbo kupaza sauti zao kujadili maana ya amani katika jamii yao nini matarajio yao na ni nini gharama za amani
 Wanawake wa Afghan kwa ajili ya Amani AfgWomen4Peace Februari 20 2019
 Katika kila jimbo Wanawake wa Afghan kwa ajili ya Amani waliwaleta pamoja wanafunzi wa kike kutoka vyuo vikuu wanawake wafanyakazi serikalini pamoja na wanawake waliosoma na wasiosoma wakitoa maoni yao
@@ -2656,37 +2498,28 @@ Mabaraza ya Wanawake ya Jirga yanaendelea katika majimbo yote ya Afghanistan
 Picha imetumika kwa ruhusa kutoka kwa Wanawake wa Afghanistan kwa ajili ya Amani
 Makongamano tayari yalishafanyika katika majimbo kadhaa ikiwemo Panjshir Khost Parwan Baghlan Ghazni na Logar
 Makongamano yataendelea katika majimbo mengine 28 yaliyosalia kwa majuma kadhaa yajayo
-
 Kifuatacho ni kibwagizo cha kongamano la jimbo la Khost
 Amani lazima ianzie katika majimbo ya pembezoni 
 Khost ni jimbo la ukanda wa kisiasa na kiuchumi wa Afghanistan
 Watu katika ngazi ya wilaya lazima washirikishwe katika mchakato wa amani
-
 Kuwashirikisha watu ambao wako karibu na familia za Taliban hao walioibuka upya ni muhimu
 Kama utawala wa sheria upo mahali pake na sheria zinafuatwa amani itakuja
 Mungu na Mtume PBUH na watu wanahitaji amani
-
 Wanawake na wasichana waruhusiwe kwenda shuleni 
 Idadi ya wanawake waliopata elimu iongezeke hivyo kufanya watoto kupata malezi stahiki
-
 Wanawake wa sasa wanajitambua na waalimu wa dini wasidharau umuhimu wa nafasi ya mwanamke
-
 Sharia inakandamiza wanawake inatakiwa itafsiriwe sawasawa
 Amani huanzia katika familia kisha kwenye jamii na ndipo huifikia serikali
-
 Amani inamaanisha kukubaliana sisi kwa sisi na kusaidiana katika masuala chanya
-
 Katika hitimisho la kila kongamano washiriki waliafiki kuhusu azimio kuhusu vipaumbele na changamoto wanazokutana nazo wanawake nchini
-
 Wakati hakuna tarehe yoyote iliyowekwa kwa ajili ya kongamano la kitaifa baraza la kikabila tukio hili liliahidi kuweka pamoja kazi zote za makundi kwa ngazi za majimbo
-
 Kufanyia kazi katika ngazi ya jimbo ni muhimu sana
 Wakati kuna wanawake wawakilishi katika bunge huko Kabul wanawake magavana ni wachache sana kama ambavyo uwakilishi wa wanawake ni muhimu katika mengine
 Kwa wanawake wengi wa majimbo ya pembezoni makongamano haya yamekuwa fursa pekee ya kwanza kabisa kwao kushiriki katika mchakato wa kisiasa na sauti zao kusikika
 Wanawake wa Ghazni walisema
 Amani haimaanishi kuisha kwa vita pekee na hakuna Taifa litakalofanikiwa katika mipango yake ya Kitaifa bila ushirikishwaji wa wanawake kwa hiyo wanawake lazima wapewe nafasi katika mchakato wa amani ya kisiasa na kijamii
 
-makala 60
+Makala 60
 João Lourenço Rais wa  Angola
 Picha Wikimedia Commons CC BYSA 2
 0
@@ -2694,18 +2527,12 @@ Mahojiano  aliyoyafanya Rais wa Angola João Lourenço na RTP  Kituo cha Telev
 Katika mahojiano ya dakika 30 yaliyorushwa Machi 4 mwanahabari wa Kireno kwa RTP Áfrika alirejea ripoti ya UNICEF iliyosema kuwa wananchi wanakufa kwa njaa nchini Angola
 Rais Lourenço alikataa kuwepo kwa njaa nchini mwake wakati akikubali kuwa kuna utapiamlo
 Alisema
-A nossa luta é lutar para reduzir os índices de pobreza devido aos longos anos de conflito armado
-Hoje há oferta de bens alimentares em Angola não se pode dizer que existe hoje fome em Angola é uma questão de alguma má nutrição
 Mapambano yetu ni kupunguza kiwango cha umaskini uliotokana na kipindi kirefu cha vita
 Kwa sasa kuna chakula Angola huwezi kusema kuna njaa kali kwa sasa ni suala la utapiamlo kidogo tu
 Rais João Lourenço  alisema haya siku chache kabla ya kutembelewa na Rais wa Ureno Marcelo Rebelo de Sousa na siku chache kabla ya Kasisi wa Kikatoliki na mwanaharakati wa haki za binadamu kukosoa vifo vya Waangola kwa sababu ya njaa katika maeneo yanayokabiliwa na ukame
 Mwanaharakati Manuel Mapanda anayefahamika zaidi kama Dago Nível alihoji  kuhusu kauli ya Rais 
-Como é que o senhor vai dizer que não existe fome em Angola Não leu a Denúncia do padre Jacinto Wacussanga sobre a morte de um Angolano por fome Será que nos Gambos e no Curoca já não há fome Assim que Jlo assumiu a presidência a maioria dos Angolanos passou a ter a cesta básica e a fome foi eliminada
 Inakuwaje mwanaume anaenda kusema hakuna njaa Angola Hakusoma ukosoaji wa Kasisi Jacinto Wacussanga kuhusu vifo vya Waangola kwa sababu ya njaa Ina maana huko Gambos na  Curoca hakuna tena njaa  Muda ule ule Jlo João Lourenço alipochukua madaraka ya Urais Waangola walipata mahitaji yao muhimu  na njaa ikafutiliwa mbali
 Wakati wa mahojiano hayo mabaya  pia Mkuu huyo wa nchi ya Angola alieleza kuhusu kusudio lake la kukomesha rushwa ambapo ni sehemu ya mpango wa chama  wakati wa uchaguzi
-Ninguém pode garantir que daqui para a frente não haverá corrupção e que não haverá corruptos mas que não ficarão impunes tal como sempre foi
-Não haverá mais intocáveis segundo João Lourenço
-Esse tempo ficou para trás
 Hakuna mtu anayeweza kuhakikisha kuwa kuanzia wakati huu na kuendelea kutakuwa hakuna rushwa na hakutakuwa na watu wala rushwa lakini hawatabaki bila kuadhibiwa
 Kulingana na João Lourenço hakutakuwa tena na wateule wasioguswa
 Kipindi hicho kilishapita
@@ -2713,22 +2540,16 @@ Mwaka 2018  Regional Forum for University Development FORDU Jukwaa la Maendele
 Makala hiyo ilionesha idadi kubwa ya watu wakitafuta chakula katika majalala katika maeneo ya katikati ya mji wa Huambo eneo ambalo makala hii ililenga na katika makao makuu ya nchi Luanda
 Picha za skrini kutoka katika makala hiyo inapatikana katika DVD pekee  Picha ya mmiliki Simão Hossi  imetumika kwa ruhusa
 Huko JM
-Notícias ukurasa wa Facebook maalum kwa ajili ya kushirikishana habari kulikuwa na ukosoaji wa wazi dhidi ya maoni ya Rais
-Precisamos reconhecer que ainda há muita gente em Angola vivendo á sic margem da sociedade problema que dificilmente se resolverá se não haver uma promoção de programas de inclusão social credíveis onde é cobrado e prestado contas
-E não com este nascer de uma nova elite de gatunos tipo quem não se safou no outro tempo que aproveite á sic brecha agora em que o artista principal e financeiro da nação é o J
-Lourenço
-Olha que os principais desafios estão ai mesmo diante dos vossos próprios olhos em vencer os problemas nas áreas da saúde educação habitação etc que pelo menos já deveriam dar alguns sinais mesmo que tímidos mais sic nada se vê 
-Tunahitaji kutambua kuwa bado wapo watu wengi amba
-o wanaishi maisha magumu nchini Angola tatizo ambalo ni vigumu kulitatua ikiwa hakutakuwa na mpango wa kuaminika wa kukuza ushirikishwaji  wa jamii ambapo ndipo  inawajibika
+Tunahitaji kutambua kuwa bado wapo watu wengi ambao wanaishi maisha magumu nchini Angola tatizo ambalo ni vigumu kulitatua ikiwa hakutakuwa na mpango wa kuaminika wa kukuza ushirikishwaji  wa jamii ambapo ndipo  inawajibika
 Na sio kwa kuzaliwa kwa wasomi wapya wahuni wanaochukua fursa kwa kuwa mlango uko wazi kwa sasa kwa kuwa jemedari mkuu na mwezeshaji wa nchi ni J
 Lourenço
-Ziangalie chamgamoto kuu ziko mbele ya macho yako kukabiliana na matatizo katika sekta za afya elimu  nyumba n
-k
+Ziangalie chamgamoto kuu ziko mbele ya macho yako kukabiliana na matatizo katika sekta za afya elimu  nyumba nk
 ambapo ingetakiwa iwe imeshaanza kuonesha dalili tayari hata kidogo lakini hakuna chochote kinachoonekana
 
-makala 61
+Makala 61
 Picha  Waziri wa Nchi Teknolojia Habari na Mawasiliano Idah Nantaba iliyopigwa kwenye video ya Youtube ambaye alinusurika kuuwawa katika jaribio la mauaji
-Tarehe 24 mwezi Machi 2019  ilitangazwa habari kuwa Waziri wa nchi Teknolojia Habari na Mawasilano Mheshimiwa Idah Nantaba amenusurika na  jaribio la mauaji  na kwamba askari wa Uganda wamebahatika kumpiga na kumuua mmoja wa washambuliaji katika mji mdogo wa Nagojje ulipo kilometa 53 Mashariki mwa mji mkuu Kampala
+Tarehe 24 mwezi Machi 2019  ilitangazwa habari kuwa Waziri wa nchi Teknolojia Habari na Mawasilano Mheshimiwa Idah Nantaba amenusurika na  jaribio la mauaji  
+askari wa Uganda wamebahatika kumpiga na kumuua mmoja wa washambuliaji katika mji mdogo wa Nagojje ulipo kilometa 53 Mashariki mwa mji mkuu Kampala
 Kwa zaidi ya miaka mitano iliyopita matukio mbalimbali ya mauaji ya viongozi vigogo wa kisiasa kidini au kijeshi yamesababisha kuwepo kwa hukumu chache halisi  au taarifa sahihi kuhusu matukio hayo
 Wananchi wa Uganda walirahisishiwa kwa mara kwanza kwa kusikia kwamba askari wamechukua hatua za haraka
 Hata hivyo habari ya kuchanganya imeibuka kuhusu mtu hasa aliyeuawa
@@ -2741,10 +2562,8 @@ Wale watu wawili walitelekeza pikipiki na kujaribu kutoroka kwa mguu lakini aska
 Abiria wake alikimbia
 Ssebulime aliwasihi kuwa yeye hana hatia lakini askari polisi walipiga pingu na kumtupia ndani ya gari la polisi
 Waliendesha kwa umbali mfupi na kisha walisema  amri imebadilika kabla hawajampiga risasi na kumuua haya yalitolewa na mashuhuda wa tukio hilo waliongea na NTV ya Uganda
-
 Shahidi mmoja alisema
 Ssebulime alichukuliwa kutoka kwenye gari dogo la doria akiwa amefungwa pingu na kupigwa risasi
-
 Mwingine alisema
 Askari polisi alirudi hatua mbili nyuma na kumpiga risasi mara mbili
 Uchunguzi mbovu 
@@ -2752,7 +2571,7 @@ Mshangao uliofuata askari walituma ujumbe kupitia tweeter kwamba kumpiga risasi 
 Risasi kadhaa zilipigwa kuelekea upande wao ili waweze kusalimu amri lakini ilikuwa bure
 Katika harakati hizo Sebbulime Ronald mkazi wa Kijiji cha Nakabugo katika kata ya Nakabugo kaunti dogo ya Pakiso iliyopo kaunti ya Busiro katika wilaya ya Wakiso alipigwa risasi na kuuawa katika purukushani
 Waliongeza kusema kuwa mshukiwa wa pili alitoweka na wanahofia kuwa ni hatari kwa kuwa ana silaha angawa askari polisi hawakuthibitisha hilo
-tarehe 24 Machi 2019 Jeshi la polisi Uganda lilisema Askari polisi wanaendelea kutafuta kwa kutumia mbwa eneo alipo mshukiwa wa pili ambaye anaogopwa kuwa na silaha na ni hatari
+Jeshi la polisi Uganda lilisema Askari polisi wanaendelea kutafuta kwa kutumia mbwa eneo alipo mshukiwa wa pili ambaye anaogopwa kuwa na silaha na ni hatari
 Tunataka kuutaarifu umma kuwa waziri ingawa anahofu yupo salama na hakushambuliwa kama ilivyolipotiwa na vyombo vya habari
 Mzungumzaji wa jeshi la polisi Fred Enanga alisema kwamba waziri mashahidi na maafisa polisi waliohusika katika kupurkushani wangetoa kauli wakati wanaendea kuchunguza kumbukumbu zilizomo kwenye simu ya Ssebulime pamoja na karatasi za usajiri wa pikipiki yake
 Irene Nakazibwe ambaye ni dada yake na marehemu anasistiza kuwa kaka yake alikuwa katika nafasi na muda usiyosahihi
@@ -2764,106 +2583,74 @@ Haijulikani kwa nini alijaribu kuwakimbia askari polisi wakati ana kitambulisho 
 Nakazibwe alieleza habari hiyo NTV ya Uganda
 Tarehe 27 mwezi Machi 2019askari polisi walikubali kwamba  Ssebulime aliuwa kimakosa na maafisa wa polisi na walitoa pole kwa familia ya marehemu
 Pia walithibitisha kuwa Ssebulime alikuwa hana silaha yoyote na alikuwa amebeba mkoba uliokuwa umejaa vinywaji vya soda na chakula kwa ajili ya Watoto wake
-
-pic
-twitter
-comrJwJERWcdZ
-Uganda Police Force PoliceUg March 27 2019
 Bodaboda Wazimu
 Kifo cha Ssebulime kimeibua hisia tofauti miongoni mwa waendesha pikipiki au pikipiki za kukodiwa ambao ni usafiri rahisi
 Angalau vifo vinavyohusisha vigogo watano  wakiwemo wakuu wa jeshi Wabunge viongozi wa dini vimetokea katika miaka mitatu iliyopita  vyote vikisababishwa na  kuwagonga waendesha pikipiki 
 Hii imewafanya waendesha pikipiki na maofisa wakubwa kuwa makini zaidi
-Mtumiaji wa Twitter Ganda Gannyana anafikiri kuwa sababu ya Ssebulime kuuwa bila kuchukuwa tahadhali yakutosha inatokana na maelekezo yaliyotolewa baada ya kuuawa kwa mheshimiwa Mbunge Ibrahim Abiriga  Rais Yoweri Museveni alisema pindi kiongozi anapomhisi  mtu yeyote anamfuatilia akiwa na nia mbaya wanapaswa kumuondoa mtu huyo
+Mtumiaji wa Twitter Ganda Gannyana anafikiri kuwa sababu ya Ssebulime kuuwa bila kuchukuwa tahadhali yakutosha inatokana na maelekezo yaliyotolewa baada ya kuuawa kwa mheshimiwa Mbunge Ibrahim Abiriga  
+Rais Yoweri Museveni alisema pindi kiongozi anapomhisi  mtu yeyote anamfuatilia akiwa na nia mbaya wanapaswa kumuondoa mtu huyo
 Yalikuwa maelekezo ya kipuuzi kutoka kwa Kaguta Museveni kwa kumhisi tu yeyote anakufatilia muondoe kwanza halafu waliobaki tutawaondoa baadaye
-Sasa unaonaNow see Mtu asiyekuwa na hatia  Ssebulime Ronald amechinjwa
-kupigwa risasi ukiwa umefungwa pingu hayo ni makusudi
-GandaGannyana IAmSegawa March 26 2019
-Mtumiaji wa Twita Ganda Gannyana anasema Yalikuwa maelekezo ya kipuuzi kutoka kwa Kaguta Museveni kwa kumhisi tu yeyote anakufatilia muondoe kwanza halafu waliobaki tutawaondoa baadaye
-Sasa unaonaNow see Mtu asiyekuwa na hatia
-Ssebulime Ronald amechinjwa
+Sasa unaona Mtu asiyekuwa na hatia  Ssebulime Ronald amechinjwa
 kupigwa risasi ukiwa umefungwa pingu hayo ni makusudi
 Mtumiaji wa Twitter Kyeyune Moses anaona mkanganyiko kwenye kifo cha Ssebulime
 Habari ya Ronald Ssebulime ni kubwa sana
 Kuna habari tofauti kuhusu nani aliyemuua anayedhaniwa kuwa mshambuliajina namna alivyoua
 Lakini habari inayogusa ni kuhusu watoto walioko shuleni sasa
 Walipoteza mama yao na baba yao ametoweka sasa
-Je haki itatendeka pic
-twitter
-com0Q0fVS8v4Z
-KYEYUNE W
-MOSES moskyeyune Tarehe 25 Machi 2019
-Mtumiaji wa Twitter Kyeyune Moses anaona mkanganyiko kwenye kifo cha Ssebulime
-Habari ya Ronald Ssebulime ni kubwa sana is bigger than meets the eyes
-Kuna habari tofauti kuhusu nani aliyemuua anayedhaniwa kuwa mshambuliajina namna alivyoua
-Lakini habari inayogusa ni kuhusu watoto walioko shuleni sasa
-Walipoteza mama yao na baba yao ametoweka sasa
 Je haki itatendeka
 Mtumiaji wa Twitter Angelo Peter alighadhabika kwamba askari polisi walishindwa kutoa ushahidi kuwa Ssebulime ni hatari kabla ya kumuua
-Mtumiaji wa Twitter Angelo Peter alighadhabika kwamba askari polisi walishindwa kutoa ushahidi kuwa Ssebulime ni hatari kabla ya kumuua Walipotaka kumfunga Bobi Wine kwa uhaini walionesha bunduki waliyoipata katika chumba chake hotelini ndani ya masaa 24
+Walipotaka kumfunga Bobi Wine kwa uhaini walionesha bunduki waliyoipata katika chumba chake hotelini ndani ya masaa 24
 Lakini hawawezi kutuonesha bunduki aliyokuwa nayo Ssebulime kabla hawajamuua
 Alipongea na waandishi wa bahari kwa ufupi Nantaba alisimulia habari yake na kuuliza maswali juu ya nani aliyepewa amri ya kumuua Ssebulime
 Alipendekeza mazingira mazima ya tukio hilo inawezekana yamepangwa na waongozaji wa mauaji wa watu wakubwa  na bado anaamini Ssebulime ameangukia katika jaribio la kumuua
 Mipango ya mauaji haya ambayo yamekuwa yakitokea katika nchi yetu na kutokana na kile tunachokiona kitaendelea kwa sababu Ssebulime alikuwa ni mtu ambaye alipaswa kuwa shahidi lakini alikuwa wa kwanza kuuawa 
 
-makala 62
+Makala 62
 Edward Lowassa alikuwa mwanachama wa muda mrefu wa chama tawala CCm hadi alipoondolewa katika kinyanganyiro cha kugombea Urais na alijiunga chama cha Upinzani CHADEMA
 Hivi Karibuni amerudi CCM
 Picha ilipigwa kwenye YouTube kupitia chombo cha habari cha KTN cha Kenya
 Tarehe 18 Octoba 2015
 Katika Tanzania wanachama vigogo wa vyama vya upinzani wamehama na kurudi chama tawala Chama cha Mapinduzi hali hiyo imeadhiri siasa za vyama vingi katika taifa hili la Afrika Mashariki
-
-Wanachama wengi ni wale waliokuwa katika chama kikuu cha upinzani chama cha Demokrasia na Maendeleo au CHADEMA ambapo miaka michache iliyopita wabunge wake wanne madiwani 75 na baadhi ya wenyeviti wa vijiji wamehamia CCM
-
-Jukwaa la katiba Tanzania  limedai kuwepo na marekebisho ya katiba kwa kuwa yanaweza kuzuia kuhama huko  lengo ni kuepuka gharama zisizo za lazima ambazo serikali inaingia katika kuendesha na kuratibu mara kwa mara chaguzi za marudio alieleza Hebron Mwakagenda mwenyekiti wa TCF
-
+Wanachama wengi ni wale waliokuwa katika chama kikuu cha upinzani chama cha Demokrasia na Maendeleo au CHADEMA ambapo miaka michache iliyopita 
+wabunge wake wanne madiwani 75 na baadhi ya wenyeviti wa vijiji wamehamia CCM
+Jukwaa la katiba Tanzania  limedai kuwepo na marekebisho ya katiba kwa kuwa yanaweza kuzuia kuhama huko  
+lengo ni kuepuka gharama zisizo za lazima ambazo serikali inaingia katika kuendesha na kuratibu mara kwa mara chaguzi za marudio alieleza Hebron Mwakagenda mwenyekiti wa TCF
 Tume ya Uchaguzi ya Taifa imeratibu  mara kadhaa chaguzi za marudio  kwa gharama kubwa ambayo matokeo yake kumekuwepo na idadi ndogo ya wapiga kura
 Lakini pia mchakato wa kupiga kampani umejenga hali ya woga na kutokuaminiana miongoni mwa wananchi
 Suala la Edward Lowassa
 Tarehe 1 mwezi Machi 2019 Waziri Mkuu aliyejiuzulu Edward Lowassa na mjumbe wa Halmashauri kuu ya CHADEMA alikihama chama hicho na kurudi chama chake cha zamani cha CCM baada ya kukihama miaka minne iliyopita
-
 Katika sherehe fupi ya kumkaribisha mwenyekiti wa CCM na Rais wa Tanzania  John Pombe Magufuli alimkaribisha Lowassa kwa mikono miwili  
 Ndugu Lowassa amejionyesha kuwa yeye ni mtu muungwana
-Tumefundishwa kusamehe
-na nia yetu ni kujenga nchi mpya Tanzania yenye Umoja bila siasa za kuleta migogoro
+Tumefundishwa kusamehe na nia yetu ni kujenga nchi mpya Tanzania yenye Umoja bila siasa za kuleta migogoro
 Lowassa alithibitisha kuwa   amerudi nyumbani  na hakuna sababu kwa sasa hivi kuwa katika chama cha upinzani
 Lowassa ni mmoja wa makada wachache waliolelewa na kuandaliwa na chama cha umoja wa kitaifa au TANU ambacho ni miongoni mwa vyama cha kwanza vilivyoundwa kabla Tanzania kupata uhuru kutoka kwa Mwingereza mwaka 1961 na baadaye aliandaliwa na umoja wa Vijana wa CCM kipindi cha mfumo wa chama kimoja
 Soma zaidi  
 Hata mnenguaji mzuri huondoka jukwaani Viongozi maarufu Afrika Katika kipindi cha mpito cha Siasa 
 Chini ya uangalizi wa CCM Lowassa aliwahi kuwa mbunge wa jimbo la Monduli kwa miaka 25 na kushika nyadhifa za uwaziri kwa miongo minne
 Mwaka 2008 kipindi cha Rais wa awamu ya nne Jakaya Kikwete  wakati Lowassa ni waziri mkuu  Lowassa alilazimika  kujihuzuru  baada ya kuhusishwa na udanaganyifu katika sakata la kampuni ya kufua umeme ya RICHMONDI
-
 Lowassa alijiunga na CHADEMA tarehe 4 Agosti  2015 kuelekea uchaguzi mkuu baada ya CCM kumuondoa kwenye orodha ya wagombea urais katika chama hicho
 Baada ya kuondolewa aliishtumu CCM na viongozi wake kuwaita madikteta wasio na demokrasia na wenye uchu wa madaraka
-
 Baada ya kuhamia CHADEMA chama hicho na washirika wake walimteua Lowassa kuwa mgombea Urais chini ya UKAWA ambao ulikuwa ni umoja wa vyama vya upinzani
-Katika uchaguzi mkuu huo wa mwaka 2015 Lowassa alipata kura milioni sita sawa  na asilimia 40 dhidi ya kura milioni 8
-8 za Magufuli wa CCM ambazo zilikuwa sawa na asilimia 60
-
+Katika uchaguzi mkuu huo wa mwaka 2015 Lowassa alipata kura milioni sita sawa  na asilimia 40 dhidi ya kura milioni 88 za Magufuli wa CCM ambazo zilikuwa sawa na asilimia 60
 Kutokana na ushawishi wa kisiasa aliokuwa nao Lowassa vyama vya upinzani kama CHADEMA kilivuna viti 70 vya ubunge ukilinganisha na viti 48 vya mwaka 2010 wakati Chama cha wananchi CUF pia kikiwa mwanachama wa UKAWA kilipata viti 45 ukilinganisha na 36
-
 Ni kukaribishwa au Kushawishiwa  
 Kurudi kwa Lowassa  katika chama tawala kumeibua pongezi na kejeli kutoka kwa wanasiasa na wachambuzi maarufu wa mambo ya siasa
 Mwenezi na msemaji wa CCM Humphrey Polepole alimpongeza Lowassa kwa maamuzi yake shupavu ya kurudi kwenye chama chake cha zamani na cha muda mrefu
 kurudi na kuomba msamaha ni uungwana na unyenyevu mkubwa
 Watu wengine wamesema kuwa kiwango kikubwa cha wanachama kuhama vyama sio jambo zuri kwa siasa kitaifa
 Naibu Katibu mkuu wa chama cha CUF Tanzania bara Magdalena Sakaya alisema kuhama huko ni hatari kwa ustawi wa Demokrasia na inaashiria mkakati wa siri wa kuua upinzani aliongeza
-
-Mkuu wa kitivo cha Falsafa na mafunzo ya Dini Chuo Kikuu cha Dar es Salaam Dkt
-Adolf Mihanjo aliwaita wanaohama vyama kuwa ni watu ambao hawana itikadi na wanatafuta nafasi za uongozi tu
+Mkuu wa kitivo cha Falsafa na mafunzo ya Dini Chuo Kikuu cha Dar es Salaam Dkt Adolf Mihanjo aliwaita wanaohama vyama kuwa ni watu ambao hawana itikadi na wanatafuta nafasi za uongozi tu
 Watu wameanza kuona kuwa wanaohama vyama wanashawishiwa kwa kupewa rushwa  hii ni hatari
 Pia naibu Katibu mkuu wa chama cha CUF visiwa vya Zanzibar Nassoro Mazrui alieleza wasiwasi juu ya msitakabali wa siasa za Tanzania kwa muda ujao alisema rushwa  imeghubika siasa za vyama vingi
 Mwenyekiti wa CHADEMA Freeman Mbowe anaamini wanaohama vyama wanakuwa wameshawishiwa na CCM kama njia ya kunyamazisha upinzani
 Hata hivyo Maulid Mtulia na Godwin Mollel ambao walijiunga na CCM mwaka jana walisema kuwa wamehama kutokana na kuridhishwa na kazi nzuri inayofanywa na Magufuli
 Kiongozi wa chama cha upinzani cha ACTWazalendo na mbunge wa Kigoma mjini Zitto Kabwe aliyakataa madai hayo na kuyaita ni  madai au sababu zilizotupu ambazo hazina vigezo wala ushahidi
-Dkt
-Richard Mbunda ambaye ni Profesa wa sayansi ya siasa chuo kikuu cha Dar es Salaam alionya kuwa ni vigumu kurudisha uhalali pindi unapotoweka
+Dkt Richard Mbunda ambaye ni Profesa wa sayansi ya siasa chuo kikuu cha Dar es Salaam alionya kuwa ni vigumu kurudisha uhalali pindi unapotoweka
 Wanaohama vyama wanajenga hali ya kupigia kura mtu yeyote ambayo ni janga kwa taifa Serikali yoyote inaweza kuingizwa kidemokrasia na baadaye inaweza kusababisha uasi wa raia au utawala haramu alisema
-
 Kuminywa kwa nafasi ya kisiasa kwa vyama vya Upinzani 
 Tanzania ilihalalisha kuwa na siasa za vyama vingi mwaka 1992 chini ya ibara ya 3 1 ya katiba
 Katika siasa za vyama vingi vyama vya siasa vina jukumu muhimu katika kuimarisha amani inayohitajika katika mahusiano ya kisiasa kitaifa
 Hata hivyo serikali iliyopo madarakani imeweka vikwazo vinavyozuia uwezo wa vyama vya upinzani kama vile vyama kutokuwa na mikutano ya siasa na kutooneshwa kwa mijadala ya bungeni kipindi bunge linaendelea
-
 Mwezi Februari marekebisho mapya ya sheria ya vyama vingi yalipitishwa ambayo yanazuia zaidi vyama vya siasa kufanya siasa kwa uhuru
 Tangu Magufuli aingie madarakani mwaka 2015 kumekuwa na kuendelea kuminywa nafasi ya kufanya siasa kupitia miswada na sheria mbalimbali kuzuia uhuru wa kutoa maoni au kujieleza mtandaoni
 Soma zaidi Bundi akataa kuondoka katika Bunge la Tanzania
@@ -2872,19 +2659,16 @@ Wanasiasa  pamoja na viongozi wa kitaifa wa vyama vya siasa wameruhusiwa kufanya
 Wanaokwenda kinyume hukamatwa na kushtakiwa
 Kabwe ambaye ni kiongozi wa ACTWazalendo aliamuliwa kuripoti kwa kamanda mkuu wa polisi wa mkoa wa kusini mwa Tanzania mkoa wa Lindi kwa kuendesha mkutano wa kisiasa nje ya jimbo lake
 Halima mdee mbunge wa Kawe alikamatwa baada ya kuongea na wapiga kura wake kwa sababu ya kufanya mkutano bila kibali
-
 Kutokana na hali ya siasa ya vyama vingi iliyoghubikwa na wanachama wake vigogo kuhama kama Lowassa vyama vya siasa vinapambana kuwepo
 Ingawa tangu kuanzishwa kwa vyama vingi vya siasa tumaini lilikuwa kukua kwa Demokrasia
 
-makala 63
+Makala 63
 Picha kupitia Nasser Weddady akiwa anawasiliana kupitia Twitter
 Mamlaka za Mauritania ziliwakamata  mabloga wawili Abderrahmane Weddady na Cheikh Ould Jiddou kwa kutoa taarifa juu ya Rushwa
 Weddady  na Jiddou walikamatwa tarehe 22 Machi baada ya kuitika wito wa kuitwa na kitengo cha makosa ya kiuchumi cha Mauritania
 Wote walichunguza na kutoa taarifa kuhusu tuhuma kuwa Rais wa nchi Mohamed Ould Abdel Aziz anajihusisha na rushwa
-
 Kabla ya kukamatwa kwao  wote waliandika kupitia Facebook kuhusu tuhuma za Dolla za Kimarekani bilioni 2 zinzomhusu Ould Abdel Aziz katika akaunti yake iliyopo Dubai
 Kutokana na  taarifa ya chombo cha habari mamlaka ya Falme za Kiarabu zilisimamisha akaunti yake kutokana na maombi ya idara ya Fedha ya Marekani katika mapambano dhidi ya kutakatisha fedha
-
 Weddady aliandikakwenye ukurasa wake wa Facebook kuwa askari polisi walimhoji kuhusu chanzo chake na kwa nini hakusubiri serikali kuchunguza suala hilo
 Alijibu kwamba kufungiwa kwa akaunti kuliripotiwa mtandaoni na chombo cha habari cha nje na kwamba  hana imani juu ya uchunguzi makini juu maovu yanayomhusisha Rais na wale wanaomzunguka
 Mwanzoni mwa mwezi Machi mabloga wote waliitwa na kuhojiwa na kitengo cha makosa ya kiuchumi juu ya taarifa yao dhidi ya rasilimali zinazotuhumiwa
@@ -2893,7 +2677,6 @@ Pia tarehe 22 Machi askari polisi waliwakamata watu hao wawili baada ya ofisi ya
 Mabloga hao wawili wapo kizimbani wakishitakiwa kwa kusambaza shutuma za uongo dhidi ya Ould Abdel Aziz chini ya kifungu cha 348 cha sheria katika kanuni za adhabu za Mauritania
 Wanakabiliwa na kifungo kuanzia miezi sita hadi miaka mitano jela kila mmoja
 Wanaendelea kuwa jela wakisubiri kutajwa kwa kesi yao
-
 Katika mahojiano na Global Voices kupitia WhatsApp Nasser Wedaddy kaka yake na Abderrahmane Weddady na mjumbe mmoja wa jumuia ya Global Voices alisema waendesha mashtaka wameshindwa kuonesha Ushahidi halisi  dhidi ya Abderrahmane na Ould Jiddou
 Pia alieleza kuwa mwanasheria wao amegundua hakuna kesi yoyote dhidi yao Alisema
 Muendesha mashtaka alidai kuwa ushahidi ulipotea
@@ -2909,7 +2692,7 @@ Katika taarifa kwa Global Voices familia ya Abderrahmane Weddady ilidai kwamba w
 Tunahitaji wote wawili Abderrahmane Weddady na  Cheikh Ould Jiddou kuachiwa huru kwa haraka na bila masharti
 Na kusikilizwa kwa shauri dhidi yao kufutwe na serikali ya Mauritania iombe radhi rasmi juu ya uchochezi huu mkubwa na holela wa serikali kuwakamata wapinzani wa kisiasa
 
-makala 64
+Makala 64
 Osama alNajjar bado yupo kizuizini ingawa alimaliza kutumikia kifungo chake miaka miwili iliyopita
 Picha  Akaunti ya Twiita ya mwanaharakati
 Mwanaharati wa Falme za Kiarabu Osama alNajjar anaendelea kuwa kizuizini kimakosa ingawa alishamaliza kutumikia kifungo chake cha miaka mitatu jera zaidi ya miaka miwili iliyopita
@@ -2919,16 +2702,14 @@ Kwa sasa anatumia miaka 11 jera
 Mwezi Novemba 2014 Baraza la usalama wa Taifa la Mahakama kuu ya shirikisho ambalo maamuzi yake hayawezi kukatiwa rufaa lilimuhukumu  Osama miaka mitatu jera kwa kutumia sheria ya nchi ya makossa ya mtandaoni kwa mashtaka ambayo yalijumuisha kuchochea chukidhidi ya taifa kwa kuandaa na kuendesha tovuti yenye fikra na habari za dhihaka na kukashifu
 Alitakiwa kuachiwa tarehe 17 mwezi Machi 2017 lakini kwa takwa la kushtakiwa na umma Mahakama ilimuona kuwa ni tiishio kwa usalama wa Taifa na iliongeza kizuizi chake bila kuthibitisha kitachukua muda gani
 Miaka miwili baadaye Osama ameendelea kuzuiliwa bila kuwepo mwisho wa kizuizi chake
-
 Taasisi ya kimataifa ya kutetea uhuru na mageuzi ya kisiasa katika Falme za Kiarabu hivi karibuni katika taarifa yake ya kuadhimisha kumbukumbu ya mwisho wa kifungo cha Osama rasmi  ilisema 
 Kwa kuwa hakuna shauri linaloendelea juu ya kizuizi hiki wale wote wenye tatizo hili ni bora wakamatwe na serikali badala mahakama kutoa adhabu
 Aina hii ya uendeshaji wa kutoa kizuizi unakiuka viwango vya kimataifa vya mchakato wa utoaji vizuizi
-
 Ingawa hakutiwa hatiani kwa makosa ya ugaidi Osama anaendelea kushikiliwa kituo cha kutoa ushauri nasaha katika gereza la alRazeen kwa sheria ya nchi ya kupambana na ugaidi
 Mamalaka za Falme za Kiarabu zinadai  kwamba madhumuni ya maamuzi hayo ni kutoa uangalizi kwa wale ambao wanaonekana ni tiishio dhidi ya Taifa
 Hata hivyo vikundi vya haki za binadamu vinasema kwamba mamlaka zinatumia sheria ya kupambana na ugaidi na hizi zinazoitwa vituo vya kutoa ushauri nasaha kama kisingizio cha kuendeleza vizuizi visivyokuwa na muda usiojulikana kwa wafungwa waliofungwa kwa kutoa maoni
 
-makala 65
+Makala 65
 Rais Jacob Zuma akitembelea Burundi tarehe 25  February 2016
 Picha Serikali
 Flickr CC licence
@@ -2940,18 +2721,15 @@ Wasichana wenye umri wa miaka 15 hadi 17 kama watapatikana na hatia wanaweza kuf
 Gazeti la Iwacu lilitaarifu kuwa familia za Watoto waliokamatwa walikuwa na huzuni sana
 Kuchorachora kwenye picha ya Rais ni kosa linalostahili adhabu kwa sheria ya Burundi kutokana na ripoti ya Reuters
 Hata hivyo umri wa mtenda kosa unaweza kutumika kama  jambo la kuzuiakatika kesi hii ya wanafunzi
-Mwalimu ambaye hakutaka jina lake kutajwa 
-Alibainisha kuwa vitabu hivyo  vya kiada vilikuwa havijakaguliwa kwa miaka kadhaa na mara kwa mara vimekuwa vikitumiwa na wanafunzi wengine kwa hiyo ni vigumu kujua nani kaviwekea alama
+Mwalimu ambaye hakutaka jina lake kutajwa Alibainisha kuwa vitabu hivyo  vya kiada vilikuwa havijakaguliwa kwa miaka kadhaa na mara kwa mara vimekuwa vikitumiwa na wanafunzi wengine kwa hiyo ni vigumu kujua nani kaviwekea alama
 Tukio kama hilo lilitokea mwaka 2016 kutokana na mabishano juu ya Rais kugombea mhula wa tatu ambapo wanafunzi wa elimu ya sekondari ya juu walichorachora kwenye picha ya Nkurunziza katika vitabu vya kiada
 Mamlaka zilichukulia jambo hili kama kumdhihaki sana Rais na kuamua kuwafukuza mamia ya wanafunzi kutoka shule mbalimbali nchi nzima wanafunzi
 kumi na moja walishtakiwa kwa kumfedhehesha mkuu wa nchi na kuhatariisha amani ya nchi ingawa baadaye ilitaarifiwa kuachiwa
-Vitendo hivi alivikosowa sana  Zeid Raad Al Hussein wa shirika la haki za binadamu la umoja wa mataifa ilitoa taarifa tarehe 29 Juni 2016
+Vitendo hivi alivikosowa sana  
+Zeid Raad Al Hussein wa shirika la haki za binadamu la umoja wa mataifa ilitoa taarifa tarehe 29 Juni 2016
 Nimefadhaishwa na kuendelea kuripotiwa kusimamishwa shule na kukamatwa kwa Watoto wa shule na wanafunzi kwa kuchorachora kwenye picha ya Rais katika vitabu vya kiada
 Nkurunziza ni Kiongozi Mkuu wa Milele
 Rais Pierre Nkurunziza wa Burundi
-Picha na Eric Miller  Kilele cha Jukwaa la uchumi la kimataifa Afrika katika mji wa Cape Town Juni 36 mwaka 2008
-Picha kupitia Flicker CC BYNCSA 2
-0
 Pierre Nkurunziza amekuwa Rais wa Burundi tangu mwaka 2005
 Mwaka 2015 aliteuliwa kuiongoza Burundi muhula wa tatu na chama chake katika mazingira ya kutatanisha
 Mwezi Machi mwaka jana Nkurunziza alitajwa  na chama chake cha  CNDDFDD kuwa kiongozi mkuu wa milele
@@ -2963,49 +2741,26 @@ Ndiyo maana nawaomba wanachama wetu kumheshimu kwa sababu nyumba isiyokuwa na mw
 Kwetu tuna kiongozi mzuri sana
 Wakati chama  CNDDFDD kikishusha hadhi ya cheo chake Hadhi ya Nkurunziza inayoshinikizwa ni kuwa Kiongozi mkuu wa milele imefanya kuwa vigumu kwa mtu yeyote kukataa maamuzi yake  ukijumuisha na hoja yake ya kubadilisha mihula ya miaka miwili inayoruhusiwa na katiba ya nchi
 Hii inaakisi mamlaka ya utawala wa chama tawala kuwa yapo kwa mtu mmoja Nkurunziza na wanaomuunga mkono na hasa taasisi zinazoongoza nchi
-
 Wachoraji wakiwa na mshikamano
 Raia mtandaoni wameamua kuchorachora picha za Rais Nkurunziza kama kupinga kupitia alama za tweeter Nkurunziza na Burundi
 Warundi mtandaoni wanachorachora kwa kupinga kuchorachora picha za Rais Nkurunziza na kukamatwa na kuwekwa kizuizini wasichana watatu ambao ni watoto wa shule ambao walichora kwenye picha ya Rais iliyopo kwenye vitabu
-Patience Atuhaire patuhaire tarehe 22 Machi 2019
-Burundi  des lycéennes en prison pour le gribouillage dun portrait du prédident Nkurunziza LewisMudge hrw hrw_fr httpst
-coBkAP5PfglK pic
-twitter
-comz4HkiFbi3Z
-Warundi mtandaoni wanachorachora kwa kupinga kuchorachora picha za Rais Nkurunziza na kukamatwa na kuwekwa kizuizini wasichana watatu ambao ni watoto wa shule ambao walichora kwenye picha ya Rais iliyopo kwenye vitabu
-Eléonore Abou Ez Eleoabouez March 22 2019
 Wanafunzi wa sekondari ya juu wapo jela kwa kuchorachora picha ya Rais Nkurunziza
 Kama nilifanya hivi kwaNkurunzizas Burundi Ningeweza kufungwa jela GribouilleMoi httpst
-coV7nVxKXZ0P pic
-twitter
-comahcO0apSQ7
 Wietske Nijman WietskeNijman March 21 2019
 Burundi Thank you CNN jeune_afrique FRANCE24 RFIAfrique africanews lemondefr  others for your solidarity with jailed teenage girls bcz they scribbled pnkurunziza s picture
 Utawala wa kimabavu Burundi lazima ujue kuwa jela haielimishi
-radio_rpa RadioInzamba pic
-twitter
-com3R9KQ1oz6Y
 NDAYISHEMEZA Denis NDAYISHEMEZAD Tarehe 22 Machi 2019
 Serikali ya Burundiimewafunga jela Watoto wa shule  kwa madai ya kuchorachora picha za Rais
 Tumetuma kwa njia ya tweeter picha zetu zilizochorwachorwa kwa mshikamano
 Walitudhirishia kuchorachora kwenye picha ya Rais wetu na mimi nimefanya
 Hapa nina ujasiri sitakamatwa
-httpst
-coeqrrxussun
 Utawala wa kimabavu wa Burundi lazima ujue kuwa jela haielimishi
-Serikali ya Burundi imewafunga jela watoto wa shule kwa maai ya kuchorachora picha za Rais
-Tumetuma kwa njia hii ya Tweeter picha zetu tulizochorachora kwa mshikamano
-Wametupa ujasiri wa kuchorachora kwenye picha ya Rais wetu na mimi nimefanya
-Hapa nina ujasiri sitakamatwa
-Andrew Stroehlein astroehlein  Tarehe 22 Machi 2019
-Kuchukuliwa hatua kali ukosoaji 
 Serikali ya Burundi imekuwa makini juu ya ukosoaji tangu mwaka 2015 baada ya kushindwa  kwa Mapinduzi yaliyopelekea mapigano wa vikundi vya waasi ukosoaji  wa ukiukwaji wa haki za binadamu  vikwazo  vya uchumi ugumu na  migogoro ya wakimbizi 
 Jaribio la Nkurunziza la kutaka kuongoza muhula wa tatu lilipingwa  na Umoja wa ulaya na Umoja wa mataifa ambao walitaka kurejeshwa kwa amani  kabla ya uchaguzi
 Kukiwa na changamoto hizi  kuzingirwa na mawazo kulifanya mamlaka kuwa wakali na kuminya kwa nguvu wale walioonekana tishio
 Taasisi ya kimataifa inayojihusisha na haki za Binadamu The Human Rights Watch mwezi Mei 2018 katika taarifa yake maalumu iliweka wazi kuwa majeshi ya nchi ya Burundi usalama wa taifa na wanachama wa umoja wa vijana wa chama kinachotawala ambao wanajulikana kama Imbonerakure walifanya ukatili wakilenga wapinzani wanaharakati wa haki za binadamu na waandishi wa habari wakiuwa watu wapatao 1700 ubakaji mateso kupigwa vitisho na kukamata watu ovyo
 Hii imesababisha mgogoro wa wakimbizi ambao umepelekea warundi kukimbilia hasa Tanzania Rwanda Jamhuri ya kidemokrasia ya Kongo DRC na Uganda
-Wakati maelfu wamerudi shirika la wakimbizi la Umoja wa mataifa UNHCR lilitoa taarifa ya zaidi wakimbizi wa Burundi 347000 mwezi Februari 2019
-UNHCR inadai
+Wakati maelfu wamerudi shirika la wakimbizi la Umoja wa mataifa UNHCR lilitoa taarifa ya zaidi wakimbizi wa Burundi 347000 mwezi Februari 2019 UNHCR inadai
 vurugu za kisiasa Burundi zilikuwa mbaya sana mwaka 2015 baada ya Rais kutangaza mpango wa kugombea kuongoza kwa muhula wa tatu
 Maandamano mtaani yalipelekea mapigano makali na mamia elfu walikimbilia nch jirani kutafuta usalama
 Mapema mwezi huu Burundi imefunga ofisi za shirika la umoja wa mataifa linalojihusisha na haki za binadamu baada ya kukaa humo miaka 23 ikisema kuwa halihitajiki tena
@@ -3015,12 +2770,9 @@ Kwa mfano mwanaharakati wa kijerumani Rukiki ambaye aliandika juu ya vitendo vya
 Kesi ya Rukiki ilighubikwa na ukiukwaji wa taratibu za uendeshaji kesi na ililetwa kabla ya  kura ya maoni ya katiba yenye utata
 Suala la kuchorachora pia ni moja ya viashiria vya serikali isiyobadilika inayokatisha tamaa ukijumuisha ndoa za kulamisha mwaka 2017 kwa kuwafanya wachumba ambao hawajaoana kukaa kinyumba kuminya makahaba na omba omba
 
-makala 66
+Makala 66
 Upigaji kura ukiendelea wakati wa uchaguzi wa Rais Machi 28 2015 huko Abuja Nigeria
 Picha na Ubalozi wa MarekaniIdika Onyukwu
-Nakshi za picha Sio ya Kibiashara 2
-0 Generic CC BYNC 2
-0
 Nigeria itafanya uchaguzi wa Raisi hapo Februari 16 2019 na macho yote yapo katika uchaguzi huu kuthibitisha nguvu ya mila desturi na umoja katika demokrasia ya Nigeria
 Mwaka huu kuna  wagombea wakuu watano kati ya wagombea wote 73wa kinyanganyiro hiki cha Uraisi
 Wagombea wakuu wawili akiwepo Rais anayemaliza muda wake Muhammadu Buhari Chama cha Maendeleo kwa Wote na mgombea kutoka chama cha Upinzani Makamu wa Raisi wa zamani Atiku Abubakar Chama cha Demokrasia kwa Watu
@@ -3066,7 +2818,7 @@ Katika hotuba yake kwa wanasheria mwaka jana alisema kuwa utawala wa sheria ni l
 Upande mwingine Abubakar ameahidi kuendesha serikali  ya mfumo shirikishi ambayo itaunganisha utofauti wa Wanigeria na kuweka mazingira sawa na ya haki ambapo haki za raia wote zitalindwa na serikali yenye uwazi
 Ni muda pekee utakaoonesha ni jinsi gani mambo haya yatakavyojifunua katika kipindi hiki cha uchaguzi na baada ya hapo
 
-makala 67
+Makala 67
 Msikiti Mkuu wa Mecca inaaminiwa kuwa sehemu takatifu zaidi kwa Waislamu
 Picha na Wikimedia mtumiaji Basil D Soufi CC BYSA 3
 0
@@ -3083,13 +2835,11 @@ Historia ndefu ya Saudi Arabia katika Siasa na Dini
 Kwa utaratibu wa kuongoza kwa kutumia sheria za dini hili sio jambo la ajabu katika Ufalme huu wa kihafidhina uliokithiri
 Kwa hiyo viongozi wa Saudia wamekuwa wakiitumia dini kama zana ya nguvu kisiasa tangu kuanzishwa kwa ufalme huo
 Saudi Arabia ni nyumbani mwa maeneo mawili matakatifu ya Uislam Mecca na Medina
-
 Kila mwaka Mamilioni ya Waislamu kutoka kote ulimwenguni husafiri kuelekea Mecca kwa ajili ya kuhiji ambapo ni moja ya nguzo tano za Uislamu
 Hili limeifanya serikali ya Saudia kudai uhalali maalum wa kidini katika Uislamu
 Ufalme umekuwa ukiutumia uhalali huo kupata na kuendeleza mamlaka yake ya kisiasa
 Wakati mamlaka ya kwanza ya Saudia ilipoanzishwa mwaka 1744 Amiri wa mji mdogo wa vijito vya Diriya Muhammad ibn Saud alifanya makubaliano na viongozi wa kidini na muumini wa dini ndugu Muhammad ibn Abd alWahhab
 Abd alWahhab alianzisha mchakato wa uhafidhina wa kidini uliopitiliza kwa sasa unafahamika kama Uwahhabi ukilenga tafsiri yenye msimamo mkali wa Korani na desturi za Mtume
-
 Fanack chombo huru cha habari na tovuti ya uchambuzi iliyojikita kwenye mji wa  MENA inafafanua  kuwa muungano ulikusudiwa kutengeneza mazingira ya Kiislamu yenye kuongozwa na tafsiri zenye msimamo mkali wa Uislam
 Mamlaka hii ya kwanza ya Saudia ilianguka miongo kadhaa baadaye na mamlaka ya pili iliundwa mwaka 1824 na ilianguka tena mwaka 1891
 Mwaka1924 na 1925 familia ya IbnSaud iliivamia Mecca na Medina Miji mitakatifu ya Uislamu wakisaidiwa kwa ukaribu na wapiganaji wa Wahhabi
@@ -3101,14 +2851,11 @@ Watoa mihadhara ya kidini wameorodheshwa ili kuwaondosha wale wanaokemea uvunjaj
 Januari 2019 Waziri wa Masuala ya Uislamu Saudia ndugu Abdullatif Ibn Abdulaziz AlSheikh alikemea machafuko ya Waarabu ya 2011 na 2012 akiyaelezea kama yenye sumu na uharibifu kwa Waarabu na binadamu wa Kiislamu
 Katika rejea thabiti ya ukosoaji uliolenga Ufalme baada ya mauaji ya Khashoggi waziri alikemea kile alichokielezea kama  mashambulizi yasiyo ya haki kutoka kwa maadui wa Uislamu na akawatuhumu Waislamu wanaokosoa Ufalme na sera zake kwaa kueneza uchochezi kuleta mafarakano na uchochezi dhidi ya watawala na viongozi wao
 Akiangazia kuhusu uhusiano baina ya Uwahhabi na ukandamizaji wa kisiasa mwanaharakati wa haki za binadamu huko Saudia Yahya Assiri ambaye anaishi uhamishoni huko London alitwiti hapo Januari 13
-الاستبداد منظومة متكاملة
-وتمكن عندنا باستخدام الدين عندما تحالف ابن عبدالوهاب مع ابن سعود فنشأت السعودية و الوهابية كتوأم خبيث لن تنجو بلادنا إلا بالخلاص من الاستبداد السعودي الوهابي وكلما قلنا ذلك قال البعض بحسن نية أن الوهابية حركة دينية بينما هي سياسية صرفة
-يتبع
-Yahya Assiri يحيى عسيري المقسطون abo1fares January 13 2019
-Ukandamizaji ni mfumo endelevu na katika nchi yetu unawezeshwa na dini Wakati Ibn Saud na Ibn Abd alWahhab walipoungana Saudi Arabia na Uwahhabi waliongezeka na kuwa mapacha wakubwa sana
+Ukandamizaji ni mfumo endelevu na katika nchi yetu unawezeshwa na dini 
+Wakati Ibn Saud na Ibn Abd alWahhab walipoungana Saudi Arabia na Uwahhabi waliongezeka na kuwa mapacha wakubwa sana
 Nchi yetu haitaweza kuhimili labda tutokomeze ukandamizaji wa Saudia na Wahhabi
 Kama ambavyo tulisema hili wengine wenye nia njema walishasema kwamba Uwahhabi ni harakati za kidini wakati kwa ukweli ni harakati za kisiasa
-Lakini sauti za watu kama vile Assiri zimenyamazishwa nchini Saudi Arabia
+Lakini sauti za watu kama vile Assiri zimenyamazishwa nchini Saudi Arabia 
 Sauti nyingine kama hiyo ni ya Abdullah AlHamid ambaye yupo gerezani sasa na ni mmoja wa waanzilishi wa Chama Cha Haki za Kiraia na Kisiasa cha Saudia ambacho hakipo tena
 AlHamid anatumikia kifungo cha miaka kumi na moja gerezani kwa sababu ya harakati zake za kutetea haki za Binadamu alihukumuwa kwa makosa ya  kutokutii watawala na uchochezi kwa kuitisha maandamano
 Alihukumiwa mwaka 2013 na mahakama Maarufu ya Makosa Maalumu ya Jinai iliyoundwa kwa ajili ya makosa ya kigaidi lakini mara nyingi hutumika kuwahukumu wanaharakati wa haki za binadamu
@@ -3128,7 +2875,6 @@ Na wote watatu wanaweza wakahukumiwa kifo
 Akiwa na miaka 62 Sheikh Salman AlAwda ni muhubiri muhimu akiwa na wafuasi wengi katika majukwaa ya mitandao ya kijamii sio Saudi Arabia Pekee bali ukanda wa Arabuni wote
 Idadi ya wafuasi wake ikiunganishwa kutoka Instagram Facebook Twitter and YouTube ni zaidi ya milioni 22
 Hapo mwanzo alishawahi kuunga mkono machafuko ya Waarabu mwaka 2011 na aliitisha mabadiliko ya kidemokrasia katika Ufalme na katika Ukanda wote
-
 Shirika la Haki za Binadamu na makundi mengine ya haki za Binadamu walihusianisha kukamatwa kwake na chapisho moja la 8 Septemba katika ukurasa wake wa twita ambapo aligusia  habari kuhusu mapatano muhimu baina ya mataifa
 Katika sehemu ya pili ya bandiko lake twita aliandika Mungu alete amani katika mioyo yao kwa kile kilicho chema kwa watu wao
 Ali AlOmari ni mwanazuoni wa masuala ya dini na mwenyekiti wa 4Shbab kituo cha runinga cha Kiislamu kinacholenga vijana
@@ -3138,14 +2884,13 @@ Sheikh Awad AlQarni amekuwa akipokea tuhuma mbalimbali ikiwamo kuwaunga mkono ki
 Wakutubi wengine kadhaa wako magerezani kwa sasa huko Saudi Arabia
 Baadhi wameitisha mabadiliko ya kidemokrasia katika Ufalme kama vile AlAwda wakati wengine walipaza sauti wakimpinga Bin Salman na sera  zake au mabadiliko ya kijamii
 Wengine kama vile alOmari hapo nyuma alishawahi kuunga mkono watawala wa Saudi Arabia na Mrithi wa Kiti cha Mfalme
-
 Kinachothibitishwa na kesi hizi ni kuwa chini ya utawala wa Bin Salman ukimya hautoshi tena
 Zaidi ya muhuri wa mamlaka kunyamazisha sauti huru maneno ya yeyote ambaye hayaandiki kwa ajili ya mamlaka ya ufalme au ajenda yake ya kisiasa wahubiri lazima waende mbali zaidi na kumsifia hadharani mrithi wa kiti cha ufalme na uongozi wa Saudia
 Mitazamo na itikadi za wafungwa wa hisia kwa sasa ziko kifungoni huko Saudi Arabia ikiwamo mpigania haki za wanawake mpigania haki za binadamu waandamanaji wa Kishia na wahutubu wa kidini zinaweza kutofautiana
 Lakini chini ya utawala wa Bin Salman ndugu wote hawa wamehukumiwa chini ya mkono dhalimu wa mamlaka za Saudia ikiwamo vizuizi holela vifungo vya siri mateso and kupotea kwa kukusudia
 Kuhalalisha na kusafisha matendo ya unyanyasaji watawala wa Saudia hawakawii kutumia dini kama kinga
 
-makala 68
+Makala 68
 Kulingana na serikali ya Cuba madaktari wapatao 20000 waliwahudumia Wabrazili milioni 113 kwa kipindi cha miaka mitano
 Picha na Agência Brasil CC BY 3
 0
@@ -3158,10 +2903,6 @@ Mpango huo ulitoa upendeleo kwa madaktari wa Brazili lakini baada ya kuajiriwa k
 Kwa makubaliano ya mkataba huo Brazili haiwaajiri madaktari wa Cuba moja kwa moja badala yake inailipa serikali ya Cuba ambayo iliwapa mafunzo kuwaongoza na kuwafidia madaktari hao kama watumishi wa umma kwa mshahara wa asilimia 25 ya kile Brazili ingewalipa kama ingewaajiri wenyewe
 Médicos cubanos atendendo brasileiros mais vulneráveis
 São esses aí que Bolsonaro mandou embora do Brasil com suas declarações desastrosas
-Fotos Araquém Alcântara
-pic
-twitter
-comridWZci46y
 rodrigo vianna rvianna November 15 2018
 Madaktari wa Cuba wakiwahudumia Wabrazili wenye hali mbaya kabisahawa ndio watu Bolsonaro aliowafukuza kwa tamko lake la kikatili
 Picha na Araquém Alcântara
@@ -3190,8 +2931,6 @@ Kwa upande mwingine Taifa dogo la kisoshalisti lina daktari wa kutosha
 Kwa sasa Cuba ina madaktari elfu 50000 waliosambazwa katika nchi 67
 Kukodisha madaktari ndio biashara kubwa ya Cuba hutengeneza  dola za Marekani bilioni 11 katika pato la Taifa kwa mwaka ni zaidi ya unavyofanya utalii
 Madaktari wa Cuba wakiwasili nchini Brazili mwaka 2013
-Picha na Valter CampanatoAgência Brasil CC BY 3
-0
 Cuba ilituma nje kikosi chake cha kwanza cha madaktari mwaka 1963 baada ya vita vya uhuru uko Algeria
 Kuanzia hapo kupitia simulizi za Radio Ambulante karibu matabibu 500000 wa Cuba wameshafanya kazi Afrika Asia na Marekani
 Baada ya miaka mingi Wacuba wachache wameweza kuviambia vyombo vya habari vya Brazili kuwa walijisikia kunyonywa
@@ -3213,12 +2952,6 @@ Ifikapo Disemba 12 Wataalamu wote wa Taasisi ya Pan American Health Organization
 Katika kliniki nyingi za umma watu wamejikuta wapo wenyewe bila msaada wa kitabibu  kwa wiki nzima iliyopita au waliambiwa daktari atakuwepo kwa wiki mara moja kuanzia sasa
 Ingawa serikali ya Brazili inadai kuwa asilimia 92 ya nafasi zilizoachwa wazi na Wacuba zimeshazibwa gazeti la Folha de S
 Paulo lilisema kuwa mwisho wa siku namba hiyo inaweza isimaanishe chochote
-Em 2017 o Ministério da Saúde abriu concurso para selecionar brasileiros para o Mais Médicos
-Ao todo 6
-285 se inscreveram para 2
-320 vagas mas só 1
-626 apareceram para trabalhar
-Cerca de 30 deixaram seus postos antes de um ano de serviço
 Mwaka 2017 Wizara ya Afya ilifungua mlango wa kuchaguwa waBrazili kwa ajili ya mpango wa Madaktari Zaidi
 Kwa ujumla watu 6285 waliomba kazi katika nafasi 2320 zilizokuwepo lakini ni 1626 ndio walioripoti katika vituo vyao
 Karibu asilimia 30 waliacha kazi kabla ya kumaliza mwaka mmoja katika nafasi zao
@@ -3226,12 +2959,7 @@ Kama mipango mingi ya kijamii ilivyo nchini Brazili Madaktari Zaidi ulikuwa na k
 Labda changamoto kubwa ambayo serikali ijayo inapaswa ijifunze wapi ilikosea na pale ilipofanya sawa
 Ni kwa namna gani na ikiwa serikali ya Bolsonaro itahakikisha huduma za afya katika maeneo hayo zinapatikana na zinaonekana
 
-makala 69
-Baghdad
-Picha ya  MohammadHuzam CC BYSA 4
-0 httpscreativecommons
-orglicensesbysa4
-0
+Makala 69
 Makundi ya  Haki za Binadamu na Wanaharakati wanashauri Bunge la Irak kutupilia mbali Muswada wa makosa ya Mtandaoni ambao utazuia sana uhuru wa kutoa maoni mtandaoni kama utapitishwa
 Muswada unaweka hukumu ya kifungo kirefu cha gerezani kwa makosa yanayotokana na kauli ambazo hazikuelezwa vizuri katika mswada huo
 Ibara ya 3 inatamka kifungo cha Maisha jela na faini kali kwa wale wanaokutwa na hatia kwa kutumia kompyuta na mtandao  kudhoofisha uhuru  uadilifu na amani ya nchi au Uchumi wake Siasa jeshi au maslahi ya nchi au  kusababisha ugomvi wa kidini kuvuruga amani na utulivu au kuharibu heshima ya nchi
@@ -3241,9 +2969,7 @@ Bila kuwepo maana iliyo wazi ya ugaidi itakuwa rahisi kutumia sheria hiyo kufili
 Haki za mtandaoni tayari zinakiukwa Irak
 Majira ya kiangazi yaliyopita mamalaka zilijibu  maandamano kukemea rushwa na Maisha ya anasa katika Basra na miji mingine kwa kuzima  mtandao
 Kama utapitishwa mswada huo utafanya iwe vigumu kwa Wairaki kutumia haki zao za kuwasiliana kuongea kwa uhuru na kupata habari mtandaoni
-
 Mapema mwezi huu makundi tisa ya haki za binadamu pamoja na AccessNow Amnesty International na waangalizi wa haki za binadamu walichapisha  kauli ya kuliomba bunge la Irak kutupilia mbali mswaada huo
-
 Sheria hii itawafanya watumiaji wa mtandao kuwa waoga katika kutumia haki zao za msingi na uhuru wa kutumia mtandao na itaondoa haki ya kutoa maoni
 Pia sheria ina athari kubwa katika kufurahia haki na uhuru wa habari na haki ya kushiriki katika mambo ya umma katika nchi ya Irak
 Bunge lilitazamia kujadili mswada huo tarehe 4 Machi lakini baadaye uliondolewa
@@ -3251,14 +2977,9 @@ Katika akaunti ya Twita ya Afisa wa Baraza la Bunge la Irak aliwashukuru  wale w
 Makundi ya haki za binadamu na wanaharakati walipokea jibu hilo kwa furaha lakini bado wana wasiwasi
 Ushindi mdogo Kutokana na kampeni iliyofanywa na wanaharakati wa haki za binadamu waandishi wa habari wa Irak ndani na nje na Mashirika yasio ya kiserikali kufanikiwa kuondolewa kwa rasimu ya uharifu mtandaoni kutoka ratiba ya Bunge 
 hatua inayofuata nikuondolewa kwa rasimu ya sharia kwa pamoja httpst
-coKWaXABej1r
-Raz Salayi razsalayi Tarehe 14 Machi 2019
-Ushindi mdogo Kutokana na kampeni iliyofanywa na wanaharakati wa haki za binadamu waandishi wa habari ndani na nje na Mashirika yasio ya kiserikali kufanikiwa kuondolewa kwa rasimu ya uhalifu mtandaoni kutoka
-ratiba ya Bunge hatua inayofuata nikuondolewa kwa rasimu ya sharia kwa pamoja
-Tarehe 14 Machi 2019
 Haijaeleweka vizuri kama Bunge litaufanyia marekebisho mswada huo au kuupanga tena ili ujadiliwe
 
-makala 70
+Makala 70
 Hapana kwa udikteta na wala rushwa mchoro na Tibyan Albasha
 Umetumika kwa ruhusa
 Tangu Disemba 2018 maandamano yaliyoanza kwa sababu ya ongezeko la bei ya mkate yamekuwa ya kitaifa yakiupinga uongozi wa Omar Al Bashir uliodumu karibu miongo mitatu
@@ -3363,7 +3084,7 @@ Vifungu vya adhabu nchini Sudan ambavyo hutafsiriwa kutoka kwenye Sharia Sheria 
 Pamoja na hayo wanawake wanakumbana nasheria za maadili ambazo zinawafunga na kuwakandamiza katika maisha yao ya kila siku
 Kwa sababu hizi wanawake wa Sudan wako mstari wa mbele katika maandamano wakipigania mabadiliko
 
-makala 71
+Makala 71
 Kimbunga Idai kimefanya uharibifu Zimbambwe Malawi Mozambique na Afrika Kusini kikisababisha mafuriko makubwa kungoka mawena matope kuporomoka
 Picha ya mafuriko katika nchi ya Msumbiji iliyotumwa kwenye mitandao ya kijamii
 Kimbunga aina Idai kinachosababishwa na hali ya kitropiki kimeacha uharibifu mkubwa na vifo baada ya kuzikumba nchi za kusini mwa Afrika za Msumbiji Malawi na Zimbambwe
@@ -3433,7 +3154,7 @@ Alitahadharisha kuwa nyanda za juu mashariki mwa nchi bado zinategemewa kuwa na 
 Hakuna ukungu wala mvua vilivyotegemewa siku ya Jumatatu hata hivyo hali ya hewa nzuri inategemewa kuanza
 Juhudi za kurekebisha uharibifu zitahitajika kwa muda mrefu na harakati za kutoa misaada kwa waathirka zinaendelea
 
-makala 72
+Makala 72
 Picha iliyopigwa kutoka kwenye  TV5Monde ikionesha kutoka kulia wagombea katika uchaguzi mkuu 2018 wakijadili  Felix Tshisekedi Katikati na Joseph Kabila kushoto
 Kupitia  YouTube
 Mwezi Januari mahakama ya Jamhuri ya kidemokrasia ya Congo ilimtangaza Felix Tshisekedi kuwa ni Rais mteule mpya wa Congo ikitupilia mbali shauri  lililofunguliwa na mshindi wa pili Martin Fayulu ambaye alidai kulikuwepo ulaghai katika kura
@@ -3525,7 +3246,7 @@ Tangu hapo wananchi wamekuwa wahanga wa ukiukwaji wa haki za binadamu kama vile 
 Mradi wa kukusanya taarifa ya migogoro Uppsala ilihitimisha kuwa serikali ya Laurent kabila ilishuhudia miaka mitatu yenye kiwango cha hali ya juu ya vifo vilivyosababishwa na migogoro mwaka 1998 kulikuwa na vifo vipatavyo 13884 mwaka 1999 vifo 8019 na mwaka 2000  kulikuwa na vifo 7537
 Je serikali mpya ijayo ya Felix Tshisekedi itamaliza machafuko au itayachochea Tusubiri
 
-makala 73
+Makala 73
 Ahmed HusseinSuale Divela Picha na Kamati ya Kulinda Waanadishi wa HabariMwezi mmoja baada ya ya kupigwa risasi akiwa kwenye gari yake huko Madina nchini Ghana Ahmed HusseinSuale Divela Mgana aliyekuwa mwandishi  wa habari za kiuchunguzi wanaharakati wanahitaji majibu na maelezo ili kujua  mazingira ya kifo chake cha kutisha
 
 Kikundi cha Maendeleo ya Umoja wa Waandishi wa Habari kilifanya matembezi ya mshikamano na amani  katikati  ya mwezi Februari mjini Accra kutoa ujumbe kwa jeshi la polisi kwamba wauaji wa Divela hawajajulikana na kushtakiwa
@@ -3595,7 +3316,7 @@ Fikiria malipo ya chini sana ya waandishi wa habari haina maana kwa waandishi wa
 Hata hivyo kifo cha Divela hakitasahaulika ingawa kazi yake itaendelea kuishi
 Waandishi wa habari na wanaharakati wataendelea kuwa na matembezi hadi ufumbuzi upatikane
 
-makala 74
+Makala 74
 Bango lenye picha ya Rais wa Msumbiji Filpe Nyusi Nyusi
 Picha na  Dércio Tsandzana na imetumiwa kwa kibali
 Kwa mara ya sita tangu mwaka 1994 Msumbiji itamchagua Rais wake mwingine mwezi Oktoba 2019  na kwa mara ya kwanza itawachagua wakuu wa majimbo
@@ -3624,7 +3345,7 @@ Mabadiliko hayo ni matokeo ya makubaliano mazito na yaliyochukua muda marefu  ka
 
 Wakati Rais hajaondoa sheria ambayo itaendana na mabadiliko haya hata hivyo inaaminika kuwa atafanya hivyo
 
-makala 75
+Makala 75
 Katika hotuba yake ya mwaka kwa taifa Vladimir Putin amewaahidi warusi mtandao wnye kasi zaidi na wakuaminika
 wataalamu wanasema Kuwa hakika hautatolewa bure
 TASSkremlin
@@ -3686,7 +3407,7 @@ Hata hivyo miswada yote ilipitishwa iliposomwa kwa mara kwanza shukrani kwa cham
 
 Inaonekana serikali ya Urusu inatumaini nguvu yake ya kudhibiti shughuli za mtandaonikiasi kwamba sasa inawahakikishia utoaji na upatikanaji wa mtandao kwa Warusi wote bila kuhofia mabaya yanayoweza kutokea
 
-makala 76
+Makala 76
 Jolovan Wham kupitia Twitter
 Ujumbe ufuatao uliandikwa na Holmes Chan na kuchapishwa na vyombo vya habari vya Hong Kong tarehe 21 ya mwezi Februari 2019
 Toleo lililohaririwa lilichapishwa tena na Global Voices chini ya maudhui ya mkataba wa ushirikiano
@@ -3719,7 +3440,7 @@ Kutokana na chombo cha habari cha NewsAsia Mashtaka yalieleza  kuwa watu maelfu 
 Hata hivyo Han alisema tukio lile lilihudhuriwa na watu waliozidi kidogo 60 na lilikuwa la kiwango kizuri
 Hata ukumbi haukuwa mkubwa aliongeza
 
-makala 77
+Makala 77
 Bloga Malele Paulo ambaye anajulikana kama mfalme Faipopo
 Chanzo Facebook
 Askari wa Samoa walimkamata  bloga Malele Paulo aishie Australia tarehe 8 Februari wakati akitembelea nchi hiyo kuhudhuria mazishi ya mama yake
@@ -3752,7 +3473,7 @@ Taarifa ya habari iliyotafiti  maoni ya baadhi ya wananchi ambao walieleza juu y
 
 Malele amepangiwa kufikishwa mahakamani tarehe 5 Machi
 
-makala 78
+Makala 78
 Wagombea wa kiti cha Urais wa Nigeria mwaka 2019 Picha zimechanganywa na Nwachukwu Egbunike
 Naijeria nchi ya Afrika yenye watu wengi zaidi watafanya uchaguzi wake wa Rais hapo Februari 16 2019
 Ingawa kuna wagombea wa urais 73 mpambano wa kuwania Aso Rock  kiti cha urais wa Naijeria zitakuwa kati ya wagombea na wapinzani wawili wakuu kutoka kwenye upande unaofahamika kama nguvu ya tatu kikundi cha wenye matumaini ambao inaonekana ni wageni kwa siasa za Nigeria
@@ -3803,7 +3524,7 @@ Hata hivyo ana kikwazo kikubwa cha kuwaza kuhusu nguvu ya mpinzani wake mkuu ana
 Hata hivyo yeyote atakayeshinda uchaguzi wa 2019 atakumbana na changamoto nyingi ikiwamo kuimarisha uchumi usalama wa ndani kupanga mamlaka upya na kupunguza mamlaka ya viongozi  na kuondoa siasa za kidini na kikabila
 Angalizo la Mwandishi Nakala ya mwanzo ya chapisho hili lilieleza kuwa kuna wagombea 35 wa urais na imehuishwa na kuonesha kuwa wapo wagombea wa Urais 73
 
-makala 79
+Makala 79
 Eissa Muhamad kutoka Niger amekwama kwenye uwanja wa ndege wa Kimataifa wa Bole huko Addis Ababa Ethiopia kwa miezi miwili sasa
 Picha na Eissa Muhamad imetumika kwa ruhusa
 Eissa Muhamad kutoka Niger amesema kuwa amekwama katika uwanja wa ndege wa kimataifa wa Bole kwa miezi miwili katika eneo la wasafiri kuanzia Novemba 6 2018
@@ -3831,7 +3552,7 @@ Kitaalamu Ethiopia ni moja ya watia saini wa azimio la 1951 kuhusu hadhi ya waki
 
 Katika mahojiano ndani ya video hii Muhamad ananieleza jinsi anavyojisikia baada ya kukwama uwanja wa ndege huku akiwa hajui mustakabali wa maisha yake ya baadaye
 
-makala 80
+Makala 80
 Picha ya Skrini kutoka katika video ya Balozi wa Urusi akihutubia katika kituo cha runinga cha Africa Guinee TV huko YouTube kwa KifaransaHapo Januari 9 2019 Alexander Bregadze Balozi wa Shirikisho la Urusi kwa Jamuhuri ya Guinea alituma salamu za Mwaka mpya kumpongeza Rais Alpha Condé wa nchi hiyo ya Afrika Magharibi
 Alirekodi video hiyo ya salamu akiwa huko Conakry mji mkuu ambapo ndipo ofisi yake ya kidiplomasia ipona katika hotuba yake alilenga jambo la msingi uwezekano wa WaGuinea kubadilisha katiba yao na kumruhusu Rais Condé kugombea kwa kipindi cha tatu baada ya muhula wake kuisha hapo 2020
 Depuis que la Guinée est devenue la Guinée dAlpha Condé elle est vraiment en marche
@@ -3914,7 +3635,7 @@ wamesema yaleyale hivyo ni kusema hawana utofauti na mwenzao  balozi wa Urusi
 Hakuna hata mmoja aliyejiengua katika tamko hilo na hakuna ubalozi ulishatoa waraka kuhusu jambo hilo
 Hapo Januari 14 mamlaka za ulinzi zilitawanya  maandamano yaliyoandaliwa nje ya ubalozi wa Urusi na  mashirika ya kiraia yakipinga kuhusu maoni ya balozi
 
-makala 81
+Makala 81
 Rais Mstaafu wa Naijeria Olusegun Obasanjo
 Creative Commons CC BY 2
 0 Flickr June 27 2011
@@ -3958,7 +3679,7 @@ Vile vile Februari mwaka jana mkuu wa jeshi mstaafu Ibrahim Babangida alimshaur
 Anaamini kuwa zitakuja nyakati katika maisha ambapo maslahi binafsi hayawezi kupindua maslahi ya Taifa
 Lakini itachukua muda kidogo mpaka Nigeria ije ipate Rais wa Kiraia ambaye ahusiani au hana ushirika na klabu ya Majenerali wajeshi wastaafu
 
-makala 82
+Makala 82
 Anguko la ardhi hapo April 8 2009  Picha na hisank ya Elizabeth Donoghue  katika akaunti ya Flickr CC BYNCND 2
 0
 Miaka kumi iliyopita siku ya Jumamosi 7 Februari 2009 Victoria ilipatwa na janga la nyika kuwaka moto ambapo watu 173 waliuawa na zaidi ya mia nne kujeruhiwa na makazi zaidi ya elfu mbili kuharibiwa na moto huo
@@ -4031,7 +3752,7 @@ Jumamosi Nyeusi ilikuwa mwanzo wa mageuzi
 ya Twita katika nchi hii kuanzia pale ilipokuwa inachukuliwa kama njia ya mawasiliano isiyo na uhakika na sasa imekuwa sehemu ya maisha yetu
 Adrian Cutts LYBASkw February 6 2019
 
-makala 83
+Makala 83
 Manusura waliopoteza ndugu zao na nyumba zao wakiwa wamejipumzisha kufuatia shambulizi la Juni 5 katika kijiji cha Naunde huko Cabo Delgado Msumbiji
 Picha na Borges Nhamire imetumika kwa ruhusa
 Mwandishi wa habari wa Msumbiji Amade Abubacar alikamatwa hapo Januari 5 wakati akiripoti kuhusu mashambulizi na vurugu katika vijiji vidogo vya jimbo la Cabo Delgado huko Msumbiji
@@ -4068,7 +3789,7 @@ Mtu anaweza kudhani kuwa Rais FNyusi ana mambo mengi sana mkononi kuanza kupotez
 cogiF8zFnaCY
 Angela Quintal angelaquintal 30 janvier 2019
 
-makala 84
+Makala 84
 Viwanja vya Nyerere Square jijini Dodoma makao makuu ya Tanzania lilipo bunge
 Picha ya Pernille Bærendtsen imetumiwa kwa ruhusa
 Mnamo Januari 29 wakati  Bunge la Tanzania likiendelea na kikao chake jijini Dodoma huu ukiwa ni mkutano wake wa kwanza kwa mwaka 2019 bundi alitua kwenye jengo hilo akijishikiza kwenye paa na kulitazama bunge akiwa kwa juu
@@ -4147,7 +3868,7 @@ Maana yake ni kwamba tusiogope uwepo wa bundi huyu
 
 Kwa wakosoaji hata hivyo hakuna maelezo mengine chanya ya sheria hiyo mpya
 
-makala 85
+Makala 85
 Picha ya Bendera ya Upinde wa Mvua kutoka kwa Jaime Pérez CC BYNC 2
 0
 Eneza Upendo na sio Chuki ni kauli mbiu iliyosikika wakati wa maandamano ya kwanza ya wapenzi wa jinsia moja nchini Guyana ambayo yalifanyika juni 3 2018
@@ -4206,7 +3927,7 @@ Jumuiya hiyo ilitishia hata kuyazuia maandamano hayo lakini kuliwepo na polisi w
 Simpson aliyehudhuria mkutano kama mwakilishi wa jumuiya ya mashoga alionesha kuwa wananchi mashoga bado wanasubiri ahadi ya uchaguzi wa mwaka 2015 ambapo waliahidiwa mabadiliko ya sheria
 Tu wapiga kura na raia walipa kodi kama raia wengineHatudai kitu chochote maalum Tunastahili kufurahia ulinzi dhidi ya unyanyapaa
 
-makala 86
+Makala 86
 Maafisa wa polisi wa Naijeria waliomaliza mafunzo yao mwaka 2015
 Picha na AMISOM imeachiliwa kwa matumizi ya umma
 Daniel Elombah ni mchapishaji wa  elombah
@@ -4236,7 +3957,7 @@ Anataka afidiwe Naira bilioni 2 karibu dola milioni 5
 
 Vile vile mawakili watatu wanaotoka Uingereza walitoa hoja kwa Mbunge wa Uingereza Lyn Brown Waziri Mkuu Theresa May na Waziri wa Mambo ya Nje Boris Johnson kuhusu kukamatwa kwa Daniel Elombah kinyume na sheria
 
-makala 87
+Makala 87
 Waandamanaji wakiwa katika fulana za njano katika jimbo la ufaransa la HauteSaone mwezi Novemba 2018
 Picha na Obier kupitia Wikimedia
 CC ATNC
@@ -4282,7 +4003,7 @@ Sera ya uwazi na mageuzi imesaidia miji mingi kama Yiwu kuwa na hatua na kupata 
 Jitihada zao zimeleta mageuzi makubwa nchini China katika miaka 40 tu
 Huu mwingiliano wa uwezo wa kiwango cha mauzo ya Yiwu kutabiri na mageuzi ya kiuchumi nchini China umefanya hadithi ya asili ya Yiwu kuwa ngumu kubadilishwa
 
-makala 88
+Makala 88
 Wanafunzi wakipata kifungua kinywa shuleni
 Picha na Faten kwa ajili ya Solidarios sin Fronteras
 Imetumika kwa ruhusa
