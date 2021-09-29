@@ -3059,14 +3059,10 @@ Picha ya mafuriko katika nchi ya Msumbiji iliyotumwa kwenye mitandao ya kijamii
 Kimbunga aina Idai kinachosababishwa na hali ya kitropiki kimeacha uharibifu mkubwa na vifo baada ya kuzikumba nchi za kusini mwa Afrika za Msumbiji Malawi na Zimbambwe
 Hadi sasa inakadiriwa katika nchi hizo  watu 162 wamepoteza Maisha katika kimbunga hicho
 Kimefanya uharibifu mkubwa karibu jiji lote la Beira nchini Msumbiji
-Shirika la Msalaba Mwekundu limesema kimbunga ambacho kilichopiga Msumbiji wiki iliyopita kimeharibu asilimia 90 ya mji wa Beira na vifo vinaendelea kuongeza katika nchi hiyo na nchi jirani ya Zimbabwe vimefikia hadi vifo 157
 Hii ni ramani ya mahali ambapo kimbunga hicho kimeharibu
-Sofala Manica Zambezia and Inhambane provinces in Mozambique have been hardest hit by CycloneIdai
-Inakadiliwa  watu 89  wamekufa katika nchi ya Zimbabwe tu huku kukiwa na hofu ya takwimu ya juu katika eneo la Manicaland ya wilaya  Chimanimani ambayo ipo kilometa  406 mMashariki mwa mji mkuu wa Harare Zimbabwe huku nyumba na madaraja yakiwa yamebebwa na dhoruba iliyoanza Ijumaa
+Inakadiliwa  watu 89  wamekufa katika nchi ya Zimbabwe tu huku kukiwa na hofu ya takwimu ya juu katika eneo la Manicaland ya wilaya  Chimanimani ambayo ipo kilometa  406 m Mashariki mwa mji mkuu wa Harare Zimbabwe huku nyumba na madaraja yakiwa yamebebwa na dhoruba iliyoanza Ijumaa
 Kutokana na taarifa ya serikali zaidi ya watu 300 hawaonikani 
-Umoja wa Mataifa katika Zimbabwe ulisema kuwa zaidi ya watu 8000 wameathiliwa na mafuriko katika pande za mashariki mwa nchi hiyo
-Inasikitisha Maisha ya wtu yamepotea na mali zimeharibiwa 
-Umoja wa Mataifa Zimbambwe ulituma ujumbe wake kupitia twiita
+Umoja wa Mataifa katika Zimbabwe ulisema kuwa zaidi ya watu 8000 wameathiliwa na mafuriko katika pande za mashariki mwa nchi hiyo Inasikitisha Maisha ya wtu yamepotea na mali zimeharibiwa
 Kutokana na taarifa ya serikali kimbunga Idai kilipiga sana mji wa Ngangu katika Chimanimani ambapo watu wengi wamepoteza maisha
 Zaidi ya nyumba elfu moja ziliharibiwa kwa kuangukiwa na udongo na mawe
 Kimbuka hicho kilitokea katika bahari ya Hindi na kuambatana na mvua nyingi iliyoanza kunyesha Msumbiji Alhamisi ikiambatana na upepo uliovuma kwa mwendokasi wa kilometa 160 kwa saa inalipotiwa ulisababisha mawimbi ya bahari yenye ukubwa wa meta  kwenda juu
