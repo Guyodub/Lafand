@@ -2359,10 +2359,6 @@ John Paul II alikuwa ni Papa wa mwisho kutembelea Msumbiji mwezi Septemba 1988
 Uthibitisho wa matembezi ya  papa ulikuwa tayari umetegemewa katikati ya mwezi wa Februari
 Msumbiji itakuwa na uchaguzi mkuu mwezi Oktoba  ingawa  haijapata ahueni kutokana na kimbunga cha    Idai ambacho  kilisababisha vifo vya zaidi ya watu 500 na wengine zaidi ya milioni kukosa makazi  ya kuishi
 Papa ameonesha mshikamano na waathirika
-Expresso a minha dor e a minha solidariedade às queridas populações de Moçambique Zimbábue e Malauí atingidas pelo ciclone Idai
-Confio as inúmeras vítimas e suas famílias à misericórdia de Deus
-PrayForAfrica cycloneIdai
-Papa Francisco Pontifex_pt 20 mars 2019
 Nina maumivu na ninaungana na wapendwa wananchi wa Msumbiji Zimbabwe na Malawi walioathirika na kimbunga cha Idai
 Ninawakabidhi katika rehema za Mungu wote walioathiriwa pamoja  na familia zao
 Balaa lilisababishwa na mojawapo ya vimbunga vibaya sana vilivyowahi kupiga katika eneo la kusini lilipiga mji wa Beira katikati ya Msumbiji tarehe 14 Machi na halafu katika nchi jirani za Zimbabwe na Malawi
@@ -2371,12 +2367,7 @@ Tangu balaa hilo  nchi ipo katika hali ya hatari ambalo limeifanya serikali kupi
 Katikati ya balaa serikali inajaribu kupanga namna ya kuwaokoa kwa kuwatafutia makazi ya kuishi maelfu ya watu baada ya madhara yaKimbunga Idai
 Rais Nyusi alitoa taarifa mbashara kwa taifa kutangaza kwamba Papa anatazamia kutembelea Msumbiji mwezi Septemba
 Kutoeleza vizuri ni vibaya
-Zenaida Machado zenaidamz
 Ukweli ni kwamba uchaguzi kufanyika baada tu ya kutembelewa na Papa kumeibua maswali kutoka kwa wananchi ambao wanaona kuwa kutakuwa na athari katika mchakato wa kupiga kampeni
-Eh claro que a vinda do Papa Francisco em Setembro joga a favor da Frelimo e Filipe Nyusi
-Directa ou indirectamente a visita será politicamente aproveitada
-Seria bom que fosse adiada para Novembro isto eh depois da confusão das eleições gerais agendadas para 15 de Outubro
-Alexandre AllexandreMZ 27 mars 2019
 Ni wazi kuwa ujio wa Papa Francis mwezi Septemba unampendelea Filipe Nyusi na Frelimo
 Matembezi yake yanaweza kumfaidisha kisiasa  moja kwa moja au la
 Ingekuwa vizuri kama ungeahirishwa hadi mwezi Novemba baadala ya mkanganyiko wa uchaguzi mkuu ulipangwa tarehe 15 Oktoba
@@ -2415,10 +2406,6 @@ Mwaka 2017 mwanasheria Pamela Helena de Oliveira Amaral aliapa kumshitaki jaji�
 Pamela alikuwa amevaa gauni refu la bluu ambalo lilikuwa likionesha mabega yake
 Jaji Eugênio Cesário aliondoka ukumbini na alirudi baada ya Pamela kuazima nguo ya kujifunika kutoka kwa mfanyakazi mwingine wa kike
 Pamela alisema katika mahojiano katika kipindi kile kuwa
-Eu fiquei estarrecida sem entender
-Não assimilei até agora
-Foi humilhante vergonhoso e constrangedor o que ele me fez passar na frente dos meus colegas
-A sala estava cheia de estudantes e advogados
 Nilishangazwa na kuchanganyikiwa
 Bado sijaelewa kwa ujumla
 Alichofanya nipitie kilinidhalilisha na kutia aibu mbele ya wenzangu
@@ -2434,19 +2421,13 @@ Katika mahojiano na Universa tovuti ya nyumbani inayojihusisha na masuala ya wa
 Pia aliweka video katika ukurasa wake wa Facebook akijibu mashambulizi hayo
 Hata hivyo maoni katika video hiyo yalikuwa yamejaa matusi
 Mtumiaji mwenye jina Vitor alisema
-Com todo respeito mas você se esqueceu em qual ambiente trabalhará nos próximos dias Formalidade por favor
-Tenha respeito Decoro parlamentar
 Kwa heshima kubwa je umesahau ni katika mazingira gani utakuwa unafanya kazi siku chache zijazo Ustaarabu tafadhali
 Kuwa na heshima Jamala wa Bunge
 Mtumiaji mwingine mwanamke anayeitwa Yelena Sier alipokea maoni 252 ndani ya maoni yake ambapo alimkosoa mwanasiasa huyo
-Geral não entende Ninguém vai no hospital com biquíni as crianças não vão a escola de pijama os homens não vão comprar pão só de cueca ninguém vai fazer uma cirurgia com qualquer roupa ninguém vai para uma festa de 15 anos ou um casamento de pijama etc cada ocasião uma traje adequado nas empresas existem uniformes e assim por diante e todo mundo sabe disso
-A questão não é a roupa que a mulher usa ou deixa de usar mas para cada local um traje adequado
 Watu hawaelewi Hakuna mtu huenda hospitali akiwa amevaa bikini watoto hawaendi shuleni wakiwa wamevaa nguo za kulalia wanaume hawaendi kununua mkate wakiwa wamevaa nguo za ndani na hakuna mtu anaweza fanya upasuaji akiwa amevaa nguo holela hakuna mtu anaweza kwenda harusini akiwa amevaa nguo za kulala n
 k Kila tukio lina mavazi yake rasmi katika makampuni kuna sare na kadhalika na kila mmoja anajua hilo
 Jambo la msingi hapa sio ni kitu gani mwanamke amevaa au hakuvaa lakini kila sehemu ina mavazi yake rasmi
 Katika chapisho lingine tofauti Rosimere Furtado alitetea  haki ya Ana Paula kuvaa kama atakavyo
-Parabéns pela discussão levantada Enquanto uma Deputada com vestes comportadissima levanta discussões perseguindo Educadores e afirmando que a Educação não necessita de investimento financeiro a senhora levanta discussão sobre a importância da mulher na política sobre feminicidio sobre causas que independe da cor ou traje
-Em um mundo onde a mente é deturpada e a sexualidade é esarcebada qualquer decote é uma guerra
 Hongereni kwa kuibua suala hili Wakati mwakilishi wa jimbo akiwa katika mavazi ya heshima ya hali ya juu akiwakisoa waalimu  na akisema kuwa elimu haihitaji uwekezaji wa fedha mmeanzisha mjadala wa umuhimu wa wanawake katika siasa na sababu ambazo ni uhuru wa rangi au mavazi
 Katika ulimwengu ambapo fikra haziwakilishwi ipasavyo jinsia hukosolewa na nguo ya kuonesha kidogo huwa sababu ya vita
 Ana Paula aliwajibu wanaomshambulia kwa kuwakumbusha historia yake kabla hajachaguliwa kuwa mbunge alishachaguliwa mara mbili kuwa meya wa mji wa Bombinhas na aliiacha ofisi ikiwa na ufanisi wa kukubalika kwa asilimia 90
@@ -2454,9 +2435,8 @@ Ana Paula pia aliposti katika ukurasa wa Facebook mahojiano ambapo alisema Wan
 Kuna mambo mengi ya msingi kwa bunge la wawakilishi kujadili
 Pia aliyahifadhi mashambulizi hayo na kusema kuwa atawashitaki  watu waliomdhalilisha
 Alimwambia mhojaji mwingine 
-Vou continuar vestindo o que eu quero
-Não pretendo me violentar para agradar ninguém
-Nitaendelea kuvaa ninavyotaka Sikusudii kujiumiza mwenyewe kwa kuwafurahisha wengine
+Nitaendelea kuvaa ninavyotaka 
+Sikusudii kujiumiza mwenyewe kwa kuwafurahisha wengine
 
 Makala 58
 Mwanaharakati wa Haki za binadamu Ahmed Mansoor sasahivi anatumikia kifungo cha miaka kumi jela katika Falme za Kiarabu
@@ -2471,29 +2451,24 @@ Ni mshindi wa Nobel wa taasisi ya Martin Ennals 2015 ambayo hutetea na kulinda h
 Ni mwanachama wa shirika la haki za binadamu la Human Rights Watch Mashariki ya kati na Kamati ya ushauri Kaskazini mwa Afrika
 Hii si mara ya kwanza kwa Mansoor kuwekwa kizuizini
 Mwaka 2011 yeye na wanaharakati wa kisiasa wanne walifungwa jela  kutokana na kuhusishwa na kuendesha mjadala mtandaoni kupita UAEHewar
-net
 Pia alitumia jukwaa hilo kuchapisha ombi akiomba mageuzi ya kisiasa katika Falme za Kiarabu
 Maafisa usalama waliutumia wito huo kama msingi wa kumshtaki Mansoor kwa kutukana viongozi wa Falme za Kiarabu
 Alitiwa hatiani na kuhukumiwa miaka mitatu jela lakini aliachiwa huru  kwa msamaha wa Rais baada ya kutumikia miezi saba tu
-
 Kabla ya kukamatwa kwake mwaka 2017 alipiga kampeni mtandaoni kwa niaba ya wanahakati waliokuwa wamefungwa jela katika Falme za Kiarabu na mahali pengine
 Siku moja kabla ya kukamatwa kwake alituma ujumbe kupitia tweeter juu ya kuendelea kukamatwa kiholela kwa mwanaharati katika Falme za Kiarabu Osama alNajjar ambaye ameendelea kuwepo jela ingawa amemaliza  kifungo chake cha miaka mitatu jela
 Kutokana na shirika la haki za binadamu la Human Rights Watch pia alisaini  barua ya pamoja na wanahakati wengine wakiomba viongozi wa The Arab League katika mkutano mkuu wao mwezi Machi 2017 huko Jordan kuawaachia  wafungwa wa kisiasa katika nchi zao
 Mwezi Desemba 2018 Baraza la usalama wa taifa la Mahakama kuu ya Shirikisho ambalo ndilo lenye maamuzi ya mwisho lilithibitisha hukumu yake ya miaka kumi
-
 Kutokana na kituo cha Ghuba cha haki za binadamu GCHR Mansoor alianza  mgomo  kupinga hali mbaya ya gerezani na uendeshwaji mbaya wa kesi yake
 sasa hivi Mansoor amefungwa katika gereza la AlSadr lililopo Abu Dhabi ambapo amewekwa peke yake
 Chanzo kiliiambia GCHR kwamba amefungwa katika hali mbaya katika chumba kidogo bila kitanda maji na hakuna bafu
 Afya yake imedhoofika sana na yupo katika hali mbaya
 Makundi ya watetezi wa haki za binadamu wameeleza kuguswa na afya ya mwanahakati huyo na kuomba mamlaka za UAE kumuachia huru
-
 Ahmed Mansoor anahatarisha afya yake akiomba uangalizi wa kifungo chake cha dhuruma kwa sababu alitetea jamii ya uvumilivu na Maendeleo ambayo Falme za Kiarabu hudai kujenga alisema  Sarah Leah Whitson Mkurugenzi wa taasisi ya haki za binadamu ya Human Rights Watch katika Mashariki ya kati
 Mamlaka za UAE zinapaswa haraka na bila ya maasharti kumuachia  Monsoor ili aendelee kutumika kama sauti kwa ajili ya haki katika bara hili kwa kuwa inahitajika sana aliongeza
 Kampeni ya kimataifa ya uhuru katika UAE iliomba  mamlaka kumhudumia Mansoor kwa kufuata viwango vya haki za binadamu kimataifa na kuruhusu makundi ya kimataifa ya haki za binadamu kumtembelea
 Tunasistiza wito wetu wa kuachiwa huru Ahmed Mansoor haraka na bila ya masharti
 Kutokana na hili tunashauri mamalaka za Falme za Kiarabu kumhudumia kwa kufuata viwango vya chini vya Umoja wa mataifa vya kuhudumia wafungwa ambavyo vinaruhusu utolewaji wa matibabu na usafi magerezani
 Ili kuhakikisha hili ni muhimu mashirika binafsi  yaruhusiwe kuingia na kumtembelea Mansoor
-
 Jifunze juu ya athari za kimwili zinazotokana na mgomo wa kutokula kwa kutumia mkusanyiko wa maandishi na majdwali hapa chini iliandaliwa na washirika wa Visualizing Impact
 
 Makala 59
@@ -2514,9 +2489,7 @@ Mabaraza ya Wanawake ya Jirga yanaendelea katika majimbo yote ya Afhanistani
 Picha imetumika kwa ruhusa kutoka kwa Wanawake wa Afghanistan kwa ajili ya Amani
 Kuwa Umesikika
 Na wanawake wa Afghanistan na wanaharakati wa haki za wanawake kutoka maeneo yote wamekutana na kuunda kampeni ya Wanawake wa Afghan kwa ajili ya Amani a  ikiwa na washiriki 15000 na zaidi kutoka katika majimbo yote 34
-
 Kampeni hiyo ilianza miezi sita iliyopita kama mpango shirikishi wa Mtandao wa Wanawake wa Afghan Wizara ya Masuala ya Wanawake Baraza Kuu la Amani na Ofisi ya Mke wa Rais wa Afghanistan
-
 Wanawake 15000 pote nchini walijumuika katika makusanyiko 34 moja katika kila jimbo kupaza sauti zao kujadili maana ya amani katika jamii yao nini matarajio yao na ni nini gharama za amani
 Wanawake wa Afghan kwa ajili ya Amani AfgWomen4Peace Februari 20 2019
 Katika kila jimbo Wanawake wa Afghan kwa ajili ya Amani waliwaleta pamoja wanafunzi wa kike kutoka vyuo vikuu wanawake wafanyakazi serikalini pamoja na wanawake waliosoma na wasiosoma wakitoa maoni yao
@@ -2530,30 +2503,21 @@ Mabaraza ya Wanawake ya Jirga yanaendelea katika majimbo yote ya Afghanistan
 Picha imetumika kwa ruhusa kutoka kwa Wanawake wa Afghanistan kwa ajili ya Amani
 Makongamano tayari yalishafanyika katika majimbo kadhaa ikiwemo Panjshir Khost Parwan Baghlan Ghazni na Logar
 Makongamano yataendelea katika majimbo mengine 28 yaliyosalia kwa majuma kadhaa yajayo
-
 Kifuatacho ni kibwagizo cha kongamano la jimbo la Khost
 Amani lazima ianzie katika majimbo ya pembezoni 
 Khost ni jimbo la ukanda wa kisiasa na kiuchumi wa Afghanistan
 Watu katika ngazi ya wilaya lazima washirikishwe katika mchakato wa amani
-
 Kuwashirikisha watu ambao wako karibu na familia za Taliban hao walioibuka upya ni muhimu
 Kama utawala wa sheria upo mahali pake na sheria zinafuatwa amani itakuja
 Mungu na Mtume PBUH na watu wanahitaji amani
-
 Wanawake na wasichana waruhusiwe kwenda shuleni 
 Idadi ya wanawake waliopata elimu iongezeke hivyo kufanya watoto kupata malezi stahiki
-
 Wanawake wa sasa wanajitambua na waalimu wa dini wasidharau umuhimu wa nafasi ya mwanamke
-
 Sharia inakandamiza wanawake inatakiwa itafsiriwe sawasawa
 Amani huanzia katika familia kisha kwenye jamii na ndipo huifikia serikali
-
 Amani inamaanisha kukubaliana sisi kwa sisi na kusaidiana katika masuala chanya
-
 Katika hitimisho la kila kongamano washiriki waliafiki kuhusu azimio kuhusu vipaumbele na changamoto wanazokutana nazo wanawake nchini
-
 Wakati hakuna tarehe yoyote iliyowekwa kwa ajili ya kongamano la kitaifa baraza la kikabila tukio hili liliahidi kuweka pamoja kazi zote za makundi kwa ngazi za majimbo
-
 Kufanyia kazi katika ngazi ya jimbo ni muhimu sana
 Wakati kuna wanawake wawakilishi katika bunge huko Kabul wanawake magavana ni wachache sana kama ambavyo uwakilishi wa wanawake ni muhimu katika mengine
 Kwa wanawake wengi wa majimbo ya pembezoni makongamano haya yamekuwa fursa pekee ya kwanza kabisa kwao kushiriki katika mchakato wa kisiasa na sauti zao kusikika
@@ -2568,18 +2532,12 @@ Mahojiano  aliyoyafanya Rais wa Angola João Lourenço na RTP  Kituo cha Telev
 Katika mahojiano ya dakika 30 yaliyorushwa Machi 4 mwanahabari wa Kireno kwa RTP Áfrika alirejea ripoti ya UNICEF iliyosema kuwa wananchi wanakufa kwa njaa nchini Angola
 Rais Lourenço alikataa kuwepo kwa njaa nchini mwake wakati akikubali kuwa kuna utapiamlo
 Alisema
-A nossa luta é lutar para reduzir os índices de pobreza devido aos longos anos de conflito armado
-Hoje há oferta de bens alimentares em Angola não se pode dizer que existe hoje fome em Angola é uma questão de alguma má nutrição
 Mapambano yetu ni kupunguza kiwango cha umaskini uliotokana na kipindi kirefu cha vita
 Kwa sasa kuna chakula Angola huwezi kusema kuna njaa kali kwa sasa ni suala la utapiamlo kidogo tu
 Rais João Lourenço  alisema haya siku chache kabla ya kutembelewa na Rais wa Ureno Marcelo Rebelo de Sousa na siku chache kabla ya Kasisi wa Kikatoliki na mwanaharakati wa haki za binadamu kukosoa vifo vya Waangola kwa sababu ya njaa katika maeneo yanayokabiliwa na ukame
 Mwanaharakati Manuel Mapanda anayefahamika zaidi kama Dago Nível alihoji  kuhusu kauli ya Rais 
-Como é que o senhor vai dizer que não existe fome em Angola Não leu a Denúncia do padre Jacinto Wacussanga sobre a morte de um Angolano por fome Será que nos Gambos e no Curoca já não há fome Assim que Jlo assumiu a presidência a maioria dos Angolanos passou a ter a cesta básica e a fome foi eliminada
 Inakuwaje mwanaume anaenda kusema hakuna njaa Angola Hakusoma ukosoaji wa Kasisi Jacinto Wacussanga kuhusu vifo vya Waangola kwa sababu ya njaa Ina maana huko Gambos na  Curoca hakuna tena njaa  Muda ule ule Jlo João Lourenço alipochukua madaraka ya Urais Waangola walipata mahitaji yao muhimu  na njaa ikafutiliwa mbali
 Wakati wa mahojiano hayo mabaya  pia Mkuu huyo wa nchi ya Angola alieleza kuhusu kusudio lake la kukomesha rushwa ambapo ni sehemu ya mpango wa chama  wakati wa uchaguzi
-Ninguém pode garantir que daqui para a frente não haverá corrupção e que não haverá corruptos mas que não ficarão impunes tal como sempre foi
-Não haverá mais intocáveis segundo João Lourenço
-Esse tempo ficou para trás
 Hakuna mtu anayeweza kuhakikisha kuwa kuanzia wakati huu na kuendelea kutakuwa hakuna rushwa na hakutakuwa na watu wala rushwa lakini hawatabaki bila kuadhibiwa
 Kulingana na João Lourenço hakutakuwa tena na wateule wasioguswa
 Kipindi hicho kilishapita
@@ -2587,22 +2545,16 @@ Mwaka 2018  Regional Forum for University Development FORDU Jukwaa la Maendele
 Makala hiyo ilionesha idadi kubwa ya watu wakitafuta chakula katika majalala katika maeneo ya katikati ya mji wa Huambo eneo ambalo makala hii ililenga na katika makao makuu ya nchi Luanda
 Picha za skrini kutoka katika makala hiyo inapatikana katika DVD pekee  Picha ya mmiliki Simão Hossi  imetumika kwa ruhusa
 Huko JM
-Notícias ukurasa wa Facebook maalum kwa ajili ya kushirikishana habari kulikuwa na ukosoaji wa wazi dhidi ya maoni ya Rais
-Precisamos reconhecer que ainda há muita gente em Angola vivendo á sic margem da sociedade problema que dificilmente se resolverá se não haver uma promoção de programas de inclusão social credíveis onde é cobrado e prestado contas
-E não com este nascer de uma nova elite de gatunos tipo quem não se safou no outro tempo que aproveite á sic brecha agora em que o artista principal e financeiro da nação é o J
-Lourenço
-Olha que os principais desafios estão ai mesmo diante dos vossos próprios olhos em vencer os problemas nas áreas da saúde educação habitação etc que pelo menos já deveriam dar alguns sinais mesmo que tímidos mais sic nada se vê 
-Tunahitaji kutambua kuwa bado wapo watu wengi amba
-o wanaishi maisha magumu nchini Angola tatizo ambalo ni vigumu kulitatua ikiwa hakutakuwa na mpango wa kuaminika wa kukuza ushirikishwaji  wa jamii ambapo ndipo  inawajibika
+Tunahitaji kutambua kuwa bado wapo watu wengi ambao wanaishi maisha magumu nchini Angola tatizo ambalo ni vigumu kulitatua ikiwa hakutakuwa na mpango wa kuaminika wa kukuza ushirikishwaji  wa jamii ambapo ndipo  inawajibika
 Na sio kwa kuzaliwa kwa wasomi wapya wahuni wanaochukua fursa kwa kuwa mlango uko wazi kwa sasa kwa kuwa jemedari mkuu na mwezeshaji wa nchi ni J
 Lourenço
-Ziangalie chamgamoto kuu ziko mbele ya macho yako kukabiliana na matatizo katika sekta za afya elimu  nyumba n
-k
+Ziangalie chamgamoto kuu ziko mbele ya macho yako kukabiliana na matatizo katika sekta za afya elimu  nyumba nk
 ambapo ingetakiwa iwe imeshaanza kuonesha dalili tayari hata kidogo lakini hakuna chochote kinachoonekana
 
 Makala 61
 Picha  Waziri wa Nchi Teknolojia Habari na Mawasiliano Idah Nantaba iliyopigwa kwenye video ya Youtube ambaye alinusurika kuuwawa katika jaribio la mauaji
-Tarehe 24 mwezi Machi 2019  ilitangazwa habari kuwa Waziri wa nchi Teknolojia Habari na Mawasilano Mheshimiwa Idah Nantaba amenusurika na  jaribio la mauaji  na kwamba askari wa Uganda wamebahatika kumpiga na kumuua mmoja wa washambuliaji katika mji mdogo wa Nagojje ulipo kilometa 53 Mashariki mwa mji mkuu Kampala
+Tarehe 24 mwezi Machi 2019  ilitangazwa habari kuwa Waziri wa nchi Teknolojia Habari na Mawasilano Mheshimiwa Idah Nantaba amenusurika na  jaribio la mauaji  
+askari wa Uganda wamebahatika kumpiga na kumuua mmoja wa washambuliaji katika mji mdogo wa Nagojje ulipo kilometa 53 Mashariki mwa mji mkuu Kampala
 Kwa zaidi ya miaka mitano iliyopita matukio mbalimbali ya mauaji ya viongozi vigogo wa kisiasa kidini au kijeshi yamesababisha kuwepo kwa hukumu chache halisi  au taarifa sahihi kuhusu matukio hayo
 Wananchi wa Uganda walirahisishiwa kwa mara kwanza kwa kusikia kwamba askari wamechukua hatua za haraka
 Hata hivyo habari ya kuchanganya imeibuka kuhusu mtu hasa aliyeuawa
@@ -2615,10 +2567,8 @@ Wale watu wawili walitelekeza pikipiki na kujaribu kutoroka kwa mguu lakini aska
 Abiria wake alikimbia
 Ssebulime aliwasihi kuwa yeye hana hatia lakini askari polisi walipiga pingu na kumtupia ndani ya gari la polisi
 Waliendesha kwa umbali mfupi na kisha walisema  amri imebadilika kabla hawajampiga risasi na kumuua haya yalitolewa na mashuhuda wa tukio hilo waliongea na NTV ya Uganda
-
 Shahidi mmoja alisema
 Ssebulime alichukuliwa kutoka kwenye gari dogo la doria akiwa amefungwa pingu na kupigwa risasi
-
 Mwingine alisema
 Askari polisi alirudi hatua mbili nyuma na kumpiga risasi mara mbili
 Uchunguzi mbovu 
@@ -2626,7 +2576,7 @@ Mshangao uliofuata askari walituma ujumbe kupitia tweeter kwamba kumpiga risasi 
 Risasi kadhaa zilipigwa kuelekea upande wao ili waweze kusalimu amri lakini ilikuwa bure
 Katika harakati hizo Sebbulime Ronald mkazi wa Kijiji cha Nakabugo katika kata ya Nakabugo kaunti dogo ya Pakiso iliyopo kaunti ya Busiro katika wilaya ya Wakiso alipigwa risasi na kuuawa katika purukushani
 Waliongeza kusema kuwa mshukiwa wa pili alitoweka na wanahofia kuwa ni hatari kwa kuwa ana silaha angawa askari polisi hawakuthibitisha hilo
-tarehe 24 Machi 2019 Jeshi la polisi Uganda lilisema Askari polisi wanaendelea kutafuta kwa kutumia mbwa eneo alipo mshukiwa wa pili ambaye anaogopwa kuwa na silaha na ni hatari
+Jeshi la polisi Uganda lilisema Askari polisi wanaendelea kutafuta kwa kutumia mbwa eneo alipo mshukiwa wa pili ambaye anaogopwa kuwa na silaha na ni hatari
 Tunataka kuutaarifu umma kuwa waziri ingawa anahofu yupo salama na hakushambuliwa kama ilivyolipotiwa na vyombo vya habari
 Mzungumzaji wa jeshi la polisi Fred Enanga alisema kwamba waziri mashahidi na maafisa polisi waliohusika katika kupurkushani wangetoa kauli wakati wanaendea kuchunguza kumbukumbu zilizomo kwenye simu ya Ssebulime pamoja na karatasi za usajiri wa pikipiki yake
 Irene Nakazibwe ambaye ni dada yake na marehemu anasistiza kuwa kaka yake alikuwa katika nafasi na muda usiyosahihi
@@ -2638,42 +2588,23 @@ Haijulikani kwa nini alijaribu kuwakimbia askari polisi wakati ana kitambulisho 
 Nakazibwe alieleza habari hiyo NTV ya Uganda
 Tarehe 27 mwezi Machi 2019askari polisi walikubali kwamba  Ssebulime aliuwa kimakosa na maafisa wa polisi na walitoa pole kwa familia ya marehemu
 Pia walithibitisha kuwa Ssebulime alikuwa hana silaha yoyote na alikuwa amebeba mkoba uliokuwa umejaa vinywaji vya soda na chakula kwa ajili ya Watoto wake
-
-pic
-twitter
-comrJwJERWcdZ
-Uganda Police Force PoliceUg March 27 2019
 Bodaboda Wazimu
 Kifo cha Ssebulime kimeibua hisia tofauti miongoni mwa waendesha pikipiki au pikipiki za kukodiwa ambao ni usafiri rahisi
 Angalau vifo vinavyohusisha vigogo watano  wakiwemo wakuu wa jeshi Wabunge viongozi wa dini vimetokea katika miaka mitatu iliyopita  vyote vikisababishwa na  kuwagonga waendesha pikipiki 
 Hii imewafanya waendesha pikipiki na maofisa wakubwa kuwa makini zaidi
-Mtumiaji wa Twitter Ganda Gannyana anafikiri kuwa sababu ya Ssebulime kuuwa bila kuchukuwa tahadhali yakutosha inatokana na maelekezo yaliyotolewa baada ya kuuawa kwa mheshimiwa Mbunge Ibrahim Abiriga  Rais Yoweri Museveni alisema pindi kiongozi anapomhisi  mtu yeyote anamfuatilia akiwa na nia mbaya wanapaswa kumuondoa mtu huyo
+Mtumiaji wa Twitter Ganda Gannyana anafikiri kuwa sababu ya Ssebulime kuuwa bila kuchukuwa tahadhali yakutosha inatokana na maelekezo yaliyotolewa baada ya kuuawa kwa mheshimiwa Mbunge Ibrahim Abiriga  
+Rais Yoweri Museveni alisema pindi kiongozi anapomhisi  mtu yeyote anamfuatilia akiwa na nia mbaya wanapaswa kumuondoa mtu huyo
 Yalikuwa maelekezo ya kipuuzi kutoka kwa Kaguta Museveni kwa kumhisi tu yeyote anakufatilia muondoe kwanza halafu waliobaki tutawaondoa baadaye
-Sasa unaonaNow see Mtu asiyekuwa na hatia  Ssebulime Ronald amechinjwa
-kupigwa risasi ukiwa umefungwa pingu hayo ni makusudi
-GandaGannyana IAmSegawa March 26 2019
-Mtumiaji wa Twita Ganda Gannyana anasema Yalikuwa maelekezo ya kipuuzi kutoka kwa Kaguta Museveni kwa kumhisi tu yeyote anakufatilia muondoe kwanza halafu waliobaki tutawaondoa baadaye
-Sasa unaonaNow see Mtu asiyekuwa na hatia
-Ssebulime Ronald amechinjwa
+Sasa unaona Mtu asiyekuwa na hatia  Ssebulime Ronald amechinjwa
 kupigwa risasi ukiwa umefungwa pingu hayo ni makusudi
 Mtumiaji wa Twitter Kyeyune Moses anaona mkanganyiko kwenye kifo cha Ssebulime
 Habari ya Ronald Ssebulime ni kubwa sana
 Kuna habari tofauti kuhusu nani aliyemuua anayedhaniwa kuwa mshambuliajina namna alivyoua
 Lakini habari inayogusa ni kuhusu watoto walioko shuleni sasa
 Walipoteza mama yao na baba yao ametoweka sasa
-Je haki itatendeka pic
-twitter
-com0Q0fVS8v4Z
-KYEYUNE W
-MOSES moskyeyune Tarehe 25 Machi 2019
-Mtumiaji wa Twitter Kyeyune Moses anaona mkanganyiko kwenye kifo cha Ssebulime
-Habari ya Ronald Ssebulime ni kubwa sana is bigger than meets the eyes
-Kuna habari tofauti kuhusu nani aliyemuua anayedhaniwa kuwa mshambuliajina namna alivyoua
-Lakini habari inayogusa ni kuhusu watoto walioko shuleni sasa
-Walipoteza mama yao na baba yao ametoweka sasa
 Je haki itatendeka
 Mtumiaji wa Twitter Angelo Peter alighadhabika kwamba askari polisi walishindwa kutoa ushahidi kuwa Ssebulime ni hatari kabla ya kumuua
-Mtumiaji wa Twitter Angelo Peter alighadhabika kwamba askari polisi walishindwa kutoa ushahidi kuwa Ssebulime ni hatari kabla ya kumuua Walipotaka kumfunga Bobi Wine kwa uhaini walionesha bunduki waliyoipata katika chumba chake hotelini ndani ya masaa 24
+Walipotaka kumfunga Bobi Wine kwa uhaini walionesha bunduki waliyoipata katika chumba chake hotelini ndani ya masaa 24
 Lakini hawawezi kutuonesha bunduki aliyokuwa nayo Ssebulime kabla hawajamuua
 Alipongea na waandishi wa bahari kwa ufupi Nantaba alisimulia habari yake na kuuliza maswali juu ya nani aliyepewa amri ya kumuua Ssebulime
 Alipendekeza mazingira mazima ya tukio hilo inawezekana yamepangwa na waongozaji wa mauaji wa watu wakubwa  na bado anaamini Ssebulime ameangukia katika jaribio la kumuua
@@ -2685,59 +2616,46 @@ Hivi Karibuni amerudi CCM
 Picha ilipigwa kwenye YouTube kupitia chombo cha habari cha KTN cha Kenya
 Tarehe 18 Octoba 2015
 Katika Tanzania wanachama vigogo wa vyama vya upinzani wamehama na kurudi chama tawala Chama cha Mapinduzi hali hiyo imeadhiri siasa za vyama vingi katika taifa hili la Afrika Mashariki
-
-Wanachama wengi ni wale waliokuwa katika chama kikuu cha upinzani chama cha Demokrasia na Maendeleo au CHADEMA ambapo miaka michache iliyopita wabunge wake wanne madiwani 75 na baadhi ya wenyeviti wa vijiji wamehamia CCM
-
-Jukwaa la katiba Tanzania  limedai kuwepo na marekebisho ya katiba kwa kuwa yanaweza kuzuia kuhama huko  lengo ni kuepuka gharama zisizo za lazima ambazo serikali inaingia katika kuendesha na kuratibu mara kwa mara chaguzi za marudio alieleza Hebron Mwakagenda mwenyekiti wa TCF
-
+Wanachama wengi ni wale waliokuwa katika chama kikuu cha upinzani chama cha Demokrasia na Maendeleo au CHADEMA ambapo miaka michache iliyopita 
+wabunge wake wanne madiwani 75 na baadhi ya wenyeviti wa vijiji wamehamia CCM
+Jukwaa la katiba Tanzania  limedai kuwepo na marekebisho ya katiba kwa kuwa yanaweza kuzuia kuhama huko  
+lengo ni kuepuka gharama zisizo za lazima ambazo serikali inaingia katika kuendesha na kuratibu mara kwa mara chaguzi za marudio alieleza Hebron Mwakagenda mwenyekiti wa TCF
 Tume ya Uchaguzi ya Taifa imeratibu  mara kadhaa chaguzi za marudio  kwa gharama kubwa ambayo matokeo yake kumekuwepo na idadi ndogo ya wapiga kura
 Lakini pia mchakato wa kupiga kampani umejenga hali ya woga na kutokuaminiana miongoni mwa wananchi
 Suala la Edward Lowassa
 Tarehe 1 mwezi Machi 2019 Waziri Mkuu aliyejiuzulu Edward Lowassa na mjumbe wa Halmashauri kuu ya CHADEMA alikihama chama hicho na kurudi chama chake cha zamani cha CCM baada ya kukihama miaka minne iliyopita
-
 Katika sherehe fupi ya kumkaribisha mwenyekiti wa CCM na Rais wa Tanzania  John Pombe Magufuli alimkaribisha Lowassa kwa mikono miwili  
 Ndugu Lowassa amejionyesha kuwa yeye ni mtu muungwana
-Tumefundishwa kusamehe
-na nia yetu ni kujenga nchi mpya Tanzania yenye Umoja bila siasa za kuleta migogoro
+Tumefundishwa kusamehe na nia yetu ni kujenga nchi mpya Tanzania yenye Umoja bila siasa za kuleta migogoro
 Lowassa alithibitisha kuwa   amerudi nyumbani  na hakuna sababu kwa sasa hivi kuwa katika chama cha upinzani
 Lowassa ni mmoja wa makada wachache waliolelewa na kuandaliwa na chama cha umoja wa kitaifa au TANU ambacho ni miongoni mwa vyama cha kwanza vilivyoundwa kabla Tanzania kupata uhuru kutoka kwa Mwingereza mwaka 1961 na baadaye aliandaliwa na umoja wa Vijana wa CCM kipindi cha mfumo wa chama kimoja
 Soma zaidi  
 Hata mnenguaji mzuri huondoka jukwaani Viongozi maarufu Afrika Katika kipindi cha mpito cha Siasa 
 Chini ya uangalizi wa CCM Lowassa aliwahi kuwa mbunge wa jimbo la Monduli kwa miaka 25 na kushika nyadhifa za uwaziri kwa miongo minne
 Mwaka 2008 kipindi cha Rais wa awamu ya nne Jakaya Kikwete  wakati Lowassa ni waziri mkuu  Lowassa alilazimika  kujihuzuru  baada ya kuhusishwa na udanaganyifu katika sakata la kampuni ya kufua umeme ya RICHMONDI
-
 Lowassa alijiunga na CHADEMA tarehe 4 Agosti  2015 kuelekea uchaguzi mkuu baada ya CCM kumuondoa kwenye orodha ya wagombea urais katika chama hicho
 Baada ya kuondolewa aliishtumu CCM na viongozi wake kuwaita madikteta wasio na demokrasia na wenye uchu wa madaraka
-
 Baada ya kuhamia CHADEMA chama hicho na washirika wake walimteua Lowassa kuwa mgombea Urais chini ya UKAWA ambao ulikuwa ni umoja wa vyama vya upinzani
-Katika uchaguzi mkuu huo wa mwaka 2015 Lowassa alipata kura milioni sita sawa  na asilimia 40 dhidi ya kura milioni 8
-8 za Magufuli wa CCM ambazo zilikuwa sawa na asilimia 60
-
+Katika uchaguzi mkuu huo wa mwaka 2015 Lowassa alipata kura milioni sita sawa  na asilimia 40 dhidi ya kura milioni 88 za Magufuli wa CCM ambazo zilikuwa sawa na asilimia 60
 Kutokana na ushawishi wa kisiasa aliokuwa nao Lowassa vyama vya upinzani kama CHADEMA kilivuna viti 70 vya ubunge ukilinganisha na viti 48 vya mwaka 2010 wakati Chama cha wananchi CUF pia kikiwa mwanachama wa UKAWA kilipata viti 45 ukilinganisha na 36
-
 Ni kukaribishwa au Kushawishiwa  
 Kurudi kwa Lowassa  katika chama tawala kumeibua pongezi na kejeli kutoka kwa wanasiasa na wachambuzi maarufu wa mambo ya siasa
 Mwenezi na msemaji wa CCM Humphrey Polepole alimpongeza Lowassa kwa maamuzi yake shupavu ya kurudi kwenye chama chake cha zamani na cha muda mrefu
 kurudi na kuomba msamaha ni uungwana na unyenyevu mkubwa
 Watu wengine wamesema kuwa kiwango kikubwa cha wanachama kuhama vyama sio jambo zuri kwa siasa kitaifa
 Naibu Katibu mkuu wa chama cha CUF Tanzania bara Magdalena Sakaya alisema kuhama huko ni hatari kwa ustawi wa Demokrasia na inaashiria mkakati wa siri wa kuua upinzani aliongeza
-
-Mkuu wa kitivo cha Falsafa na mafunzo ya Dini Chuo Kikuu cha Dar es Salaam Dkt
-Adolf Mihanjo aliwaita wanaohama vyama kuwa ni watu ambao hawana itikadi na wanatafuta nafasi za uongozi tu
+Mkuu wa kitivo cha Falsafa na mafunzo ya Dini Chuo Kikuu cha Dar es Salaam Dkt Adolf Mihanjo aliwaita wanaohama vyama kuwa ni watu ambao hawana itikadi na wanatafuta nafasi za uongozi tu
 Watu wameanza kuona kuwa wanaohama vyama wanashawishiwa kwa kupewa rushwa  hii ni hatari
 Pia naibu Katibu mkuu wa chama cha CUF visiwa vya Zanzibar Nassoro Mazrui alieleza wasiwasi juu ya msitakabali wa siasa za Tanzania kwa muda ujao alisema rushwa  imeghubika siasa za vyama vingi
 Mwenyekiti wa CHADEMA Freeman Mbowe anaamini wanaohama vyama wanakuwa wameshawishiwa na CCM kama njia ya kunyamazisha upinzani
 Hata hivyo Maulid Mtulia na Godwin Mollel ambao walijiunga na CCM mwaka jana walisema kuwa wamehama kutokana na kuridhishwa na kazi nzuri inayofanywa na Magufuli
 Kiongozi wa chama cha upinzani cha ACTWazalendo na mbunge wa Kigoma mjini Zitto Kabwe aliyakataa madai hayo na kuyaita ni  madai au sababu zilizotupu ambazo hazina vigezo wala ushahidi
-Dkt
-Richard Mbunda ambaye ni Profesa wa sayansi ya siasa chuo kikuu cha Dar es Salaam alionya kuwa ni vigumu kurudisha uhalali pindi unapotoweka
+Dkt Richard Mbunda ambaye ni Profesa wa sayansi ya siasa chuo kikuu cha Dar es Salaam alionya kuwa ni vigumu kurudisha uhalali pindi unapotoweka
 Wanaohama vyama wanajenga hali ya kupigia kura mtu yeyote ambayo ni janga kwa taifa Serikali yoyote inaweza kuingizwa kidemokrasia na baadaye inaweza kusababisha uasi wa raia au utawala haramu alisema
-
 Kuminywa kwa nafasi ya kisiasa kwa vyama vya Upinzani 
 Tanzania ilihalalisha kuwa na siasa za vyama vingi mwaka 1992 chini ya ibara ya 3 1 ya katiba
 Katika siasa za vyama vingi vyama vya siasa vina jukumu muhimu katika kuimarisha amani inayohitajika katika mahusiano ya kisiasa kitaifa
 Hata hivyo serikali iliyopo madarakani imeweka vikwazo vinavyozuia uwezo wa vyama vya upinzani kama vile vyama kutokuwa na mikutano ya siasa na kutooneshwa kwa mijadala ya bungeni kipindi bunge linaendelea
-
 Mwezi Februari marekebisho mapya ya sheria ya vyama vingi yalipitishwa ambayo yanazuia zaidi vyama vya siasa kufanya siasa kwa uhuru
 Tangu Magufuli aingie madarakani mwaka 2015 kumekuwa na kuendelea kuminywa nafasi ya kufanya siasa kupitia miswada na sheria mbalimbali kuzuia uhuru wa kutoa maoni au kujieleza mtandaoni
 Soma zaidi Bundi akataa kuondoka katika Bunge la Tanzania
@@ -2746,10 +2664,8 @@ Wanasiasa  pamoja na viongozi wa kitaifa wa vyama vya siasa wameruhusiwa kufanya
 Wanaokwenda kinyume hukamatwa na kushtakiwa
 Kabwe ambaye ni kiongozi wa ACTWazalendo aliamuliwa kuripoti kwa kamanda mkuu wa polisi wa mkoa wa kusini mwa Tanzania mkoa wa Lindi kwa kuendesha mkutano wa kisiasa nje ya jimbo lake
 Halima mdee mbunge wa Kawe alikamatwa baada ya kuongea na wapiga kura wake kwa sababu ya kufanya mkutano bila kibali
-
 Kutokana na hali ya siasa ya vyama vingi iliyoghubikwa na wanachama wake vigogo kuhama kama Lowassa vyama vya siasa vinapambana kuwepo
 Ingawa tangu kuanzishwa kwa vyama vingi vya siasa tumaini lilikuwa kukua kwa Demokrasia
-
 
 Makala 63
 Picha kupitia Nasser Weddady akiwa anawasiliana kupitia Twitter
