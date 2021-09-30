@@ -18,7 +18,6 @@ Onyesho la filamu ya Angola linakuja mwezi mmoja baada ya filamu ya kwanza ya Ms
 
 Makala 3
 Picha Rasmi ya Rais wa Jamhuri ya Shirikisho la Naijeria Rais Muhammadu Buhari iliyopigwa na Bayo Omoboriowo via Wikimedia Commons Mei 29 2015 CC BYSA 4
-0
 Serikali ya Naijeria imetangaza siku ya Ijumaa kwamba inaufungia mtandao wa Twita nchini humo siku kadhaa baada ya mtandao huo kufuta twiti hatari iliyoandikwa na Rais wa Naijeria Muhammadu Buhari iliyodai kwamba serikali itatumia nguvu dhidi ya kabila la Igbo
 Pamoja na kuondolewa kwa twiti hiyo ujumbe uliendea kusambaa kwenye mitandao ya kijamii hali iliyokumbushia maumivu ya vita vya wenyewe kwa wenyewe vilivyopoteza maisha ya watu zaidi ya milioni moja
 Lakini twiti hiyo ilichochea harakati kwenye mitandao ya kijamii kusimama na Wanaijeria wa kabila la Igbo
@@ -45,8 +44,7 @@ Zaidi ya saa 30 baada ya Twita kufuta twiti ya rais wa Naijeria MBuhari kwa kosa
 Kwa kuingia mtandao kwa kutumia akaunti tofauti kupitia vifaa tofauti DigiAfricaLab iliweza kuona zaidi ya twiti 17000 zilizonukuliwa na watumiaji kabla kampuni hiyo ya mtandao wa kijamii haijaifuta twiti hiyo kutoka kwenye akaunti ya MBuhari na NGRPresident zote zikiwa ni anuani za twita zilizohakikiwa zinazotumika na Rais Buhari
 Zaidi ya hayo DigiAfricaLab iliweza kubofya na kukuza twiti ya Rais Buhari iliypfutwa
 Twiti zilizofutwa zinaweza kuendelea kuonekana kwa watumiaji wa mtandao wa twita kwa sababu zana inayotumiwa na Twita API hutegemea zana za mitandao mingine inayounganisha kazi data za Twita kwa kupitia URL
-Sababu nyingine kwa mujibu wa  J
-D
+Sababu nyingine kwa mujibu wa  J.D
 Biersdorfer wa New York Times ni kwamba twiti zilizofutwa zinaweza kuwa bado zinapatikana na hivyo kuonekana kwenye matokeo ya utafutaji mtandaoni  mpaka tovuti ihuishwe na nakala mpya ya twiti kwenye ukurasa mkuu wa akaunti husika
 Mwitikio wa alama habari ya IAmIgboToo
 Twiti ya vitisho ya Rais Buhari iliibua mjadala mkali kutoka kwa Wanaijeria wanaotumua mtandao wa Twita mjadala uliogonga vichwa vya mtandao huo kwa alama habari ya IAmIgboToo kuonesha masikitiko yao
@@ -71,8 +69,7 @@ Kama hawaonekani kuwa binadamu ni rahisi kuhalalisha matendo ya vurugu dhidi yao
 Kuteza utu kwa mujibu wa Ozurumba kunafanya iwe rahisi kuondoa hali ya kuguswa kimaadili na vitendo vya mauaji ubaguzi au utesaji wa watu kwa sababu tu ya makabila yao
 
 Makala 4
-Picha na makeitkenya CC PDM 1
-0
+Picha na makeitkenya CC PDM 1.0
 Mnamo Machi 27 mjadala mkali uliibuka kwenye mitandao ya kijamii ya Kenya juu ya matamshi yaliyotolewa hewani na watangazaji wa redio tatu wakati wa kipindi cha asubuhi Breakfast Show
 Watangazaji walikuwa wakijadili kesi inayoendelea ya kortini inayomshirikisha Eunice Wangari mwanamke ambaye alisukumwa nje ya jengo la ghorofa 12 na mwanamume ambaye alikuwa na mahusiano naye
 Kwenye mtandao wa Twitter Wakenya wenye hasira waliwaghadhabisha watangazaji Shaffie Weru Joseph Munoru na Neville Muysa kwa matamshi yao juu ya kesi ya madai ya unyanyasaji wa kijinsia na kuwaita watangazaji hao wahangawakulaumu
@@ -128,8 +125,7 @@ Inaonekana kwamba kwa wanawake kushiriki mazungumzo ya maana mkondoni juu ya mad
 
 Makala 5
 Bendera yenye rangi za upinde wa mvua
-Picha ya Marco Verch  kwenye mtandao wa Flickr CC BY 2
-0
+Picha ya Marco Verch  kwenye mtandao wa Flickr CC BY 2.0
 Nchi za Caribiani moja baada ya nyingine zimekuwa zikirekebisha vitabu vyake vya sheria kuakisi usawa zaidi kwa watu wenye kupenda mapenzi ya jinsia moja kwa kuondoa vipengele vya enzi za ukoloni vilivyokuwa vinazuia tabia ya kuingiliana kinyume na maumbile
 Mwaka 2016 ilianza nchi ya Belize
 Miaka miwili baadae Trinidad na Tobago ikafuatia ingawa hatua yake hiyo haijatafsirika kwenye mabadiliko ya sheria
@@ -208,8 +204,7 @@ Katika mazingira ya ongezeko kubwa la matumizi ya simu janja  ni dhahiri kuwa sh
 Makala 7
 Taarifa na uelewa ni muhimu katika kujikinga na maambukizi ya UVIKO19
 Picha inawaonesha wafanyakazi wa afya nchini Kenya wakielimisha jamii kuhusu maambukizi ya UVIKO19
-Picha Victoria Nthenge na Trocaire ina leseni ya CC BY 2
-0
+Picha Victoria Nthenge na Trocaire ina leseni ya CC BY 2.0
 Kuanza kutolewa kwa chanjo ya UVIKO19 nchini Kenya kumegubikwa na tuhuma za vitendo vya rushwa upendeleo na ufisadi ambavyo vimewaacha wananchi wengi masikini na wazee wakisubiri kwenye mistari mirefu nje ya hospitali za umma wakati huu ambao nchi hiyo inakabiliwa na mlipuko wa tatu wa maambukizi na vifo vinavyotokana na UVIKO19
 Wakati huo huo mamia ya Wakenya wanalipa kiasi cha hadi dola 100 ili waweze kuitwa mapema kama ilivyoelezwa kwenye akaunti kadhaa za Wakenya mtandaoni sambamba na vyombo vya habari vya Kenya na vile vya kimataifa
 Mapema mwezi Machi Kenya ilinunua zaidi ya dozi milioni 1 za chanjo ya OxfordAstraZeneca kupitia mpango wa Upatikanaji wa Chanjo ya UVIKO19 Duniani inayoratibiwa na Shirika la Afya Duniani kupitia utaratibu unaoitwa COVAX
@@ -416,8 +411,7 @@ Kununua kitabu hiki kupitia kiungo hiki kutasaidia kuichangia Global Voices
 
 Makala 12
 Kijana akitazama simu yake ya kiganjani nchini Tanzania Desemba 9 2018
-Picha na Riaz Jahanpour kwa mradi wa USAID  Mawasiliano ya Maendeleo ya kiDijitali kupitia mtandao wa Flickr CC BY 2
-0
+Picha na Riaz Jahanpour kwa mradi wa USAID  Mawasiliano ya Maendeleo ya kiDijitali kupitia mtandao wa Flickr CC BY 2.0
 Kirusi cha kwanza cha Korona kiliripotiwa nchini Tanzania katikati ya mwezi Machi 2020
 Hata hivyo baada ya takwimu kuendelea kupanda na kufikia wagonjwa 509 na vifo 21 mwishoni mwa mwezi Aprili serikali ya Tanzania ilitangaza kuwa hakuna hata mgonjwa mmoja wa UVIKO19 mwezi Juni
 Mwezi huo huo Kassim Majaliwa Waziri mkuu wa nchi hiyo aliliambia bunge kwamba kulikuwa na wagonjwa 66 tu  nchini kote lakini hakutoa ufafanuzi zaidi
@@ -552,8 +546,7 @@ Changia sasa
 
 Makala 16
 Wasafiri wakivuka mpaka kati ya Ghana na Togo Afrika Magharibi mnamo Januari 25 2016
-Picha ya Enock4seth kupitia Wikimedia Commons CC BYSA 4
-0
+Picha ya Enock4seth kupitia Wikimedia Commons CC BYSA 4.0
 Viongozi wa Afrika wamechukua uamuzi wa haraka kukabiliana na UVIKO19
 Kituo cha Afrika cha Kudhibiti Magonjwa ACDC kiliunda kikosi kazi ya UVIKO19 Februari 5  kabla ya bara hili halijashuhudia hata mgonjwa mmoja
 Leo hii Afrika ambalo kwa sasa ndilo eneo lililoathirika kidogo sana duniani likiwa na wangonjwa wapato 1293048 waliothibitishwa wenye UVIKO19 na kinachovutia zaidi ni wagonjwa 1031905 wakiripoti kupona kwa mujibu wa Afrika CDCP
@@ -637,8 +630,7 @@ Hakuna ambayo imepita awamu ya 3 ya majaribio kwa sasa
 
 Makala 18
 Maandamano dhidi ya kifo cha daktari Silvio Dala huko Luanda
-Picha na Simão Hossi CCBY 3
-0
+Picha na Simão Hossi CCBY 3.0
 Mamia ya Waangola waliingia mitaani kuandamana hapo Septemba 12 huko Luanda Benguela na miji mingine 15 wakipinga ukatili wa polisi
 Maandamano hayo yalianza baada ya habari za kushtusha kutolewa kuhusu kifo cha daktari Silvio Dala mwenye miaka 35 aliyepoteza maisha Septemba 1 akiwa chini ya uangalizi wa polisi
 Kulingana na taarifa za mamlaka Dala aliondoka kwa gari yake kutoka hospitali ya  Watoto ya David Bernardino huko Luanda ambapo ndiko hufanya kazi kama Mkurugenzi wa kliniki na alisimamishwa na polisi kwa sababu hakuvaa barakoa
@@ -656,17 +648,14 @@ Mabango yaliyotumiwa na waandamanaji katika maeneo mbalimbali ya mji wa Luanda y
 Pia kuna waliomtaka waziri wa Mambo ya Ndani Eugénio Laborinho ajiuzulu
 Maandamano yaliaandaliwa na Chama cha Madaktari wakishirikiana na mashirika na Taasisi za kiraia
 Maandamano dhidi ya kifo cha daktari Silvio Dala huko Luanda
-Picha na Simão Hossi CCBY 3
-0
+Picha na Simão Hossi CCBY 3.0
 Maandamano dhidi ya kifo cha daktari Silvio Dala hiko  Luanda
-Picha na  Simão Hossi CCBY 3
-0
+Picha na  Simão Hossi CCBY 3.0
 Tangu kuanza kwa janga la korona nchini Angola vimeripotiwa visa kadhaa vya polisi kutumia nguvu kubwa wakati wakifanya ukaguzi  na wakati mwingine husababisha vifo vya raia
 Akiongea na  Lusa mwanamuziki wa kufokafoka  Brigadeiro 10 Pacotes ambaye jina lake halisi ni  Bruno Santos alimtaka Lugarinho ajiuzulu na pia akiitaka shule ya polisi iboreshe muundo wake wa mafunzo
 Jeshi la polisi ni taasisi ambayo inapaswa kuwapa wananchi ujasiri lakini leo wananchi wanakosa ujasiri yaani wanaogopa wanapokutana na polisi alimalizia kusema
 Maandamano dhidi ya kifo cha daktari Silvio Dala huko  Luanda
-Picha na  Simão Hossi CCBY 3
-0
+Picha na  Simão Hossi CCBY 3.0
 Wengi waliyahamishia maandamano haya katika kurasa za Facebook na WhatsApp kupinga tukio hilo
 Mwanaharakati na mwanazuoni  Nuno Álvaro Dala aliandika huko  Facebook
 POLISI WA NCHI HII WANAHUSIKA NA KIFO CHA DAKTARI SILVIO DALA
@@ -683,8 +672,7 @@ Ale Alejandro AlejandroCutieG September 7 2020
 Wakati  George Floyd alipouawa hao wanaojiita wahamasishaji wa kiAngola mitandaoni walionesha kuunga mkono mchakato wa Maisha ya Weusi Yana Thamani lakini katika kifo cha daktari wa kiAngola Silvio Dala hawa ndugu hawafanyi chochote kuhusu janga hili
 
 Makala 19
-Hachalu Hundessa akifanyiwa mahojiano na OMN kupitia Firaabeek Entertainment  CC BY 3
-0
+Hachalu Hundessa akifanyiwa mahojiano na OMN kupitia Firaabeek Entertainment  CC BY 3.0
 Dondoo ya Mhariri Huu ni uchambuzi wenye sehemu mbili juu ya Hachalu Hundessa mwanamuziki maarufu wa Oromo ambaye mauaji yake yaliamsha vurugu za itikadi za kidini na kikabila kwa sababu ya taarifa zisizo sahihi zilizotolewa katika mitandao ya kijamii
 Soma Sehemu ya pili hapa  
 Mwanamuziki mkubwa wa Kiethopia Hachalu Hundessa alipata umaarufu kwa kutumia ubunifu na kipaji chake kuutambulisha umma kuhusu watu wa Oromo
@@ -834,8 +822,7 @@ Kidogo tunachoweza kufanya ni kuuliza yuko wapi Dadiyata na ni kwa nini serikali
 
 Makala 22
 Wanafunzi katika Jimbo la Kaduna Nigeria
-Picha na  Jeremy Weate Januari 15 2010 kupitia  Flickr  CC BY 2
-0
+Picha na  Jeremy Weate Januari 15 2010 kupitia  Flickr  CC BY 2.0
 Maharamia wakiwa na silaha walivamia shule ya sekondari huko Kaduna Kaskazini Magharibi mwa Nigeria hapo Agosti 24 na kumuua mtu mmoja na kuwateka wanafunzi wanne na mwalimu kiliripoti chanzo cha habari za mitandaoni SaharaReporters
 Watu hao wakiwa na silaha walifika na kushambulia kijiji cha DambaKasaya katika serikali ya mtaa wa Chikun jimbo la Kaduna mnamo saa 1
 45 asubuhi wakiwa kwenye pikipiki na  iliripotiwa kuwa walimuua Benjamin Auta ambaye ni mkulima kulingana na taarifa ya gazeti la mtandaoni la Premium Times
@@ -1227,8 +1214,7 @@ Waandishi wa habari wanawake wanaubeba mzigo maradufu wa dhuluma inayotokana na 
 Vitisho hivi vinavyoendelea vimesababisha waandishi wa habari wanawake kujiondoa kwenye  mijadala ya masuala ya umma  na kuacha taaluma ya uandishi wa habari kutawaliwa zaidi na wanaume
 Soma Zaidi Gharama ya kuwa mwenye maoni tofauti Kitendawili cha mitandao ya kijamii nchini Uganda
 Joy Doreen Biira mwandishi wa habari
-Picha na Wazabanga kupitia Wikimedia Commons CC BY 3
-0
+Picha na Wazabanga kupitia Wikimedia Commons CC BY 3.0
 Mnamo Novemba 2016 mwandishi wa habari wa Uganda Joy Doreen Biira aliyekuwa akifanya kazi katika televisheni binafsi ya Kenya Television Network KTN nchini Kenya alirejea nyumbani Uganda kwa ajili ya sherehe ya kitamaduni
 Wakati Biira akiwa kwao vikosi vya usalama vya Uganda vilipambana na walinzi wa ufalme wa Rwenzururu katika mkoa wa Rwenzori magharibi mwa Uganda na ikulu yao ikateketezwa kwa moto
 Mapambano hayo ya kufyatuliana risasi yalisababisha vifo vya watu 62 wakiwemo polisi 16
@@ -1302,8 +1288,7 @@ Mradi huu umefadhiliwa na Mfuko wa Haki za Kidijitali wa Afrika wa shirika la Us
 Makala 31
 Mizizi ya miti iliyojikita kwenye ukuta wa karne ya 15 uliopo kisiwa cha Kilwa Kisiwani Tanzania
 Mnamo mwaka wa 1981 magofu ya sultani hodari wa Kiswahili kisiwani humo yalitangazwa kuwa eneo la UNESCO la urithi wa dunia
-Picha na David Stanley Januari 1 2017 CC BY 2
-0
+Picha na David Stanley Januari 1 2017 CC BY 2.0
 Kidokezo cha mhariri Makala haya ya kibinafsi yaliandikwa kufuatia kampeni ya Twitter iliyoandaliwa na Global Voices Ukanda wa Afrika Kusini mwa Jangwa la Sahara kwa ushirikiano wa Mradi wa Rising Voices pale kila wiki mwanaharakati tofauti wa lugha alishiriki maoni yake kuhusu muingiliano wa haki za kidijitali na Lugha za Kiafrika kama sehemu ya mradi Matriki utambulisho Tishio la ukandamizaji wa uhuru wa kujieleza mtandaoni barani Afrika
 Kulingana na shirika la Umoja wa Mataifa la Elimu Sayansi na Utamaduni UNESCO utofauti wa lugha na utamaduni una umuhimu kimkakati kwa watu ulimwenguni kote katika juhudi za kuimarisha umoja na mshikamano wa jamii
 Utofauti huu wa lugha na utamaduni ulishinikiza kongamano kuu la UNESCO kutangaza Siku ya Kimataifa ya Lugha ya Mama IMLD mnamo Novemba 1999 siku inayokumbukuwa mnamo Februari 21 kila mwaka
@@ -1324,8 +1309,7 @@ Mnamo 2018 Afrika Kusini nchi inayojivunia lugha rasmi 11 ilirasimisha Kiswahili
 Mnamo mwaka wa 2019 Jumuiya ya Maendeleo Kusini mwa Afrika SADC ilipitisha Kiswahili kama lugha rasmi ya nne ya Jumuiya hiyo
 Muonekano finyu wa Kiswahili Mtandaoni
 Karibu Nairobi
-Picha na Rachel Strohm Septemba 20 2019 CC BYND 2
-0
+Picha na Rachel Strohm Septemba 20 2019 CC BYND 2.0
 Licha ya kuwa lugha ya Kiafrika inayozungumzwa sana na takribani watu milioni 150  haswa katika Afrika Mashariki kanda ya maziwa makuu kusini mwa Somalia na maeneo mengine ya kusini mwa Afrika muonekano wa Kiswahili mtandaoni ni finyu
 John Walubengo mhadhiri wa Chuo Kikuu cha Multimedia cha Kenya anachanganua kwenye makala yake katika Nation jarida la kila siku nchini Kenya kuwa ukosefu wa lugha na utamaduni mtandaoni unaunda jamii yenye mtazamo mdogo wa dunia
 Walubengo anaelezea kuwa tamaduni nyingi za kiasili huishia kusalimisha utambulisho wao kwa hali za Kiingereza za ufanyaji mambo
@@ -1340,7 +1324,6 @@ UASG ni jamii ya viongozi wa tasnia inayohimiliwa na ICANN ambayo huandaa jamii 
 Huku kunafanikishwa kupitia mchakato unaojulikana kama Ukubalikaji Ulimwenguni UA ambao huhakikisha kwamba programu na mifumo ya mtandao inashughulikia vikoa vyote vya viwango cha juu TLDs na barua pepe kulingana na vikoa hivyo kwa njia thabiti  pamoja na vile vilivyoko kwenye maandishi yasiyo ya Kilatini na vile ambavyo ni zaidi ya herufi tatu
 UA hutumikia wanamtandao ulimwenguni kote katika lugha zao asili na kwa majina ya vikoa ambayo yanatambulisha utamaduni wao
 Kwa hivyo kukuza mtandao wa lugha nyingi
-ICANNWiki
 Shirika hili lisilo la kifaida linalotoa ukurasa wa wiki ulioendelezwa na jamii kwenye masuala ya ICANN na Utawala wa mtandao kwa muda mrefu limeshirikiana na mashirika taasisi za elimu na watu binafsi nchini Kenya na Tanzania
 Huku kumewezesha Waafrika Mashariki kujenga kutafsiri na kuongeza rasilimali za Wiki kwa maono yao lugha na mtazamo
 Mradi huu wa Kiswahili  ambao mie kama mwandishi nimeweza kujihusisha nao rasmi  umeziba pengo la habari zinazohusiana na maswala ya Utawala wa Mtandao kwa kujanibisha maudhui ya ICANNWiki kukuza ushiriki katika jamii zinazolengwa
@@ -1363,9 +1346,7 @@ Mradi wa Mantiki Utambulisho umefadhiliwa na Mfuko wa Haki za Kidijitali Afrika
 
 Makala 32
 Chumba cha Intaneti cha TEDGlobal
-Picha ya Creative Commons ya mtumiaji wa Flickr Erik HASH Hersman Juni 3 2007
-CC BY 2
-0
+Picha ya Creative Commons ya mtumiaji wa Flickr Erik HASH Hersman Juni 3 2007 CC BY 2.0
 Global Voices kupitia waandishi wake wa Ukanda wa Afrika Kusini mwa Jangwa la Sahari kwa ushirikiano na Mradi wa Rising Voices itaendesha kampeni ya mtandao wa twita kama sehemu ya mradi unaofahamika kama Utambulisho Jukwaa la kudhibiti vitisho vya mtandaoni dhidi ya uhuru wa kujieleza barani Afrika kuanzia Aprili 20 mpaka Mei 22 2020
 Soma zaidi MatrikiUtambulisho Mrandi mpya wa kukuza haki za kidigitali barani Afrika 
 Kama mwendelezo wa Uandishi wa Kuelekea kwenye Uhuru Siasa na haki za kidijitali barani Afrika  kampeni hii ya wiki tano ya mtandao wa kijamii kuhamasisha jamii itashirikisha mjadala ulioandaliwa na GVSSAfrica ukiwashirikisha wanaharakati wa lugha tano za Kiafrika ambao wataangazia uwiano wa lugha na haki za kidijitali
@@ -1400,8 +1381,6 @@ Ozurumba pia anajulikana kama Asampete jina ambalo linaweza kutafsiriwa kutoka k
 Ozurumba anafurahishwa na lugha na utamaduni ya Kiigbo na amejitolea kuhakikisha kuwa watu kadhaa wanajifunza kwa kiasi fulani kuzungumza kuandika na kusoma
 Ozurumba ni mwanzilishi wa kundi la kiigbo la watumiaji wa Wikimedia na mara kwa mara huenda akaanzisha mazungumzo kuhusu Wikimedia Foundation bila kushinikizwa
 Anaishi jijini Abuja Naijeria na anapenda utulivu na hisia ya mwendo wa aste aste wa jiji
-Mei 1115 Ọmọ Yoòbá yobamoodua
-Adéṣínà Ayẹni
 Picha imetumiwa kwa ruhusa
 Adéṣínà Ayẹni ambaye pia anajulikana kama Ọmọ Yoòbá ni mwandishi wa habari na mwanaharati wa utamaduni ambaye anatumia kazi yake ya uanahabari kuendeleza utunzaji na usambazaji wa urithi wa utamaduni wa Kiyorùbá mtandaoni na nje ya mtandao 
 Kama msanii wa sauti ametayarisha matangazo mengi ya Kiyorùbá ya kampeni za redio za Naijeria na TVC
@@ -1432,12 +1411,8 @@ Katika Zimbabwe baada ya Mugabe mpango wake huu umeimarisha mgogoro wa upotoshaj
 Wakati ambapo serikali mpya ilijidai kulaani habari za uongo  kwa taarifa zilizosambazwa kwenye mitandao ya kijamii na ambazo waliziona kuwa tishio utawala ulio madarakani  pia ilifanya hila ilikuupotosha umma kuhusu namna ilivyoshughulika na maandamano ya kuipinga serikali
 Kero ya uhuru wa kujieleza mtandaoni
 Zimbabwe imeshuhudia ongezeko kubwa la matumizi ya intaneti kwenye simu za mkononi na mitandao ya kijamii katika miaka michache iliyopita
-Kiwango cha kuenea kwa intaneti kiliongezeka kwa asilimia 41
-1 kutoka asilimia 11 ya idadi ya watu hadi asilimia 52
-1 kati ya 2010 na 2018 wakati kuenea kwa simu za mkononi kuliongezeka kwa asilimia 43
-8 kutoka asilimia 58
-8 hadi asilimia 102
-7 kwa kipindi hicho hicho
+Kiwango cha kuenea kwa intaneti kiliongezeka kwa asilimia 41.1 kutoka asilimia 11 ya idadi ya watu hadi asilimia 52
+1 kati ya 2010 na 2018 wakati kuenea kwa simu za mkononi kuliongezeka kwa asilimia 43.8 kutoka asilimia 58.8 hadi asilimia 102.7 kwa kipindi hicho hicho
 Hii inamaanisha kuwa nusu ya idadi ya watu sasa imeunganishwa na intaneti ikilinganishwa na asilimia 11 tu katika mwaka 2010
 Hata hivyo upotoshaji na utoaji taarifa za uongo nao vimepata mazingira ya kushamiri kwa sababu kadhaa mgawanyiko mkubwa katika vyombo vya habari mapendekezo ya serikali kudhibiti mitandao ya kijamii njia hafifu za mawasiliano rasmi na na elimu duni miongoni mwa watumiaji wa intaneti
 Wakati wa maandamano dhidi ya serikali ya Januari 2019 kipindi vikosi vya usalama vya serikali vilipowakamata na kuwashambulia mamia ya waandamanaji habari za ukandamizaji huu zilishindana na madai ya serikali kwamba zilikuwa habari za uongo au pale ilipokanusha kabisa kuwepo kwake
@@ -1590,7 +1565,6 @@ Nyongeza ya Mhariri Mwandishi wa makala haya aliwahi kujitolea kwenye shule ya D
 Makala 36
 Sierra Leone Watoa huduma wa afya wakijiandaa kuingia kwenye eneo la kutolea matibabu kwa wagonjwa wa Ebola
 Flickr image by ECECHOCyprien Fabre August 2 2014
-0
 Mapema tarehe 12 Agosti Shirika la Afya Duniani WHO lilitoa taarifa chanya ya maendeleo ya michakato ya kitabibu ya majaribio ya dawa kadhaa za kutibu ugonjwa wa ebola nchini Jamhuri ya Kidemokrasia ya Congo Jamhuri ya Congo
 WHO ilitanabaisha kuwa dawa za ebola zilizojaribiwa zimeonesha matokeo chanya yatakayoleta matumaini ya kuishi kwa wagonjwa wa Ebola na kuendelea kueleza kuwa dawa mbili kati ya nne zilizojaribiwa zimeonesha kuwa na uwezo mkubwa wa kutibu Ebola
 Ni nani huyu anayehusika kwenye tiba hii ya Ebola Mheshimiwa Profesa JeanJacques MuyembeTamfum Mkurugenzi Mkuu wa Institut National de Recherche Biomédicale INRB DR ya Congo aliwekeza sehemu kubwa ya Maisha yake katika kutafuta tiba ya kirusi cha Ebola
@@ -1606,8 +1580,7 @@ Rosebell Kagumire  RosebellK August 13 2019
 Profesa wa maikrobaolojia wa Chuo Kikuu cha Tiba cha Kinshasa Jamhuri ya Kidemokrasia ya Congo hadi sasa ametumia muda wa takribani miaka 40 kutafuta tiba ya ugonjwa huu
 Mwaka 1995 alifanya kazi na WHO kwa ajili ya utekelezaji wa mradi wa he worked with WHO in implementing  utambuzi mbinu za kukabiliana na ugonjwa huu mara baada ya kuripotiwa kwa mara ya kwanza wagonjwa wa Ebola katika mji wa Kikwit Jamhuri ya Kidemokrasia ya  Congo
 Professor MuyembeTamfum aliyekaa akiwa na kipaza sauti akiongea wakati wa zoezi la utoaji elimu kwa jamii huko Beni Kivu ya Kaskazini Jamhuri ya Kidemokrasia ya Congo  mapema mwezi Septemba 2018
-Picha kwa hisani ya MONUSCOAqueel Khan CC BYSA 2
-0
+Picha kwa hisani ya MONUSCOAqueel Khan CC BYSA 2.0
 Kufuatia ugunduzi huu waathirika wa Ebola kwa sasa wana nafasi kubwa ya kuwa na matumaini ya kupata huduma ya haraka na hivyo kufikishwa hospitali kwa ajili ya matibabu zaidi wangalipo na uhai
 Kwa kiwa asilimia 90 ya wagonjwa wataweza kufikishwa kwenye vituo vya afya na kupata matibabu na kurejea wakiwa wazima kabisa watanza kuiamini dawa hii na kujenga imani kwa jamii zao na wananchi wote kwa ujumla
 JeanJacque MuyembeTamfum
@@ -1826,8 +1799,7 @@ Sasa labda waziri aweke msimamo wa kujihuzuru au JLo anapaswa kumfukuza kwa saba
 
 Makala 41
 Blanka Nagy akizungumza katika maandamano ya Januari 2019
-Picha na Márk Tremmel CC BYNCSA 2
-5
+Picha na Márk Tremmel CC BYNCSA 2.5
 Habari hii iliandikwa na Tamás B
 Kovács na kutafsiriwa na Anita Kőműves kwa ajili ya Jarida la Hungary lisilo la kibiashara Atlatszo
 Nakala hii iliyohaririwa inapatikana hapa kama sehemh ya ushirikiano wake na Global Voices
@@ -1867,8 +1839,7 @@ Kulingana na takwimu za hivi karibuni zilizokusanywa na Atlatszo vyanzo vikuu vy
 Makala 42
 Hawawezi kutuwekea mawazo yao vichwani mwetu hivyo wanatupiga risasi SOSNicaragua Ndivyo linavyosomeka bango la mwandamanaji mmoja wakati wa maandamano kwa ajili ya wafungwa wa kisiasa huko Managua
 Agosti 2018
-Picha na Jorge Mejía Peralta CC BY 2
-0
+Picha na Jorge Mejía Peralta CC BY 2.0
 Tangu maandamano makubwa dhidi ya Rais Daniel Ortega yalipuke nchini Nicaragua Aprili 2018 serikali imepiga marufuku maandamano imewakamata maelfu bila kuwafungulia mashtaka na kufungia kwa pamoja vyanzo vikuu na vile mbadala vya habari
 Majaribio ya kufanya mazungumzo yameshindikana  kwa sasa hatma ya Nicaragua imebaki kuwa swali gumu
 Maandamano yalianza kwa kupinga mabadiliko ya sera za mifuko ya hifadhi za jamii ambapo yangepandisha makato ya kodi ya mapato wakati ikipunguza maslahi ya kiinua mgongo
@@ -1931,11 +1902,7 @@ Katika mwezi Machi 2019 jamii za wazawa walifunga   barabara kuu katika mkoa w
 Tarehe 25 Aprili waliungana na maandamano ya jamii zingine ili kuongoza  maandamano ya kitaifa
 Pamoja na vitisho kwa haki za wazawa waandamanaji  wanapinga dhidi ya kukatwa kwa bajeti ya elimu na utekelezaji unaosuasua wa makubaliano ya amani ya mwaka 2016 ambayo Duque ambaye ana mwaka mmoja madarakani ndiye msemaji mkuu
 Wazawa wameyaita maandamano hayo mingas neno la lugha ya Quechua lenye maana ya kazi ya wote linalotumika sana katika maandamno katika Amerika ya Kusini
-ParoNacional  Comunidades indígenas campesinos campesinas y afros de Tado se movilizan desde tempranas horas a lo largo de la vía PereiraQuibdo en el marco del Paro Nacional SeValeProtestar pic
-twitter
-comYNOOB1oxNd
-Colombia Informa Col_Informa April 25 2019
-Tafsiri Maandamano ya kitaifa  Jamii za wazawa wakulima na watu weusi wa Tado wanahamasishana mapema kuanzia masaa ya  asubuhi kuwa barabarani kutoka Pereira kuelekea Quibdo kama sehemu ya maandamano ya kitaifa  Ni fahari kuandamana
+Maandamano ya kitaifa  Jamii za wazawa wakulima na watu weusi wa Tado wanahamasishana mapema kuanzia masaa ya  asubuhi kuwa barabarani kutoka Pereira kuelekea Quibdo kama sehemu ya maandamano ya kitaifa  Ni fahari kuandamana
 Mpango wa maendeleo wa Taifa unahusisha mageuzi katika sekta mbalimbali kama elimu nishati na kilimo
 Wakati Duque  anadai    mpango huo utawasaidia na kuwainua wakolombia milioni 3
 4 kutoka katika umaskini wachambuzi wanaona kuwa utawafaidisha hasa makampuni binafsi
@@ -1971,8 +1938,7 @@ Hakuna suluhusho la kudumu lililotolewa kwa mahitaji ya waandamanaji kwa hiyo ma
 Makala 44
 Swichi ya kuwasha na kuzima
 Picha na Andrew Huff
-Creative Commons CC BYNC 2
-0 Flickr Tarehe 20 Januari 2007Walipoamka tarehe 28 Aprili wakiwa tayari kupiga kura katika uchaguzi wa wabunge nchini Benin wapigakura hawategemea kukuta WhatsApp au Facebook ambazo zinatumika kuwasiliana au kupata habari wapi pa kupigia kura
+Walipoamka tarehe 28 Aprili wakiwa tayari kupiga kura katika uchaguzi wa wabunge nchini Benin wapigakura hawategemea kukuta WhatsApp au Facebook ambazo zinatumika kuwasiliana au kupata habari wapi pa kupigia kura
 Baadhi ya mitandao mikubwa ikiwemo Twitter Instagram Telegram na Viber ilikuwa imezimwa mapema siku ile
 Mpaka saa 5 Asubuhi asilimia 99
 5 ya upatikanaji wa mtandao  ulikuwa haupatikani na kuipeleka nchi ya Afrika magharibi kutokuwa na mtandao nchi nzima ambapo mtandao ulifunguliwa usiku
@@ -2012,8 +1978,7 @@ Msaidizi wa Kočner Alena Zsuzsová alituhumiwa kwa kulipa yuro 50000 karibu dol
 Wakati wa majira ya joto Kočner alikamatwa kwa makosa ya kifedha na alichunguzwa na Kuciak lakini ilizichukua mamlaka miezi sita zaidi kuwakamata wahusika wadogo wa mwekezaji huyo mtata na kumuunganisha moja kwa moja na mpango wa mauaji
 Sababu za mauaji ni kazi za uhandishi wa habari za mlengwa mwendesha mashtaka maalum ambaye hakutajwa jina kwa sababu za kiusalama aliwaambia wanahabari hapo Machi 15 katika mkutano wa habari karibu na Bratislava
 Maandamano huko Bratislava Machi 9 2018 kwa sababu ya mauaji ya Ján Kuciak na Martina Kušnírová
-Picha na Slavomír Frešo kupitia Wikipedia CC BYSA 4
-0
+Picha na Slavomír Frešo kupitia Wikipedia CC BYSA 4.0
 Mashtaka yalipokelewa na Taasisi za Haki za Vyombo vya Habari na Mawakili wa Haki za Binadamu Huko twita Mwanakamati ya Kulinda wanahabari Gulnoza Said alisema
 Tunapokea habari kuwa mamlaka za Slovakia zimemshtaki mtuhumiwa aliyechora mpango wa kumuua mwanahabari za uchunguziJánKuciak
 Hii ni hatua muhimu na ya kipekee katika mauaji ya wanahabari
@@ -2099,9 +2064,7 @@ Kwa maandamano ya kwenda ICC wanaharakati wanatarajia kuamsha mtazamo wa kimatai
 Wakati huo huo idadi inaendelea kuongezeja tangu kuanza kwa mwaka 2019 viongozi 73 wameshatishiwa katika eneo la idara ya Boyacá pekee
 
 Makala 48
-Bruno Saraiva alishinda tuzo nchini Hong Kong  picha ilitolewa na Bruno 20
-04
-2019
+Bruno Saraiva alishinda tuzo nchini Hong Kong  picha ilitolewa na Bruno 2004 2019
 Tarehe 17 Aprili mwanariadha raia wa Msumbiji Bruno Saraiva aliishinda mashindano ya kimataifa ya kutunisha misuli nchini Hong Kong
 Baada ya kuwashinda wapinzani watano mwanariadha huyo alishinda nafasi ya kwanza katika kundi la watunisha misuli bora kundi ambalo ni muhimu na linapendwa na watu wengi ambalo alikuwa anatafutwa mwanariadha mzuri ambaye huonesha maumbo yake katika mikao mbalimbali 
 Pia Bruno alishinda tuzo ya ujumla kwa wanariadha bora katika kundi la pili
@@ -2118,12 +2081,9 @@ Tafsiri Nakushukuru kwa ushindi Bwana
 Ninayo furaha kubwa ya kutangaza na kushirikiana nanyi kwa ushindi wangu katika kundi bora la watunisha misuli na kushinda ushindi wa jumla katika mashindano ya kimataifa ya kutunisha misuli nchini Hong Kong
 Katika  ujumbe mwingine  Bruno alielezea vikwazo au ugumu aliokutana nao kabla ya kwenda nchini Hong Kong
 Tafsiri Tafadhali rafiki yangu soma ujumbe huu kwa ukarimu kwa sababu ni uhalisia sina soni kuuelezea na najua wengi watahamaki sana Nilipokuwa nakaribia kuja Hong Kong kumalizia nilipita sehemu nyingi nikipiga hodi na kuomba msaada niliongea na marafiki zangu wengi ambao wengi niliamini watanisaidia na majibu yao yalikuwa haya
-1
-Bruno hutashinda na huna nafasi ya kushinda au kumaliza miongoni mwa wale bora
-2
-Wengine walisema hawawezi kunisaidia kwa sababu watakuwa wanapoteza fedha yao
-3
-Wengine hata waliniambia Bruno lazima unavuta bangi
+1. Bruno hutashinda na huna nafasi ya kushinda au kumaliza miongoni mwa wale bora
+2. Wengine walisema hawawezi kunisaidia kwa sababu watakuwa wanapoteza fedha yao
+3. Wengine hata waliniambia Bruno lazima unavuta bangi
 
 Makala 49
 Ould Mkhaitir alihukumiwa kifo mwaka 2014 kutokana na maoni aliyoyatoa katika kipande cha habari kilichochapishwa mtandaoni
@@ -2263,8 +2223,7 @@ Kuzuia vyombo vya habari binafsi  kupitia vikwazo mbalimbali dhidi ya vyombo vya
 Kushikiliwa na baadaye kurudishwa Uganda kwa Wakabi kunaonekana kuwa mwendelezo wa serikali ya Tanzania kushambulia uhuru wa kutoa maoni na hasa yanayokinzana na serikali
 
 Makala 53
-Alpha Condé akiwa katika mkutano wa jukwaa la uchumi ulimwenguni mwaka 2012 CC BYSA 2
-0
+Alpha Condé akiwa katika mkutano wa jukwaa la uchumi ulimwenguni mwaka 2012 CC BYSA 2.0
 Ingawa katiba ya Guenea inaruhusu  tu  mihula miwili mfululizo  kuwa madarakani Rais wa sasa wa nchi hiyo Alpha Condé hivi karibuni alitangaza kwamba ana nia ya kugombea urais kwa muhula wa tatu mfululizo
 Ili kusaidia kufanikisha hilo hakusita kushawishi wafuasi wake kufanya vurugu
 Katika uchambuzi uliochapishwa na gazeti la Horizon Guinée mwandishi wa bahari Sonny Camara anayeishi Conakry mji mkuu wa nchi hiyo alilipoti sehemu za hotuba ambayo Rais alihutubia tarehe 24 Machi 2019
@@ -2341,9 +2300,7 @@ Katikati ya mwaka 2018 rubani  Admira António alikuwa mwanamke wa kwanza kuwa r
 Mwaka  2014 wakati askari polisi wa Jamhuri ya Msumbiji ilipopandisha vyeo askari 39 Arsenia Massingue aliteuliwa kuwa mwanamke wa kwanza kuwa jenerali  katika jeshi hilo
 
 Makala 55
-Papa Francisco  Gabriel Trujillo  maelezo na ShareAlike ya 2
-0CC BYSA 2
-0
+Papa Francisco  Gabriel Trujillo  maelezo na ShareAlike ya 2.0CC BYSA 2.0
 Papa Francis atatembelea Msumbiji Mwezi Septemba 2019 wiki kadhaa kabla  ya uchaguzi ambao utamchagua Rais mpya Wabunge na Magavana wa majimbo
 Papa amealikwa na Rais wa Msumbiji Filipe Nyusi mwezi Septemba 2018
 Matembezi hayo yalitangazwa na kuthibitishwa tarehe 26 Machi katika hafla ya ibada  iliyojumuisha viongozi wa kanisa la Roma Katoliki katika nchi hiyo
@@ -2520,8 +2477,7 @@ Amani haimaanishi kuisha kwa vita pekee na hakuna Taifa litakalofanikiwa katika 
 
 Makala 60
 João Lourenço Rais wa  Angola
-Picha Wikimedia Commons CC BYSA 2
-0
+Picha Wikimedia Commons CC BYSA 2.0
 Mahojiano  aliyoyafanya Rais wa Angola João Lourenço na RTP  Kituo cha Televisheni ya Taifa ya Ureno ambapo alisema kuwa hakuna njaa nchini kwake yamesababisha ghasia miongoni mwa wananchi
 Katika mahojiano ya dakika 30 yaliyorushwa Machi 4 mwanahabari wa Kireno kwa RTP Áfrika alirejea ripoti ya UNICEF iliyosema kuwa wananchi wanakufa kwa njaa nchini Angola
 Rais Lourenço alikataa kuwepo kwa njaa nchini mwake wakati akikubali kuwa kuna utapiamlo
@@ -2819,8 +2775,7 @@ Ni muda pekee utakaoonesha ni jinsi gani mambo haya yatakavyojifunua katika kipi
 
 Makala 67
 Msikiti Mkuu wa Mecca inaaminiwa kuwa sehemu takatifu zaidi kwa Waislamu
-Picha na Wikimedia mtumiaji Basil D Soufi CC BYSA 3
-0
+Picha na Wikimedia mtumiaji Basil D Soufi CC BYSA 3.0
 Wakati mwanahabari wa Saudia na mwandishi wa makala katika Washington Post Jamal Khashoggi alipouawa Oktoba katika ubalozi wa Saudia huko Instabul kuleta giza totoro katika uhuru wa kujieleza kwa wanahabari kutoka Saudi Arabia na ukanda wote wa Arabuni
 Matokeo ya anguko hili la kisiasa limetikisa baadhi ya mamlaka zenye nguvu sana na sauti kubwa katika Uislamu
 Baada ya tukio la kupotea kwa Khashoggi na kifo chake kufahamika viongozi mbakimbali wa duniani wamemtuhumu mwana wa mfalme wa Saudia Mohammad Bin Salman kuagiza mauaji ya mwanahabari huyo
@@ -2891,8 +2846,7 @@ Kuhalalisha na kusafisha matendo ya unyanyasaji watawala wa Saudia hawakawii kut
 
 Makala 68
 Kulingana na serikali ya Cuba madaktari wapatao 20000 waliwahudumia Wabrazili milioni 113 kwa kipindi cha miaka mitano
-Picha na Agência Brasil CC BY 3
-0
+Picha na Agência Brasil CC BY 3.0
 Maelfu ya Wabrazili wanaweza kubaki bila huduma za afya kwa sababu Cuba imeanza kuwaondoa zaidi ya madaktari 8400 ambao walikuwa wamepangiwa kazi katika miji midogo ya mbali na ya ndani sana ya nchi kwa miaka mitano
 Katika taarifa ya rasmi ya Novemba 14 Havana ilitangaza kuwa itakatiza makubaliano yake na Brazili kutokana na maoni ya wazi ya Rais Jair Bolsonaro kuhusu mpango huo ambapo wanadhani kuwa yanaonesha vitisho na uonevu
 Mara kadhaa katika kampeni za Urais Bolsonaro alikosoa utandaji wa madaktari kutoka Cuba na kuukosoa mpango huo
@@ -3091,10 +3045,8 @@ Yeye na wanachama wake waliamini ni mpango uliofanywa kati ya Tshisekedi wa cham
 Tarehe 19 Januari 2019 Mahakama ilitupilia mbali madai ya Fayulu kwa kushindwa kuthibitisha madai yake bila kutia shaka
 Kutokana na Tume Huru ya Uchaguzi  Tshisekedi  alipata asilimia 38
 5  ya kura wakati Martin Fayulu wa umoja wa vyama vya upinzani Lamuka alipata asilimia  34
-7 na Mwaminifu  Emmanuel Ramazani Shadary alivuna asilimia 23
-8
-Mahudhurio ya wapiga kura yalikuwa ni asilimia 47
-6 chini ya nusu ya wapiga kura wote
+7 na Mwaminifu  Emmanuel Ramazani Shadary alivuna asilimia 23.8
+Mahudhurio ya wapiga kura yalikuwa ni asilimia 47.6 chini ya nusu ya wapiga kura wote
 Baada ya kutangazwa shangwe za sherehe zilianzia makao makuu ya chama katika mji mkuu Kinshasa
 Miongoni mwa marais wa nchi za Afrika Rais wa Afrika ya Kusini Cyrill Ramaphosa alimpongeza Tshisekedi na Rais wa Jamhuri ya Muungano wa Tanzania John Magufuli alituma ujumbe wake wa kumpongeza kupitia twiita
 Tshisekedi ni nani
@@ -3208,10 +3160,7 @@ Mabadiliko hayo ni matokeo ya makubaliano mazito na yaliyochukua muda marefu  ka
 Wakati Rais hajaondoa sheria ambayo itaendana na mabadiliko haya hata hivyo inaaminika kuwa atafanya hivyo
 
 Makala 75
-Katika hotuba yake ya mwaka kwa taifa Vladimir Putin amewaahidi warusi mtandao wnye kasi zaidi na wakuaminika
-wataalamu wanasema Kuwa hakika hautatolewa bure TASSkremlin
-ru under CC2
-0
+Katika hotuba yake ya mwaka kwa taifa Vladimir Putin amewaahidi warusi mtandao wenye kasi zaidi na wakuaminika wataalamu wanasema Kuwa hakika hautatolewa bure
 Februari 20 Vladimir Putin alihutubia bunge la urusi katika  hotuba yake ya mwaka kwa taifa
 Ameahidi uwekezaji mkubwa katika miradi ya kijamii na miundombinu hasa kwenye msingi wa teknolojia ya habari
 Mwaka huu lazima tuwe na mpango madhubuti wa kuendeleza miundombinu ya kiuchumi ya kidigitali ikiwemo mitandao ya simu na utunzaji wa taarifa na kasi kubwa ya usambazaji
