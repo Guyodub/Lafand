@@ -3393,10 +3393,6 @@ Katika mahojiano ndani ya video hii Muhamad ananieleza jinsi anavyojisikia baada
 Makala 80
 Picha ya Skrini kutoka katika video ya Balozi wa Urusi akihutubia katika kituo cha runinga cha Africa Guinee TV huko YouTube kwa KifaransaHapo Januari 9 2019 Alexander Bregadze Balozi wa Shirikisho la Urusi kwa Jamuhuri ya Guinea alituma salamu za Mwaka mpya kumpongeza Rais Alpha Condé wa nchi hiyo ya Afrika Magharibi
 Alirekodi video hiyo ya salamu akiwa huko Conakry mji mkuu ambapo ndipo ofisi yake ya kidiplomasia ipona katika hotuba yake alilenga jambo la msingi uwezekano wa WaGuinea kubadilisha katiba yao na kumruhusu Rais Condé kugombea kwa kipindi cha tatu baada ya muhula wake kuisha hapo 2020
-Depuis que la Guinée est devenue la Guinée dAlpha Condé elle est vraiment en marche
-Monsieur le Président vous êtes un exemple phare pour la jeunesse guinéenne
-Malheureusement le principe dalternance qui domine beaucoup de Constitutions dans le monde mais pas toutes heureusement impose la mentalité de revanche Cest notre tour maintenant cest nous qui devons diriger le pays
-Mais les Constitutions ne sont pas ni dogme ni Bible ni Coran
 Tangu Guinea imekuwa Guinea ya Alpha Condé kwa kweli imekuwa katika mwendo
 Mheshimiwa Rais wewe ni kielelezo kwa vijana wa nchi hii
 Bahati mbaya utaratibu wa kukabidhiana madaraka ambayo imetawala katiba nyingi duniani sio wote wanafurahia kuweka msingi wa mtazamo wa kulipa fadhila Ni muda wetu sasa lazima tuiendeshe nchi
@@ -3406,14 +3402,9 @@ Kulingana na balozi mambo yote ni sawa ndani ya Guinea
 Lakini hata hivyo hali halisi inaonesha ukweli mwingine
 Waalimu waliingia katika mgomo wa pamoja mwaka huu ambao ulidumu kwa miezi mitatu ukosefu wa ajira umeongezeka maradufu na imegundulika kuwa wahamiaji wengi haramu wanaoingia huko Ulaya kwa mwaka 2018 asili yao ni nchini Guinea takwimu zikioneshwa wanakaribia watu 13068
 Bado balozi aliendelea kusema
-Sous nos yeux la Guinée devient le pays le plus électrifié de lAfrique
-Dune année à lautre  on circule mieux sur les routes entre Conakry et les régions guinéennes
 Mbele ya macho yetu Guinea inakuwa nchi iliyosambaa huduma ya umeme zaidi Afrika
 Mwaka hadi mwaka barabara kati ya Conakry na mikoani zinarahisha usafirishaji
 Katika makala ya gazeti la Vision Guinée mwandishi wa habari Pathé Bah aliandika kuwa Ousmane Kaba mshauri wa mipango wa zamani wa Rais Condé alifahamika kwa kusimamia maslahi ya umma
-La Guinée est dans lobscurité Il ny a pas délectricité dans notre pays
-Cest pourquoi je me suis battu pour avoir largent pour construire Kaleta sur le Konkouré
-On se bat pour avoir beaucoup de barrages sur le Konkouré parce que cela fait avancer le pays
 Guinea iko gizani
 Hakuna umeme katika nchi yetu
 Ndiyo maana nilipigania fedha za kujenga Kaleta kinu cha kufulia umeme wa maji katika mto Konkouré
@@ -3440,7 +3431,7 @@ Kiongozi wa upinzani wa Guinea Cellou Dalein Diallo amekosoa mtazamo wa mwanadi
 Amekuwa akiendeshwa na Condé mwenyewe
 Na tunajua kuwa yeye ni mwakilishi wa nchi kubwa nchi yenye nguvu iliyoshiriki kikamilifu katika kuuondoa ukoloni barani Afrika na ambayo imekuwa na uhusiano wa mfano na Guinea kwa kuheshimu kanuni ya kutokuingilia masuala ya ndani ya nchi
 Tunapambana kuwasiliana ma serikali ya Urusi ili kuweka msisitizo katika eneo hilo 
-Akiongea kwa niaba ya wanaharakati wa mashirika ya kijamii Gabriel Haba Rais wa Brigedi ya Hatua za Kiraia alielezea  hasira iliyoamshwa na balozi kwa kuunga mkono huko mwanahabari Ibrahima Sory Barry aliandika katika mtandao wa Aminata
+Akiongea kwa niaba ya wanaharakati wa mashirika ya kijamii Gabriel Haba Rais wa Brigedi ya Hatua za Kiraia alielezea  hasira iliyoamshwa na balozi kwa kuunga mkono huko mwanahabari Ibrahima Sory Barry aliandika katika mtandao wa Aminata.com
 Suala la kupokezana madaraka kisiasa ni suala huru
 Na uhuru uko kwa wananchi
 Sio sehemu ya majukumu ya balozi kusimamia majaliwa ya Guinea
@@ -3458,6 +3449,8 @@ Hapo Januari 14 mamlaka za ulinzi zilitawanya  maandamano yaliyoandaliwa nje y
 
 Makala 81
 Rais Mstaafu wa Naijeria Olusegun Obasanjo
+Creative Commons CC BY 2
+0 Flickr June 27 2011
 Wakati Nigeria wakijiandaa na uchaguzi mwingine wa Rais mwezi wa pili maafisa wa jeshi wastaafu waliogeuka kuwa wanasiasa wamekuwa kielelezo cha kuelewa uelekeo wa siasa za Nigeria
 Naigeria imekuwa ikiongozwa na labda Jenerali Mstaafu au wale wanaoungwa mkono na majenerali hao tango 1999 pale mfumo wa serikali ya kidemokrasia uliporejea
 Mgongano wa wazi wa hivi karibuni kati ya Rais wa zamani  Olusegun Obasanjo na Rais anayemaliza muda wake Muhammadu Buhari  wote wakiwa Madikteta wastaafu wa jeshi  una mchango mkubwa katika uchaguzi wa mwezi wa pili
@@ -3500,7 +3493,6 @@ Lakini itachukua muda kidogo mpaka Nigeria ije ipate Rais wa Kiraia ambaye ahusi
 
 Makala 82
 Anguko la ardhi hapo April 8 2009  Picha na hisank ya Elizabeth Donoghue  katika akaunti ya Flickr CC BYNCND 2
-0
 Miaka kumi iliyopita siku ya Jumamosi 7 Februari 2009 Victoria ilipatwa na janga la nyika kuwaka moto ambapo watu 173 waliuawa na zaidi ya mia nne kujeruhiwa na makazi zaidi ya elfu mbili kuharibiwa na moto huo
 Watu saba walifariki baadaye kutokana na majeraha
 Katika Juma la maadhimisho hayo kwa mwaka 2019 wakazi wa Victoria waliikumbuka Jumamosi Nyeusi   kwa vyombo vikubwa vya habari kuonesha habari nyingi za watu binafsi kuhusu moto huo
@@ -3520,9 +3512,6 @@ Moyo wangu na roho yangu vilibadilika milele
 Kama kawaida mawazo yangu yako na wahanga wote wa Jumamosi Nyeusi
 Nitashukuru milele kwa msaada mimi na familia yangu tuliopokea kutoka kwa walio juu na nje ya milima
 Nilikuwa na bahati kuliko baadhi ya watu
-pic
-twitter
-comgKHLwlUbpH
 Dianne McNamara DianneMcNamara February 6 2019
 Mwanasheria wa Melbourne Georgia alikuwa na miaka kumi na tano wakati huo
 Aliwakilisha hisia za wengi
@@ -3534,30 +3523,18 @@ Robin Steenberg alishirikisha kumbukumbu ya kusikitisha
 Ni miaka 10 iliyopita rafiki yangu na familia yake waliangamia katika moto ule wa Jumamosi Nyeusi  Kaskazini mwa Melbourne Australia
 Bado naona ni kama jana tu
 Fikra zetu ziendee familia zote
-Lala mahala pema peponi rafiki zangu RIP TruemanTrades stocktcm iObvi8 pic
-twitter
-comDtZxTlodD7
-fxtrader robinsteenberg2 February 5 2019
 Watu wengi wanaunganisha janga la Jumamosi Nyeusi na hali mbaya ya hewa ya sasa ambayo inaleta madhara katika maeneo mengine ya nchi
 Janga lingine la asili la mafuriko limeikumba ukanda wa Kaskazini mwa Queensland ikifuatiwa na mvua
 Blair Drysdale alielezea baadhi ya madhara katika maeneo ya bara
 Hili ni shamba la Julia Creek huko North Queensland shamba lake lote ni kamahekari 150000
-pic
-twitter
-comdv2k6kzqDn
-Blocka blairdrysdale77 February 6 2019
 Hali katika mji wa Pwani wa Townsville hali ilikuwa mbaya pia
 Kampuni ya uzalishaji video ya Ruptly ilirekodi mafuriko hayo
-Townsville umekumbwa na mafuriko kama milango ya bwawa imefunguliwaAustralia pic
-twitter
-comzYjFtnIjke
-Ruptly Ruptly February 3 2019
+Townsville umekumbwa na mafuriko kama milango ya bwawa imefunguliwa Australia
 Mkazi wa Melbourne Ann Moorfield aliunganisha matukio
 Nataka kumkumbusha kila mmoja kuwa tulipopatwa ma Jumamosi Nyeusi kulikuwa na mafuriko huko Qld wakati huo huo
 Kulikuwa na wito kwa wahanga wa mafuriko ya Qld na wahanga hao walisema kuwa fedha itumwe kwa wahanga wa moto wa nyika huko Vic maana walizihitaji zaidi
 hivyo chimba chini zaidi kwa ajili ya wahanga wa mafuriko ya Qld
 Townsville
-Ann Moorfield AnnMoorfield February 6 2019
 Elizabeth Donoghue alichukua picha yenye kichwa cha habari kutoka katika njia ambayo watu wengi wanaielezea kama mtego wa kifo njia ambayo nimeikwepa hadi leo
 Uendeshaji huu wa kutisha ulistahili
 Aliposti miezi miwili baada ya moto kutokea huko Flickr
@@ -3567,9 +3544,7 @@ Nimepiga Picha hii katika barabara ambayo wengi huielezea kama mtego wa kifo bar
 Lakini uendeshaji huu hatari ulistahili
 Hatimaye Adrian Cutts aliangazia ukuaji wa mitandao ya kijamii tangu siku ya Jumamosi Nyeusi
 Kama bahati kesho pia itakuwa miaka 10 tangu WaAustralia wengi wajue Twita ilikuwa nini
-Jumamosi Nyeusi ilikuwa mwanzo wa mageuzi
-ya Twita katika nchi hii kuanzia pale ilipokuwa inachukuliwa kama njia ya mawasiliano isiyo na uhakika na sasa imekuwa sehemu ya maisha yetu
-Adrian Cutts LYBASkw February 6 2019
+Jumamosi Nyeusi ilikuwa mwanzo wa mageuzi ya Twita katika nchi hii kuanzia pale ilipokuwa inachukuliwa kama njia ya mawasiliano isiyo na uhakika na sasa imekuwa sehemu ya maisha yetu
 
 Makala 83
 Manusura waliopoteza ndugu zao na nyumba zao wakiwa wamejipumzisha kufuatia shambulizi la Juni 5 katika kijiji cha Naunde huko Cabo Delgado Msumbiji
@@ -3592,21 +3567,16 @@ Taasisi ya Habari Ukanda wa Kusini mwa Afrika ambayo husimamia haki na shughuli 
 Kuendelea kushikiliwa kwa Abubacar Na jeshi ni uvunjaji wa haki zake pia kukamatwa kwake bila mashtaka rasmi
 Serikali ya Msumbiji inaweka historia mbaya ya kuvunja haki za uhuru wa kujieleza na Uhuru wa kupata habari katika ukanda huu
 Shirika la haki za Binadamu Pia walitoa tamko
-Amade Abubacar é um respeitado jornalista que estava a gravar depoimentos de pessoas que fugiram de ataques mortais em Cabo Delgado quando foi preso pela polícia
-Esta é a mais recente demonstração de desprezo pela liberdade de expressão e liberdade de imprensa por parte das autoridades moçambicanas que veem os jornalistas como uma ameaça e os tratam como criminosos
 Amade Abubacar ni mwandishi anayeheshimika ambaye alikuwa akirekodi shuhuda za watu waliokimbia mashambulizi huko Cabo Delgado alipokamatwa na polisi
 Hii ni dharau ya hivi karibuni kutoka kwa mamlaka za Msumbiji na zimeelekezwa katika uhuru wa kujieleza na uhuru wa vyombo vya habari mamlaka zinawaona wanahabari kama maadui na hivyo wanatendwa kama wahalifu
 Kampeni hii imeenea pia huko Twita na imeundiwa hashtagi kama vile MfungueniAmade kutaka uhuru wa Amade
 UNHumanRights imetaka kufunguliwa haraka kwa mwandishi huyo wa habari AmadeAbubacar
 Kuwekwa kizuizini holela haikutosha wamemtesa na kumlaza huku amevaa pingu katika kambi ya jeshi bila kumpa chakula
 Hii ni mbaya sana
-MfungueniAmade CaboDelgado
-Cídia Chissungo Cidiachissungo 26 janvier 2019
+Mfungueni Amade CaboDelgado
 Angela Quintal coordinator wa Mpango wa Afrika kwa Kamati ya Kuwalinda Wanahabari alimtupia lawama Rais wa Msumbiji
 Msumbiji Leo ni Jan 30 ni siku ya 25 mwandishi wa habari AmadeAbubacar akiwa bado kizuizini kwa sababu tu ya uandishi wake wa habari
-Mtu anaweza kudhani kuwa Rais FNyusi ana mambo mengi sana mkononi kuanza kupoteza rasilimali kwa kumfungia mtu asiye na hatia MwachieniAmade httpst
-cogiF8zFnaCY
-Angela Quintal angelaquintal 30 janvier 2019
+Mtu anaweza kudhani kuwa Rais FNyusi ana mambo mengi sana mkononi kuanza kupoteza rasilimali kwa kumfungia mtu asiye na hatia Mwachieni Amade
 
 Makala 84
 Viwanja vya Nyerere Square jijini Dodoma makao makuu ya Tanzania lilipo bunge
@@ -3615,53 +3585,30 @@ Mnamo Januari 29 wakati  Bunge la Tanzania likiendelea na kikao chake jijini Dod
 Tukio hili lilivutia hisia za watu wengi nchini humo na kuibua maswali hasa katika mitandao ya kijamii na magazeti
 Swali kubwa likiwa je kutua kwa bundi kwenye jengo la bunge kulibeba maana yoyote 
 Bundi alionekana mara mbili jana ndani ya ukumbi wa Bunge jijini Dodoma
-Je Bundi anapoonekana inaashiria nini pic
-twitter
-comRMKzRskrXc
-Mwananchi Newspapers MwananchiNews January 30 2019
+Je Bundi anapoonekana inaashiria nini
 Ishara mbaya gazeti la kila wiki The East African lilipendekeza
-
-Mwanablogu wa Uingereza na mchambuzi wa vyombo vya habari Ben Tylor alidadisi zaidi  
-The owl that entered parliament signalled the coming death of Tanzanian democracy
-Ben Taylor mtega January 30 2019
+Mwanablogu wa Uingereza na mchambuzi wa vyombo vya habari Ben Tylor alidadisi zaidi
 Bundi kuingia bungeni kumeashiria ujio wa kifo cha demokrasia ya Tanzania
 Katuni imechorwa na Samuel Mwamkinga Joune imetumiwa kwa ruhusa
 Mchora katuni wa Tanzania Samuel Mwamkinga Joune aliliweka tukio hilo katika mchoro akilifananisha na neno la Kiingereza kundi la bundi likibeba maana ya Kigiriki kwamba bundi wana hekima picha imetumiwa kwa ruhusa
 Bundi hata hivyo anaonekana kama ishara ya kifo na mikosi nchini Tanzania
-
 Inavyoonekana  bundi huyo alikusudia kukaa Bungeni kwa mujibu wa gazeti la The Citizen
-
 Bundi ndege anayependa kuruka usiku hakuondokapamoja na majaribio kadhaa ya maafisa wa bunge kumtoa
 Bundi ni ndege maarufu nchini Tanzania na si ajabu ndege hawa kuhusishwa na masuala ya ushirikina
 Mwaka 2010  utafiti uliwahi kuonesha kuwa asilimia 93 ya waTanzania wanaamini ushirikina
 Kikao kisicho cha kawaida 
 Kikao hiki cha Bunge uwepo wa bundi ulikuwa alama isiyo ya kupuuza hata kwa wasioamini ushirikina
 Agenda ya kikao cha kwanza cha Bunge cha mwaka 2019 ilikuwa ni mapendekezo ya marekebisho ya Sheria ya Vyama vya Siasa iliyotanguliwa na mjadala mzito ulioendelea kwa takribani mwezi mzima katika mazingira ya kisiasa yanayoonekana kuendelea kuwa tete
-
 Tanzania iliweka historia  mwaka 1992 kuwa miongoni mwa nchi za mwanzo barani Afrika kuanzisha mfumo wa vyama vingi vya siasa ulioruhusu kuundwa kwa vyama vya upinzani
 Sheria ya Vyama vya Siasa  hapa ikiwa na mabadiliko yanayopendekezwa  ilitungwa mwaka 1992 na imekuwa ikirekebishwa mara kwa mara na mabadiliko ya  mwisho kabla ya haya yalifanyika mwaka 2009
-
 Wakati bundi akiwa ametua kwenye jengo la Bunge wabunge wa Tanzania walikubali kurekebisha sheria hiyo  hatua ambayo wakosoaji wanaiona kama itadhoofisha sana mfumo wa vyama vingi nchini Tanzania na hivyo kuathiri mwenendo wa demokrasia nchini
 Kwa kifupi mabadiliko ya sheria yanampa mamlaka makubwa zaidi msajili wa vyama vya siasa aliyeteuliwa na serikali si tu kuvifutia usajili vyama vya siasa lakini pia kutoa adhabu ikiwa ni pamoja na kifungo jela ikiwa chama cha siasa kwa mfano kitatoa elimu ya uraia kwa wapiga kura na kuendesha shughuli nyingine zenye mrengo wa kisiasa kwa mujibu wa Reuters
 Vyombo kadhaa vya habari vimemnukuu Zitto Kabwe kiongozi wa chama cha upinzani ACTWazalendo ambaye  mwezi Agosti 2017 alinukuliwa akikosoa mabadiliko hayo ya sheria akidai kuwa yangefifiisha haki za kisiasa nchini humo
 Kabwe aliifananisha sheria hiyo na Muswada wa Huduma za Habari wa 2016 ambao unadaiwa kurudisha nyuma uhuru wa vyombo vya habari
 Sasa Kabwe anaangazia mkanganyiko unaosababishwa na mabadiliko hayo ya Sheria ya Vyama vya Siasa 
 Huwezi kuwa na katiba inayoruhusu uhuru wa watu kukusanyika na kisha uwape mamlaka baadhi ya watu kupokonya uhuru huo
-
-Kiongozi wa chama Cha ACTwazalendo Ndugu zittokabwe akielezea mahusiano ya Demokrasia na Maendeleo kwa kutumia Takwimu za WorldBank PoliticalPartiesBill pic
-twitter
-comIwNln6Wl68
-ACT VIJANA TAIFA ActVijana January 29 2019
-Dying democracy
 Kuzorota kwa demokrasia Tanzania chini ya utawala wa Rais Magufuli imekuwa mada isiyoisha na hujirudia mara kwa mara kwenye vyombo vya habari na pia imekuwa ikijitokeza mara kwa mara kwa waandishi wa kejeli
-
 Mnano Januari 30 Fatma Karume Mwenyekiti wa Chama cha Wanasheria wa Tanganyika TLS alitwiti katuni ya mchora katuni maarufu wa Kenya Gado Septemba 22 2017akionesha wajibu wa Rais wa Tanzania Magufuli na kifo cha demokrasia 
-Good morning everyone
-Have a lovely day
-pic
-twitter
-comRKDe0iX5ZG
-fatma karume aka Shangazi fatma_karume January 30 2019
 Habari za asubuhi ndugu zangu
 Muwe na siku njema
 Katika miaka ya karibuni Tanzania imegeuka kwa kasi  kuwa nchi yenye sheria za kiimla  zinazosababisha kuminywa kwa fursa kwa wanasiasa wa upinzani kufanya siasa sambamba na vyombo vya habari
@@ -3670,39 +3617,24 @@ Upinzani ni muhimu kwa demorasia hai
 Upinzani imara huisimamia serikali na kuipa changamoto
 Katika mazingira ambayo upinzani haupo ni wazi mahitaji tofauti ya raia hayawezi kuwakilishwa ipasavyo
 Kwa kutumia twiti 15 mwanafunzi wa udaktari Rachel McLellan aliwapitisha wasomaji wake kwenye ucmabuzi unaoangazia hali inayoweza kujitokeza kufuatia sheria hii mpya na anaonesha mazingira ambayo chama cha upinzani kinachoonesha uhai kinaweza kujikuta kikibanwa 
-So most of your ways of convincing voters are gone
-What do you do if youre an opp party Go back to the drawing board and come up with new strategies right Well this bill introduces unprecedented oversight powers to the Parties Registrar that make that v difficult 5n
-Rachael McLellan RachaelMcLellan January 29 2019
-Hawawezi tena kufanya mikutano kuwashawishi wapiga kura wamewekewa mazingira ya kufungwa jela kwa kufanya mikutano na waandishi wa habari
-Muswada huu unazuia vyama vya siasa kutoa elimu ya uraia na shughuli za kuwajengea wananchi uwezo shughuli ambazo ni muhimu kwa vyama vya siasa
-Inawalazimisha kupata idhini ya serikali ili kupokea misaada ya nje
 Kwa hiyo njia za kuwashawishi wapiga kura wenu zimezibwa
-Unafanyaje unapokuwa mpinzani Nenda ubaoni na uje na mbinu mpya sivyo Muswada huu unampa nguvu kubwa zisizodhibitiwa Msajili wa Vyama vya Siasa inayofanya ubunifu huo uwe mgumu 
+Unafanyaje unapokuwa mpinzani
+Nenda ubaoni na uje na mbinu mpya sivyo Muswada huu unampa nguvu kubwa zisizodhibitiwa Msajili wa Vyama vya Siasa inayofanya ubunifu huo uwe mgumu 
 Iwe ni ushirikina au la  wale wanaokosoa mwelekeo wa Tanzania kuwa nchi ya kiimla walitafsiri vibaya uwepo wa bundi bungeni hasa iliposhindikana kumfukuza
-
 Bundi alibaki
 Spika wa Bunge Job Ndugai alijaribu kuondoa imani hiyo kwa maelezo chanya 
 Waheshimiwa Wabunge tumekuwa tukimwona bundi hapa bungeni tangu asubuhi lakini kwa mila ya watu wa Dodoma bundi anayeonekana mchana hawezi kuwa na madhara yoyote
 Maana yake ni kwamba tusiogope uwepo wa bundi huyu
-
 Kwa wakosoaji hata hivyo hakuna maelezo mengine chanya ya sheria hiyo mpya
 
 Makala 85
 Picha ya Bendera ya Upinde wa Mvua kutoka kwa Jaime Pérez CC BYNC 2
-0
 Eneza Upendo na sio Chuki ni kauli mbiu iliyosikika wakati wa maandamano ya kwanza ya wapenzi wa jinsia moja nchini Guyana ambayo yalifanyika juni 3 2018
 Ni tamasha ambalo liliwapa fursa jumuiya ya wapenzi wa jinsia moja kutoka nje ya nguo iliyowaficha na kudai haki zao ya kuona fahari ya vile walivvyo na wale waliochagua kuwapenda
 Eneza Upendo na sio chuki
 Hongereni kwa maadhimisho ya kwanza kabisa ya FahariYenu Guyana UpendoNiUpendo  pic
-twitter
-comlEFxgf5Kja
-Shomeo SassBaller June 4 2018
 Shamrashamra zilianzia Viwanja vya Mapinduzi katika mji wa Georgetown na washiriki walikuwa wamevaa nguo zenye rangi za upinde wa mvua na walikuwa wakicheza mziki wa soka wakati wakiandamana kwa mshikamano kupinga chuki na unyanyapaa
-Guyana_Pride
 Muda wa fahari katika kusherehekea uwepo wa wananchi wenye kushiriki mapenzi ya jinsia moja nchini Guyana pic
-twitter
-comS5PdblZn7b
-Guyana Trans United trans_guyana June 3 2018
 Mapenzi kinyume na maumbile ambapo mara nyingi hufahamika kama umende katika nchi nyingi za kiCarribean bado ni haramu nchini Guyana pamoja na ushindi mkubwa katika shauri la Caleb Orozco huko Belize mwaka 2016 na hivi karibuni katika kesi ya Jason Jones huko Trinidad na Tobago ambapo kesi zote inadhaniwa kuwa ni uhalifu dhidi ya katiba kufanya ngono kinyume na maumbile
 Sio kuwa kesi zote hazikuwa na utata and mrejesho hasi ukanda mzima  na vivyo hivyo na maandamano ya mashoga huko Guyana
 Raia wa mitandaoni walipiga kelele za kupinga
@@ -3733,8 +3665,8 @@ isupportthelbgtqcommunity
 Pia kulikuwa na utetezi huko Twitter
 Moja na kusonga mbele Guyana ni nchi pekee ya Amerika Kusini ambapo ushoga bado ni haramu
 Ilifanya maandamano yake ya kwanza ya Jumuiya ya Mashoga
-Tuamini kuwa kutokuwahukumu ndilo litakalofuatia httpst
-coKinMuV8YK6 Hongera kwa SASODGuyana GuyanaTrans  Chama cha Upinde wa Mvua Guyana
+Tuamini kuwa kutokuwahukumu ndilo litakalofuatia
+Hongera kwa SASODGuyana GuyanaTrans  Chama cha Upinde wa Mvua Guyana
 MSHIKAMANO
 Peter Tatchell PeterTatchell June 5 2018
 Maandamano hayo ni moja kati ya mifumo ya jamii kupigania haki sawa
@@ -3744,13 +3676,14 @@ Katika mkutano siku moja kabla ya maandamano ya mashoga wajumbe wa Jumuiya ya Wa
 Jumuiya ya Kikristo ambayo inachukua asilimia 60 ya watu wa Guyana na ukichukulia mamlaka nyingine kikanda inashawishi kuibadilisha sheria iliyopitwa na wakati ya ushoga
 Jumuiya hiyo ilitishia hata kuyazuia maandamano hayo lakini kuliwepo na polisi wa kutosha hivyo hakuna tukio lililoripotiwa
 Simpson aliyehudhuria mkutano kama mwakilishi wa jumuiya ya mashoga alionesha kuwa wananchi mashoga bado wanasubiri ahadi ya uchaguzi wa mwaka 2015 ambapo waliahidiwa mabadiliko ya sheria
-Tu wapiga kura na raia walipa kodi kama raia wengineHatudai kitu chochote maalum Tunastahili kufurahia ulinzi dhidi ya unyanyapaa
+Tu wapiga kura na raia walipa kodi kama raia wengine
+Hatudai kitu chochote maalum
+Tunastahili kufurahia ulinzi dhidi ya unyanyapaa
 
 Makala 86
 Maafisa wa polisi wa Naijeria waliomaliza mafunzo yao mwaka 2015
 Picha na AMISOM imeachiliwa kwa matumizi ya umma
-Daniel Elombah ni mchapishaji wa  elombah
-com
+Daniel Elombah ni mchapishaji wa  elombah.com
 Kulingana na Premium Times akina Elombah walikamatwa nyumbani kwao Nnewi huko kusini Mashariki mwa Naijeria
 Daniel Elombah alikamatwa mnamo saa 1030 alfajiri nyumbani kwake huko Nnewi siku ya mwaka mpya kulingana na taarifa za kaka yake Paul
 Alisema walipokea taarifa kutoka kwa maafisa waliomkamata kaka yake kuwa alikamatwa kwa sababu ya makala ya hivi karibuni ambayo wanadhani ilimzungumzia vibaya Kamanda Mkuu wa Polisi Inspekta Ibrahim Idris
@@ -3771,9 +3704,7 @@ Mamlaka za Nigeria lazima zimuachilie huru Timothy Elombah haraka sana na kutupi
 Polisi  hawawezi kuvamia nyumba za wanahabari na kuwakamata na kuwaweka kizuizini kwa sababu tu Ofisa hakupenda kitu kilichoandikwa kwenye gazeti
 Kwanza haioneshi wazi kama mtu aliyeko kizuizini ana lolote la kufanya na makala wanayodhani ni ya kumkashifu Inspekta wa jeshi
 Daniel Elombah amemshitaki Inspekta Mkuu wa polisi wa Nigeria katika Mahakama kuu huko Abuja kwa kuvunja haki zake msingi
-Anataka afidiwe Naira bilioni 2 karibu dola milioni 5
-5 kwa kuwekwa kizuzini kinyume cha sheria
-
+Anataka afidiwe Naira bilioni 2 karibu dola milioni 5.5 kwa kuwekwa kizuzini kinyume cha sheria
 Vile vile mawakili watatu wanaotoka Uingereza walitoa hoja kwa Mbunge wa Uingereza Lyn Brown Waziri Mkuu Theresa May na Waziri wa Mambo ya Nje Boris Johnson kuhusu kukamatwa kwa Daniel Elombah kinyume na sheria
 
 Makala 87
@@ -3783,12 +3714,9 @@ CC ATNC
 Tetesi   juu ya kusambaa kwa waandamanaji wa kifaransa waliovalia fulana ya njano katika nchi nyingine za Ulaya ilivuma sana katika mitandao ya kijamii nchini China kabla ya sikukuu ya Krismas
 Habari hiyo ilitokea baada ya Rais wa Ufaransa Emmanuel Macron kutangaza makubaliano kadhaa  akihutubia juu ya malalamiko ya waandamanaji juu ya sera za uchumi
 Wakati Macron akitegemea utulivu na amani kurejea tetesi iliyotengenezwa china ilitabiri tofauti
-
-Matoleo mengi ya habari yalisambaa kupitia baadhi akaunti ndogo za kublogu kwenye Weibo na wechat zikinukuu vyanzo kutoka bidhaa ya muuza jumla katika Yiwumji ambao unajulikana kama mji na kituo cha mauzo ya jumla ambaye alieleza kuwa akiba yao yote ya fulana za njano imeuzwa nchi za nje na mahitaji zaidi ya bidhaa hiyo yanatoka katika nchi za Ulaya kama vile Swedeni mji wa Prague Uswisi n
-k
+Matoleo mengi ya habari yalisambaa kupitia baadhi akaunti ndogo za kublogu kwenye Weibo na wechat zikinukuu vyanzo kutoka bidhaa ya muuza jumla katika Yiwumji ambao unajulikana kama mji na kituo cha mauzo ya jumla ambaye alieleza kuwa akiba yao yote ya fulana za njano imeuzwa nchi za nje na mahitaji zaidi ya bidhaa hiyo yanatoka katika nchi za Ulaya kama vile Swedeni mji wa Prague Uswisi n.k
 Habari hiyo ina maana kuwa waandamanaji wenye fulana za njano walikuwa wanasambaa katika bara zima
 Hapa kuna toleo moja la habari  ambalo lilisambaa kupitia Weibo na WeChat
-义乌指数中国义乌的服装调研报告指出现在来自欧洲的黄背心订单继续暴涨现在黄背心制作工作已经在加班加点地进行更有不少跨境电商卖家将此视为一次绝佳的销售机会不少网友说根据义乌商品市场的大数据可以预测未来黄背心运动的的浪潮还有可能蔓延到瑞典捷克瑞士西班牙等国早前就有外媒发文指出义乌具有一股神秘力量可以通过市场行情来预测国际政治大事件的走向在义乌接受的海外订单数量更被视为民意的风向标可以惊人地对将要发生的事件做出准确预测早在2016年美国大选的时候义乌制造商就通过美国订购的旗帜和衣衫的数量提前5个月预测出特朗普将会成为总统据了解目前义乌的一些纺织厂已经开始陆续接受到美国订单开始生产特朗普2020年竞选时的旗帜和支持者所穿的衬衫由于订单量已经比民主党竞选所开出的需求高出数倍因此也有人通过这点来预测特朗普很有可能连任美国总统这是中国制造的大数据威力
 kiwango cha mauzo ya Yiwu  taarifa ya utafiti wa Yiwu kuhusu mavazi ilionesha kwamba mahitaji kutoka Ulaya ya fulana za najno yameendelea kuongezeka
 Watengenezaji walifanya kazi hadi masaa ya ziada ili kukabili mahitaji na wafanyabiashara wa nje wa jukwaa la kielekitroniki wanauona mwenendo huo kama ni fursa nzuri ya mauzo
 Raia wa  mtandaoni nchini china wanaamini kwamba kwa kuzingatia kiwango cha mauzo ya bidhaa ya Yiwu na taarifa yake kubwa fulana za njano zinaweza kusambaa Sweden Jamhuri ya Cheksolovakia Uswisi na Hispania
@@ -3807,17 +3735,13 @@ Katika kipindi cha uchaguzi Marekani mwaka 2016 kiwango cha mauzo  ya Yiwu kilik
 Baada ya uchaguzi hata vyombo vya habari vya serikali vilitaarifu  kwamba takwimu za mahitaji ya bidhaa kutoka Yiwu na Alibaba yalikuwa ni nguvu ya kutabiria na raia wengi mtandaoni wa nchi ya china wanaamini kwamba kiwango cha mauzo ya Yiwu kilitabiri sahihi kabisa juu ya uchaguzi wa Marekani
 Baadhi ya waangalizi wa vyombo vya habari waliharakia kusema kuwa tafsiri hiyo ni tatizo kwa kuwa Clinton alipata kura zaidi ya Trump lakini uchambuzi huo ulipuuzwa
 Sasa  Global Times ambacho ni chombo cha habari cha serikali kimethibitisha  habari iliyopo mtandaoni na kuripoti kuwa kuna akiba kubwa ya fulana za njano katika mji wa kibiashara na ukubwa wa mauzo yake katika miezi ya hivi karibuni sio mkubwa kama miezi ya mwaka jana
-zithe
 Hata hivyo taarifa ya Global Times haijazuia chochote juu ya  kusambaa kwa taarifa ya kiwango cha mauzo ya Yiwu
 Kiukweli  maoni mapya yameibuka  baada ya sikukuu ya Krismas yanayothibitisha kiwango cha mauzo ya Yiwu kuwa na nguvu ya kutabiri
 Habari iliyochapishwa katika majukwaa ya mitandao mingi ya kijamii yanakiri kuwepo na makosa ya kiasi cha mauzo ya fulana za njano lakini inaendelea kusistiza kwamba kiwango cha mauzo ya Yiwu imefanikiwa kutabiri matokeo ya uchaguzi wa Urais wa Marekani mwaka 2016 na kombe la dunia la mwaka 2018
 Mwandishi alirudia hotuba ya tarehe 18 Desemba ya Rais wa china Xi Jinping kwenye sikukuu ya kumbukumbu ya 40 juu ya uwazi na mageuzi ya nchi ambapo aliitaja Yiwu kama mfano wa mageuzi hayo
 Hotuba hiyo ilihitimisha kuwa uwezo wa kutabiri wa kiwango cha mauzo ya Yiwu huakisi historia mpya ya mageuzi ya nchi
-实际上义乌之所以能够一次次精准预测国际重大事件的走向究其原因是义乌人通过几十年的奋力拼搏将小商品产业在世界范围内做的了独树一帜傲视群雄成为世界多国所依赖的小商品产地
-在改革开放的历史浪潮中就是无数个义乌这样曾经名不见经传的无名小城在国家政策的鼓励扶持下刻苦攻坚努力拼搏敢为天下先使中国在短短40年里实现了史无前例的惊天巨变
 Sababu ya Yiwu kuweza kutabiri kwa usahihi mwelekeo wa mambo ya dunia mara kwa mara yanatookana na mchango wa watu wa Yiwu miongo michache iliyopita
 Wamepitia njia tofauti katika masoko ya bidhaa duniani na kuanzisha mji wenye hadhi ya juu kama mji wa viwanda vya kutengeneza mahitaji ya kila siku duniani
-
 Sera ya uwazi na mageuzi imesaidia miji mingi kama Yiwu kuwa na hatua na kupata mafanikio
 Jitihada zao zimeleta mageuzi makubwa nchini China katika miaka 40 tu
 Huu mwingiliano wa uwezo wa kiwango cha mauzo ya Yiwu kutabiri na mageuzi ya kiuchumi nchini China umefanya hadithi ya asili ya Yiwu kuwa ngumu kubadilishwa
@@ -3829,7 +3753,6 @@ Imetumika kwa ruhusa
 Pamoja na ukosefu mkubwa wa rasimali  unaosababishwa na vita nchini Yemeni familia nyingi zinalazimika kuondoa watoto wao shuleni
 Mara nyingi wasichana wanapelekwa kuolewa  wakiwa na umri mdogo wa miaka13
 Lakini shule moja katika mji mkuu Sanaa ilipata njia kama tiba ya tatizo hilo
-
 Shirika lilisilo la kiserikali Solidarios sin Fronteras lenye makao yake Hispania na Yemeni kwa kiasi kikubwa linaendeshwa na wasamalia na hufadhiriwa na michango ya watu   wengine wakichangia kiasi kidogo kama euro moja kwa mwezi shirika hilo limeanza kutoa kifungua kinywa kwenye shule za wasichana ambao wana umri wa miaka kuanzia sita hadi kumi na sita
 Kabla ya mradi huo kuanza moja ya tano ya wasichana hao wamekuwa hawahudhurii masomo
 Kidogo kidogo wasichana hao walianza kurudi shuleni na tangu septemba 2018 wanafunzi wote 525 wanaendelea kuhudhuria madasani
@@ -3837,13 +3760,11 @@ Mwanzilishi wa Salidarios alisema
 Nimeongea  kupitia Whatsapp na Eva ambaye miaka mingi iliyopita nilikutana naye katika mji wa Barcelona na Faten ambaye yupo Yemeni hawa niwaanzilishi wawili wa shirika hilo
 Waliniambia namna mradi wao wa kifungua kinywa kwa ajili ya kulinda na kuelimisha  ulivyoanza
 Pia waliniomba kutotaja majina yao kamili na jina la shule kwa sababu za usalama
-
 Mwezi Machi 2018  mmoja wa walimu wa shule hiyo alimwendea Faten na kumweleza juu ya mwanafunzi wa kike ambaye kipindi cha mchana alikuwa akionekana kudhoofika na kuchoka sana
 Ghafla aliacha kuhudhuria shuleni
 Hakuwa msichana wa kwanza kuacha shule ingawa alikuwa bado mdogo sana
 Mwalimu huyo aliongea na familia ya yule binti
 Familia ile ilikuwa haina fedha na ilikuwa imepata ofa ya kumuoza binti yao
-
 Wakati akiongea na Faten Mwalimu yule alionesha matumaini juu ya utoaji wa chakula kila siku shuleni unaweza kumotisha familia kuwaacha binti zao kuendelea na shule
 Faten anasema hapo ndipo wazo lilipoibuka 
 Wengi wao wa wasichana hawa ni wa wafanyakazi wa kiwanda cha nguo ambacho kiliharibiwa kabisa na mabomu
@@ -3857,9 +3778,9 @@ Solidarios sin Fronteras ilipata ushauri kutoka kwa mtaalamu wa watoto juu ya na
 Faten hununua bidha za vyakula kila asubuhi na wanandoa hutumia jiko lake kuandaa kujaza kwenye vifungashio na kusafirisha chakula
 Wakati wa mapumziko ya dakika 45 kazini huenda haraka shuleni kuwasaidia walimu kugawa chakula
 Muda mwingine pia ndugu zake huja kumsaidia
-
 Huu moyo wa kufanya mwenyewe umesaidia taasisi kuendesha programu nyingine tatu
-Pamoja na Msaada wa chakula kwa familia  husambaza chakula kwa familia zilizo katika mazingira magumu katika mji wa Sanaa Aden Amran Raydah Hodeidah Al Dorihimi na familia waliokimbia makazi yao kutoka TaizMaji kwa ajili ya Yameni  hushughulikia hifadhi ya maji katika kambi za Amrani na Raydah kwa ya wakimbizi wa ndani na Kujenga tena Socotra hutoa simenti kwa ajili ya kujenga tena nyumba na kuchimba visima katika kisiwa cha Socotra kilichoharibiwa na kimbunga mwaka 2015
+Pamoja na Msaada wa chakula kwa familia  husambaza chakula kwa familia zilizo katika mazingira magumu katika mji wa Sanaa Aden Amran Raydah Hodeidah Al Dorihimi na familia waliokimbia makazi yao kutoka Taiz
+Maji kwa ajili ya Yameni  hushughulikia hifadhi ya maji katika kambi za Amrani na Raydah kwa ya wakimbizi wa ndani na Kujenga tena Socotra hutoa simenti kwa ajili ya kujenga tena nyumba na kuchimba visima katika kisiwa cha Socotra kilichoharibiwa na kimbunga mwaka 2015
 Kuna nini kama tukifanya sisi wenyewe
 Kifungua kinywa kilichoandaliwa kusambazwa shuleni kila siku asubuhi
 Picha ilipigwa na Faten kwa ajili ya Solidarios sin Fronteras Mshikamano usiokuwa na mipaka
@@ -3878,6 +3799,5 @@ Eva na Noelia ambao huishi Hispania hushughulikia upatikanaji wa vyanzo vya fedh
 Watu wengi huchangia kupitia mtandaoni na mfuko wa pamoja wa SSF kila mradi hujitegemea
 Faten anahusika na kuratibu huduma zinazotolewa shuleni  mara nyingi nyumbani kwake
 Wote watatu hutengeneza timu ya watendaji wakuu na hufanya shughuli zao katika taasisi isiyo ya kiserikali pamoja na kazi zao binafsi
-
 Mara kwa mara huwa  wanatumiana picha  video na zikiwa na taarifa mpya kwenye kurasa za mitandao ya kijamii juu ya SSF
 Pia husambaza maudhui yanayopanua uelewa  kuhusu vita katika nchi ya Yemen hasa hasa jukumu la Hispania  na nchi nyingine ambazo husambaza silaha  zinazosababisha migogoro katika nchi hiyo
