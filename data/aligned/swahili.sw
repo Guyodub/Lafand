@@ -18,7 +18,6 @@ Onyesho la filamu ya Angola linakuja mwezi mmoja baada ya filamu ya kwanza ya Ms
 
 Makala 3
 Picha Rasmi ya Rais wa Jamhuri ya Shirikisho la Naijeria Rais Muhammadu Buhari iliyopigwa na Bayo Omoboriowo via Wikimedia Commons Mei 29 2015 CC BYSA 4
-0
 Serikali ya Naijeria imetangaza siku ya Ijumaa kwamba inaufungia mtandao wa Twita nchini humo siku kadhaa baada ya mtandao huo kufuta twiti hatari iliyoandikwa na Rais wa Naijeria Muhammadu Buhari iliyodai kwamba serikali itatumia nguvu dhidi ya kabila la Igbo
 Pamoja na kuondolewa kwa twiti hiyo ujumbe uliendea kusambaa kwenye mitandao ya kijamii hali iliyokumbushia maumivu ya vita vya wenyewe kwa wenyewe vilivyopoteza maisha ya watu zaidi ya milioni moja
 Lakini twiti hiyo ilichochea harakati kwenye mitandao ya kijamii kusimama na Wanaijeria wa kabila la Igbo
@@ -45,8 +44,7 @@ Zaidi ya saa 30 baada ya Twita kufuta twiti ya rais wa Naijeria MBuhari kwa kosa
 Kwa kuingia mtandao kwa kutumia akaunti tofauti kupitia vifaa tofauti DigiAfricaLab iliweza kuona zaidi ya twiti 17000 zilizonukuliwa na watumiaji kabla kampuni hiyo ya mtandao wa kijamii haijaifuta twiti hiyo kutoka kwenye akaunti ya MBuhari na NGRPresident zote zikiwa ni anuani za twita zilizohakikiwa zinazotumika na Rais Buhari
 Zaidi ya hayo DigiAfricaLab iliweza kubofya na kukuza twiti ya Rais Buhari iliypfutwa
 Twiti zilizofutwa zinaweza kuendelea kuonekana kwa watumiaji wa mtandao wa twita kwa sababu zana inayotumiwa na Twita API hutegemea zana za mitandao mingine inayounganisha kazi data za Twita kwa kupitia URL
-Sababu nyingine kwa mujibu wa  J
-D
+Sababu nyingine kwa mujibu wa  J.D
 Biersdorfer wa New York Times ni kwamba twiti zilizofutwa zinaweza kuwa bado zinapatikana na hivyo kuonekana kwenye matokeo ya utafutaji mtandaoni  mpaka tovuti ihuishwe na nakala mpya ya twiti kwenye ukurasa mkuu wa akaunti husika
 Mwitikio wa alama habari ya IAmIgboToo
 Twiti ya vitisho ya Rais Buhari iliibua mjadala mkali kutoka kwa Wanaijeria wanaotumua mtandao wa Twita mjadala uliogonga vichwa vya mtandao huo kwa alama habari ya IAmIgboToo kuonesha masikitiko yao
@@ -71,8 +69,7 @@ Kama hawaonekani kuwa binadamu ni rahisi kuhalalisha matendo ya vurugu dhidi yao
 Kuteza utu kwa mujibu wa Ozurumba kunafanya iwe rahisi kuondoa hali ya kuguswa kimaadili na vitendo vya mauaji ubaguzi au utesaji wa watu kwa sababu tu ya makabila yao
 
 Makala 4
-Picha na makeitkenya CC PDM 1
-0
+Picha na makeitkenya CC PDM 1.0
 Mnamo Machi 27 mjadala mkali uliibuka kwenye mitandao ya kijamii ya Kenya juu ya matamshi yaliyotolewa hewani na watangazaji wa redio tatu wakati wa kipindi cha asubuhi Breakfast Show
 Watangazaji walikuwa wakijadili kesi inayoendelea ya kortini inayomshirikisha Eunice Wangari mwanamke ambaye alisukumwa nje ya jengo la ghorofa 12 na mwanamume ambaye alikuwa na mahusiano naye
 Kwenye mtandao wa Twitter Wakenya wenye hasira waliwaghadhabisha watangazaji Shaffie Weru Joseph Munoru na Neville Muysa kwa matamshi yao juu ya kesi ya madai ya unyanyasaji wa kijinsia na kuwaita watangazaji hao wahangawakulaumu
@@ -128,8 +125,7 @@ Inaonekana kwamba kwa wanawake kushiriki mazungumzo ya maana mkondoni juu ya mad
 
 Makala 5
 Bendera yenye rangi za upinde wa mvua
-Picha ya Marco Verch  kwenye mtandao wa Flickr CC BY 2
-0
+Picha ya Marco Verch  kwenye mtandao wa Flickr CC BY 2.0
 Nchi za Caribiani moja baada ya nyingine zimekuwa zikirekebisha vitabu vyake vya sheria kuakisi usawa zaidi kwa watu wenye kupenda mapenzi ya jinsia moja kwa kuondoa vipengele vya enzi za ukoloni vilivyokuwa vinazuia tabia ya kuingiliana kinyume na maumbile
 Mwaka 2016 ilianza nchi ya Belize
 Miaka miwili baadae Trinidad na Tobago ikafuatia ingawa hatua yake hiyo haijatafsirika kwenye mabadiliko ya sheria
@@ -208,8 +204,7 @@ Katika mazingira ya ongezeko kubwa la matumizi ya simu janja  ni dhahiri kuwa sh
 Makala 7
 Taarifa na uelewa ni muhimu katika kujikinga na maambukizi ya UVIKO19
 Picha inawaonesha wafanyakazi wa afya nchini Kenya wakielimisha jamii kuhusu maambukizi ya UVIKO19
-Picha Victoria Nthenge na Trocaire ina leseni ya CC BY 2
-0
+Picha Victoria Nthenge na Trocaire ina leseni ya CC BY 2.0
 Kuanza kutolewa kwa chanjo ya UVIKO19 nchini Kenya kumegubikwa na tuhuma za vitendo vya rushwa upendeleo na ufisadi ambavyo vimewaacha wananchi wengi masikini na wazee wakisubiri kwenye mistari mirefu nje ya hospitali za umma wakati huu ambao nchi hiyo inakabiliwa na mlipuko wa tatu wa maambukizi na vifo vinavyotokana na UVIKO19
 Wakati huo huo mamia ya Wakenya wanalipa kiasi cha hadi dola 100 ili waweze kuitwa mapema kama ilivyoelezwa kwenye akaunti kadhaa za Wakenya mtandaoni sambamba na vyombo vya habari vya Kenya na vile vya kimataifa
 Mapema mwezi Machi Kenya ilinunua zaidi ya dozi milioni 1 za chanjo ya OxfordAstraZeneca kupitia mpango wa Upatikanaji wa Chanjo ya UVIKO19 Duniani inayoratibiwa na Shirika la Afya Duniani kupitia utaratibu unaoitwa COVAX
@@ -416,8 +411,7 @@ Kununua kitabu hiki kupitia kiungo hiki kutasaidia kuichangia Global Voices
 
 Makala 12
 Kijana akitazama simu yake ya kiganjani nchini Tanzania Desemba 9 2018
-Picha na Riaz Jahanpour kwa mradi wa USAID  Mawasiliano ya Maendeleo ya kiDijitali kupitia mtandao wa Flickr CC BY 2
-0
+Picha na Riaz Jahanpour kwa mradi wa USAID  Mawasiliano ya Maendeleo ya kiDijitali kupitia mtandao wa Flickr CC BY 2.0
 Kirusi cha kwanza cha Korona kiliripotiwa nchini Tanzania katikati ya mwezi Machi 2020
 Hata hivyo baada ya takwimu kuendelea kupanda na kufikia wagonjwa 509 na vifo 21 mwishoni mwa mwezi Aprili serikali ya Tanzania ilitangaza kuwa hakuna hata mgonjwa mmoja wa UVIKO19 mwezi Juni
 Mwezi huo huo Kassim Majaliwa Waziri mkuu wa nchi hiyo aliliambia bunge kwamba kulikuwa na wagonjwa 66 tu  nchini kote lakini hakutoa ufafanuzi zaidi
@@ -552,8 +546,7 @@ Changia sasa
 
 Makala 16
 Wasafiri wakivuka mpaka kati ya Ghana na Togo Afrika Magharibi mnamo Januari 25 2016
-Picha ya Enock4seth kupitia Wikimedia Commons CC BYSA 4
-0
+Picha ya Enock4seth kupitia Wikimedia Commons CC BYSA 4.0
 Viongozi wa Afrika wamechukua uamuzi wa haraka kukabiliana na UVIKO19
 Kituo cha Afrika cha Kudhibiti Magonjwa ACDC kiliunda kikosi kazi ya UVIKO19 Februari 5  kabla ya bara hili halijashuhudia hata mgonjwa mmoja
 Leo hii Afrika ambalo kwa sasa ndilo eneo lililoathirika kidogo sana duniani likiwa na wangonjwa wapato 1293048 waliothibitishwa wenye UVIKO19 na kinachovutia zaidi ni wagonjwa 1031905 wakiripoti kupona kwa mujibu wa Afrika CDCP
@@ -637,8 +630,7 @@ Hakuna ambayo imepita awamu ya 3 ya majaribio kwa sasa
 
 Makala 18
 Maandamano dhidi ya kifo cha daktari Silvio Dala huko Luanda
-Picha na Simão Hossi CCBY 3
-0
+Picha na Simão Hossi CCBY 3.0
 Mamia ya Waangola waliingia mitaani kuandamana hapo Septemba 12 huko Luanda Benguela na miji mingine 15 wakipinga ukatili wa polisi
 Maandamano hayo yalianza baada ya habari za kushtusha kutolewa kuhusu kifo cha daktari Silvio Dala mwenye miaka 35 aliyepoteza maisha Septemba 1 akiwa chini ya uangalizi wa polisi
 Kulingana na taarifa za mamlaka Dala aliondoka kwa gari yake kutoka hospitali ya  Watoto ya David Bernardino huko Luanda ambapo ndiko hufanya kazi kama Mkurugenzi wa kliniki na alisimamishwa na polisi kwa sababu hakuvaa barakoa
@@ -656,17 +648,14 @@ Mabango yaliyotumiwa na waandamanaji katika maeneo mbalimbali ya mji wa Luanda y
 Pia kuna waliomtaka waziri wa Mambo ya Ndani Eugénio Laborinho ajiuzulu
 Maandamano yaliaandaliwa na Chama cha Madaktari wakishirikiana na mashirika na Taasisi za kiraia
 Maandamano dhidi ya kifo cha daktari Silvio Dala huko Luanda
-Picha na Simão Hossi CCBY 3
-0
+Picha na Simão Hossi CCBY 3.0
 Maandamano dhidi ya kifo cha daktari Silvio Dala hiko  Luanda
-Picha na  Simão Hossi CCBY 3
-0
+Picha na  Simão Hossi CCBY 3.0
 Tangu kuanza kwa janga la korona nchini Angola vimeripotiwa visa kadhaa vya polisi kutumia nguvu kubwa wakati wakifanya ukaguzi  na wakati mwingine husababisha vifo vya raia
 Akiongea na  Lusa mwanamuziki wa kufokafoka  Brigadeiro 10 Pacotes ambaye jina lake halisi ni  Bruno Santos alimtaka Lugarinho ajiuzulu na pia akiitaka shule ya polisi iboreshe muundo wake wa mafunzo
 Jeshi la polisi ni taasisi ambayo inapaswa kuwapa wananchi ujasiri lakini leo wananchi wanakosa ujasiri yaani wanaogopa wanapokutana na polisi alimalizia kusema
 Maandamano dhidi ya kifo cha daktari Silvio Dala huko  Luanda
-Picha na  Simão Hossi CCBY 3
-0
+Picha na  Simão Hossi CCBY 3.0
 Wengi waliyahamishia maandamano haya katika kurasa za Facebook na WhatsApp kupinga tukio hilo
 Mwanaharakati na mwanazuoni  Nuno Álvaro Dala aliandika huko  Facebook
 POLISI WA NCHI HII WANAHUSIKA NA KIFO CHA DAKTARI SILVIO DALA
@@ -683,8 +672,7 @@ Ale Alejandro AlejandroCutieG September 7 2020
 Wakati  George Floyd alipouawa hao wanaojiita wahamasishaji wa kiAngola mitandaoni walionesha kuunga mkono mchakato wa Maisha ya Weusi Yana Thamani lakini katika kifo cha daktari wa kiAngola Silvio Dala hawa ndugu hawafanyi chochote kuhusu janga hili
 
 Makala 19
-Hachalu Hundessa akifanyiwa mahojiano na OMN kupitia Firaabeek Entertainment  CC BY 3
-0
+Hachalu Hundessa akifanyiwa mahojiano na OMN kupitia Firaabeek Entertainment  CC BY 3.0
 Dondoo ya Mhariri Huu ni uchambuzi wenye sehemu mbili juu ya Hachalu Hundessa mwanamuziki maarufu wa Oromo ambaye mauaji yake yaliamsha vurugu za itikadi za kidini na kikabila kwa sababu ya taarifa zisizo sahihi zilizotolewa katika mitandao ya kijamii
 Soma Sehemu ya pili hapa  
 Mwanamuziki mkubwa wa Kiethopia Hachalu Hundessa alipata umaarufu kwa kutumia ubunifu na kipaji chake kuutambulisha umma kuhusu watu wa Oromo
@@ -834,8 +822,7 @@ Kidogo tunachoweza kufanya ni kuuliza yuko wapi Dadiyata na ni kwa nini serikali
 
 Makala 22
 Wanafunzi katika Jimbo la Kaduna Nigeria
-Picha na  Jeremy Weate Januari 15 2010 kupitia  Flickr  CC BY 2
-0
+Picha na  Jeremy Weate Januari 15 2010 kupitia  Flickr  CC BY 2.0
 Maharamia wakiwa na silaha walivamia shule ya sekondari huko Kaduna Kaskazini Magharibi mwa Nigeria hapo Agosti 24 na kumuua mtu mmoja na kuwateka wanafunzi wanne na mwalimu kiliripoti chanzo cha habari za mitandaoni SaharaReporters
 Watu hao wakiwa na silaha walifika na kushambulia kijiji cha DambaKasaya katika serikali ya mtaa wa Chikun jimbo la Kaduna mnamo saa 1
 45 asubuhi wakiwa kwenye pikipiki na  iliripotiwa kuwa walimuua Benjamin Auta ambaye ni mkulima kulingana na taarifa ya gazeti la mtandaoni la Premium Times
@@ -1227,8 +1214,7 @@ Waandishi wa habari wanawake wanaubeba mzigo maradufu wa dhuluma inayotokana na 
 Vitisho hivi vinavyoendelea vimesababisha waandishi wa habari wanawake kujiondoa kwenye  mijadala ya masuala ya umma  na kuacha taaluma ya uandishi wa habari kutawaliwa zaidi na wanaume
 Soma Zaidi Gharama ya kuwa mwenye maoni tofauti Kitendawili cha mitandao ya kijamii nchini Uganda
 Joy Doreen Biira mwandishi wa habari
-Picha na Wazabanga kupitia Wikimedia Commons CC BY 3
-0
+Picha na Wazabanga kupitia Wikimedia Commons CC BY 3.0
 Mnamo Novemba 2016 mwandishi wa habari wa Uganda Joy Doreen Biira aliyekuwa akifanya kazi katika televisheni binafsi ya Kenya Television Network KTN nchini Kenya alirejea nyumbani Uganda kwa ajili ya sherehe ya kitamaduni
 Wakati Biira akiwa kwao vikosi vya usalama vya Uganda vilipambana na walinzi wa ufalme wa Rwenzururu katika mkoa wa Rwenzori magharibi mwa Uganda na ikulu yao ikateketezwa kwa moto
 Mapambano hayo ya kufyatuliana risasi yalisababisha vifo vya watu 62 wakiwemo polisi 16
@@ -1302,8 +1288,7 @@ Mradi huu umefadhiliwa na Mfuko wa Haki za Kidijitali wa Afrika wa shirika la Us
 Makala 31
 Mizizi ya miti iliyojikita kwenye ukuta wa karne ya 15 uliopo kisiwa cha Kilwa Kisiwani Tanzania
 Mnamo mwaka wa 1981 magofu ya sultani hodari wa Kiswahili kisiwani humo yalitangazwa kuwa eneo la UNESCO la urithi wa dunia
-Picha na David Stanley Januari 1 2017 CC BY 2
-0
+Picha na David Stanley Januari 1 2017 CC BY 2.0
 Kidokezo cha mhariri Makala haya ya kibinafsi yaliandikwa kufuatia kampeni ya Twitter iliyoandaliwa na Global Voices Ukanda wa Afrika Kusini mwa Jangwa la Sahara kwa ushirikiano wa Mradi wa Rising Voices pale kila wiki mwanaharakati tofauti wa lugha alishiriki maoni yake kuhusu muingiliano wa haki za kidijitali na Lugha za Kiafrika kama sehemu ya mradi Matriki utambulisho Tishio la ukandamizaji wa uhuru wa kujieleza mtandaoni barani Afrika
 Kulingana na shirika la Umoja wa Mataifa la Elimu Sayansi na Utamaduni UNESCO utofauti wa lugha na utamaduni una umuhimu kimkakati kwa watu ulimwenguni kote katika juhudi za kuimarisha umoja na mshikamano wa jamii
 Utofauti huu wa lugha na utamaduni ulishinikiza kongamano kuu la UNESCO kutangaza Siku ya Kimataifa ya Lugha ya Mama IMLD mnamo Novemba 1999 siku inayokumbukuwa mnamo Februari 21 kila mwaka
@@ -1324,8 +1309,7 @@ Mnamo 2018 Afrika Kusini nchi inayojivunia lugha rasmi 11 ilirasimisha Kiswahili
 Mnamo mwaka wa 2019 Jumuiya ya Maendeleo Kusini mwa Afrika SADC ilipitisha Kiswahili kama lugha rasmi ya nne ya Jumuiya hiyo
 Muonekano finyu wa Kiswahili Mtandaoni
 Karibu Nairobi
-Picha na Rachel Strohm Septemba 20 2019 CC BYND 2
-0
+Picha na Rachel Strohm Septemba 20 2019 CC BYND 2.0
 Licha ya kuwa lugha ya Kiafrika inayozungumzwa sana na takribani watu milioni 150  haswa katika Afrika Mashariki kanda ya maziwa makuu kusini mwa Somalia na maeneo mengine ya kusini mwa Afrika muonekano wa Kiswahili mtandaoni ni finyu
 John Walubengo mhadhiri wa Chuo Kikuu cha Multimedia cha Kenya anachanganua kwenye makala yake katika Nation jarida la kila siku nchini Kenya kuwa ukosefu wa lugha na utamaduni mtandaoni unaunda jamii yenye mtazamo mdogo wa dunia
 Walubengo anaelezea kuwa tamaduni nyingi za kiasili huishia kusalimisha utambulisho wao kwa hali za Kiingereza za ufanyaji mambo
@@ -1340,7 +1324,6 @@ UASG ni jamii ya viongozi wa tasnia inayohimiliwa na ICANN ambayo huandaa jamii 
 Huku kunafanikishwa kupitia mchakato unaojulikana kama Ukubalikaji Ulimwenguni UA ambao huhakikisha kwamba programu na mifumo ya mtandao inashughulikia vikoa vyote vya viwango cha juu TLDs na barua pepe kulingana na vikoa hivyo kwa njia thabiti  pamoja na vile vilivyoko kwenye maandishi yasiyo ya Kilatini na vile ambavyo ni zaidi ya herufi tatu
 UA hutumikia wanamtandao ulimwenguni kote katika lugha zao asili na kwa majina ya vikoa ambayo yanatambulisha utamaduni wao
 Kwa hivyo kukuza mtandao wa lugha nyingi
-ICANNWiki
 Shirika hili lisilo la kifaida linalotoa ukurasa wa wiki ulioendelezwa na jamii kwenye masuala ya ICANN na Utawala wa mtandao kwa muda mrefu limeshirikiana na mashirika taasisi za elimu na watu binafsi nchini Kenya na Tanzania
 Huku kumewezesha Waafrika Mashariki kujenga kutafsiri na kuongeza rasilimali za Wiki kwa maono yao lugha na mtazamo
 Mradi huu wa Kiswahili  ambao mie kama mwandishi nimeweza kujihusisha nao rasmi  umeziba pengo la habari zinazohusiana na maswala ya Utawala wa Mtandao kwa kujanibisha maudhui ya ICANNWiki kukuza ushiriki katika jamii zinazolengwa
@@ -1363,9 +1346,7 @@ Mradi wa Mantiki Utambulisho umefadhiliwa na Mfuko wa Haki za Kidijitali Afrika
 
 Makala 32
 Chumba cha Intaneti cha TEDGlobal
-Picha ya Creative Commons ya mtumiaji wa Flickr Erik HASH Hersman Juni 3 2007
-CC BY 2
-0
+Picha ya Creative Commons ya mtumiaji wa Flickr Erik HASH Hersman Juni 3 2007 CC BY 2.0
 Global Voices kupitia waandishi wake wa Ukanda wa Afrika Kusini mwa Jangwa la Sahari kwa ushirikiano na Mradi wa Rising Voices itaendesha kampeni ya mtandao wa twita kama sehemu ya mradi unaofahamika kama Utambulisho Jukwaa la kudhibiti vitisho vya mtandaoni dhidi ya uhuru wa kujieleza barani Afrika kuanzia Aprili 20 mpaka Mei 22 2020
 Soma zaidi MatrikiUtambulisho Mrandi mpya wa kukuza haki za kidigitali barani Afrika 
 Kama mwendelezo wa Uandishi wa Kuelekea kwenye Uhuru Siasa na haki za kidijitali barani Afrika  kampeni hii ya wiki tano ya mtandao wa kijamii kuhamasisha jamii itashirikisha mjadala ulioandaliwa na GVSSAfrica ukiwashirikisha wanaharakati wa lugha tano za Kiafrika ambao wataangazia uwiano wa lugha na haki za kidijitali
@@ -1400,8 +1381,6 @@ Ozurumba pia anajulikana kama Asampete jina ambalo linaweza kutafsiriwa kutoka k
 Ozurumba anafurahishwa na lugha na utamaduni ya Kiigbo na amejitolea kuhakikisha kuwa watu kadhaa wanajifunza kwa kiasi fulani kuzungumza kuandika na kusoma
 Ozurumba ni mwanzilishi wa kundi la kiigbo la watumiaji wa Wikimedia na mara kwa mara huenda akaanzisha mazungumzo kuhusu Wikimedia Foundation bila kushinikizwa
 Anaishi jijini Abuja Naijeria na anapenda utulivu na hisia ya mwendo wa aste aste wa jiji
-Mei 1115 Ọmọ Yoòbá yobamoodua
-Adéṣínà Ayẹni
 Picha imetumiwa kwa ruhusa
 Adéṣínà Ayẹni ambaye pia anajulikana kama Ọmọ Yoòbá ni mwandishi wa habari na mwanaharati wa utamaduni ambaye anatumia kazi yake ya uanahabari kuendeleza utunzaji na usambazaji wa urithi wa utamaduni wa Kiyorùbá mtandaoni na nje ya mtandao 
 Kama msanii wa sauti ametayarisha matangazo mengi ya Kiyorùbá ya kampeni za redio za Naijeria na TVC
@@ -1432,12 +1411,8 @@ Katika Zimbabwe baada ya Mugabe mpango wake huu umeimarisha mgogoro wa upotoshaj
 Wakati ambapo serikali mpya ilijidai kulaani habari za uongo  kwa taarifa zilizosambazwa kwenye mitandao ya kijamii na ambazo waliziona kuwa tishio utawala ulio madarakani  pia ilifanya hila ilikuupotosha umma kuhusu namna ilivyoshughulika na maandamano ya kuipinga serikali
 Kero ya uhuru wa kujieleza mtandaoni
 Zimbabwe imeshuhudia ongezeko kubwa la matumizi ya intaneti kwenye simu za mkononi na mitandao ya kijamii katika miaka michache iliyopita
-Kiwango cha kuenea kwa intaneti kiliongezeka kwa asilimia 41
-1 kutoka asilimia 11 ya idadi ya watu hadi asilimia 52
-1 kati ya 2010 na 2018 wakati kuenea kwa simu za mkononi kuliongezeka kwa asilimia 43
-8 kutoka asilimia 58
-8 hadi asilimia 102
-7 kwa kipindi hicho hicho
+Kiwango cha kuenea kwa intaneti kiliongezeka kwa asilimia 41.1 kutoka asilimia 11 ya idadi ya watu hadi asilimia 52
+1 kati ya 2010 na 2018 wakati kuenea kwa simu za mkononi kuliongezeka kwa asilimia 43.8 kutoka asilimia 58.8 hadi asilimia 102.7 kwa kipindi hicho hicho
 Hii inamaanisha kuwa nusu ya idadi ya watu sasa imeunganishwa na intaneti ikilinganishwa na asilimia 11 tu katika mwaka 2010
 Hata hivyo upotoshaji na utoaji taarifa za uongo nao vimepata mazingira ya kushamiri kwa sababu kadhaa mgawanyiko mkubwa katika vyombo vya habari mapendekezo ya serikali kudhibiti mitandao ya kijamii njia hafifu za mawasiliano rasmi na na elimu duni miongoni mwa watumiaji wa intaneti
 Wakati wa maandamano dhidi ya serikali ya Januari 2019 kipindi vikosi vya usalama vya serikali vilipowakamata na kuwashambulia mamia ya waandamanaji habari za ukandamizaji huu zilishindana na madai ya serikali kwamba zilikuwa habari za uongo au pale ilipokanusha kabisa kuwepo kwake
@@ -1590,8 +1565,6 @@ Nyongeza ya Mhariri Mwandishi wa makala haya aliwahi kujitolea kwenye shule ya D
 Makala 36
 Sierra Leone Watoa huduma wa afya wakijiandaa kuingia kwenye eneo la kutolea matibabu kwa wagonjwa wa Ebola
 Flickr image by ECECHOCyprien Fabre August 2 2014
-CC BYNCND 2
-0
 Mapema tarehe 12 Agosti Shirika la Afya Duniani WHO lilitoa taarifa chanya ya maendeleo ya michakato ya kitabibu ya majaribio ya dawa kadhaa za kutibu ugonjwa wa ebola nchini Jamhuri ya Kidemokrasia ya Congo Jamhuri ya Congo
 WHO ilitanabaisha kuwa dawa za ebola zilizojaribiwa zimeonesha matokeo chanya yatakayoleta matumaini ya kuishi kwa wagonjwa wa Ebola na kuendelea kueleza kuwa dawa mbili kati ya nne zilizojaribiwa zimeonesha kuwa na uwezo mkubwa wa kutibu Ebola
 Ni nani huyu anayehusika kwenye tiba hii ya Ebola Mheshimiwa Profesa JeanJacques MuyembeTamfum Mkurugenzi Mkuu wa Institut National de Recherche Biomédicale INRB DR ya Congo aliwekeza sehemu kubwa ya Maisha yake katika kutafuta tiba ya kirusi cha Ebola
@@ -1600,15 +1573,14 @@ MuyembeTamfum  alieleza  kuwa hatutasema tena kuwa ugonjwa wa  Ebola EVD hautib
 Kutokana na kazi adhimu ya MuyembeTamfum wanasayansi walifanya majaribio ya dawa nne za kutibu Ebola ZMapp remdesivir mAb114 and REGNEB3
 Majibu ya majaribio ya kitabibu conducted kwa washiriki 499 wa utafiti yalionesha kuwa wagonjwa waliotibiwa kwa REGNEB3 au mAb114 walionesha kuwa na nafasi kubwa ya kupona ukilinganisha na wale waliotibiwa kwa dawa nyingine mbili
 Utafiti huu uliofanyika chini ya uangalizi wa taasisi ya Institut National de Recherche Biomédicale INRB Wizara ya Afya ya Congo pamoja na mashirika mengine matatu yanayojihusisha na utoaji wa huduma za afya Jumuia ya Kimataifa ya Masuala ya Afya ALIMA the International Medical Corps IMC na Médecins Sans Frontières MSF
-Raia wa Congo aliyehusika kwenye upatikanaji wa tiba ya Ebola 
+Raia wa Congo aliyehusika kwenye upatikanaji wa tiba ya Ebola
 MuyembeTamfum amekuwa akifanya tafiti zinazohusiana na ugonjwa wa Ebola tangu kuripotiwa kwa ugonjwa huu kwa mara ya kwanza nchini Congo ambapo  mwaka 1976 alikuwa  mtafiti wa kwanza  kuzuru eneo ambalo ugonjwa wa Ebola uripotiwa kwa mara ya kwanza
 Dr JeanJacques Muyembe ambaye ni Mkurugenzi Mkuu wa Institut National de Recherche Biomedicale ya Jamhuri ya Kidemokrasia ya Congo pamoja na wenzake wamegundua tiba mpya ya ugonjwa wa Ebola inayoweza kutibu dalili za ugonjwa huu katika muda wa masaa matatu tu
 Rosebell Kagumire  RosebellK August 13 2019
 Profesa wa maikrobaolojia wa Chuo Kikuu cha Tiba cha Kinshasa Jamhuri ya Kidemokrasia ya Congo hadi sasa ametumia muda wa takribani miaka 40 kutafuta tiba ya ugonjwa huu
 Mwaka 1995 alifanya kazi na WHO kwa ajili ya utekelezaji wa mradi wa he worked with WHO in implementing  utambuzi mbinu za kukabiliana na ugonjwa huu mara baada ya kuripotiwa kwa mara ya kwanza wagonjwa wa Ebola katika mji wa Kikwit Jamhuri ya Kidemokrasia ya  Congo
 Professor MuyembeTamfum aliyekaa akiwa na kipaza sauti akiongea wakati wa zoezi la utoaji elimu kwa jamii huko Beni Kivu ya Kaskazini Jamhuri ya Kidemokrasia ya Congo  mapema mwezi Septemba 2018
-Picha kwa hisani ya MONUSCOAqueel Khan CC BYSA 2
-0
+Picha kwa hisani ya MONUSCOAqueel Khan CC BYSA 2.0
 Kufuatia ugunduzi huu waathirika wa Ebola kwa sasa wana nafasi kubwa ya kuwa na matumaini ya kupata huduma ya haraka na hivyo kufikishwa hospitali kwa ajili ya matibabu zaidi wangalipo na uhai
 Kwa kiwa asilimia 90 ya wagonjwa wataweza kufikishwa kwenye vituo vya afya na kupata matibabu na kurejea wakiwa wazima kabisa watanza kuiamini dawa hii na kujenga imani kwa jamii zao na wananchi wote kwa ujumla
 JeanJacque MuyembeTamfum
@@ -1620,7 +1592,6 @@ Picha ya ramani kutoka katika Kituo cha Kupambana na Kuuzua Magojwal
 Kati ya mwaka 2014 na  2016 waliripotiwa zaidi ya watu  28600 walioambukizwa ugonjwa wa Ebola Afrika Magharibi
 Kwa mujibu wa repoti ya WHO ya mwaka 2015
 Mwaka 2014 Senegali ilikuwa na kisa kimoja cha maambukizi ya Ebola na bila ya kuripotiwa kifo chochote
-Nigeria recorded 20 cases with 8 deaths
 WHO ilitangaza kuwa hatua ya Nigeria ya kukabiliana na kirusi cha Ebola kama sehemu ya  ya kazi kubwa ya kukabiliana na ugonjwa hatari unaosambaa kwa haraka
 Mwezi Januari 2015 Mali iliripotiwa kuwa na wagonjwa 8 wa Ebola na vifo 6
 Hata hivyo hali ilikuwa mbaya sana kati ya mwezi Machi na Juni2016 katika nchi tatu Nchini Sierra Leone zaidi ya watu 14000 waliugua ugonjwa wa Ebola pamoja na vifo 4000 Liberia takribani watu 10000 waliugua Ebola na 3000 kupoteza maisha Guinea wangonjwa 3800 na vifo 2500
@@ -1677,7 +1648,6 @@ Kabendera ambaye mara nyingi amekuwa akiwafunza na kuwahamasisha waandishi wacha
 Nilikukutana na Erick Kabendera mara moja tu katika maisha yangu na kwa muda usiozidi dakika 80
 Alikuja kama mkufunzi aliyealikwa kuja kutufundisha shule ya uandishi wa habari na mawasiliano kwa umma UniofDar
 Lakini pamoja na kuwa nasi kwa muda mfupi nilijifunza mengi kutoka kwake
-Kwa kweli alinihamasisha sana 100K4Erick
 Mtumiaji mwingine wa mtandaoni aanafikiri kukamatwa kwa Kabendera na kubambikiwa makosa ni alama ya tahadhari kwa wananchi wengine
 SIMTETEI Kabendera Kwasababu Ni Mtanzania Au Sababu Ni Mwanahabari NAMTETEA Kwasababu Naishi Tanzania Anayoishi Erick
 
@@ -1710,8 +1680,6 @@ Siku ambayo Rais  Vladimir Putin ambaye viwango vyake vimeshuka katika histori
 Makala 39
 Mwandishi Mkenya Binyavanga Wainaina akiwa kwenye sherehe ya Kitabu Brooklyn mwaka 2009
 Wainaina aliyekuwa na miaka 48 alifariki Jumanne tarehe 22 Mei katika Mji wa Nairobi Kenya
-Picha na Nightscream CC  3
-0 na Wikimedia Commons
 Ni masaa 24 tu tangu  Binyavanga Wainaina Mwandish Mkenya kutoweka katika ulimwengu huu lakini uwepo na athari yake vinaendelea kurindima duniani kote
 Msema kweli mwandishi shoga muwazi  alilaumu mapatano na kutia changamoto serikali akichokoza kwa uandishi wa kimapinduzi ambao ungefungua mlango kwa maelfu ya waandishi wanaotamani kubadilika katika kuandika na kuelezea namna Afrika ilivyo
 Mwandishi mwalimu na mwanaharakati wa LGBTQ Binyavanga Wainaina mwenye umri wa miaka 48 alifariki siku ya Jumanne tarehe 22 Mei Nairobi Kenya baada ya kuugua kwa muda mfupi
@@ -1765,7 +1733,6 @@ Ninasikitika sana kwamba aliumiza wengine
 Ninasikitika kwamba alikosea kama binadamu angetuchukia tukimsafisha
 Mwandishi Bwesigye Mwsigire mkurugenzi wa Writivism Festival nchini Uganda pia  alielezea mkanganyiko huu   kupitia Facebook
 mtindo wake wa maisha ilikuwa ni tatizo
-Nzuri na kuachia makosa Beautiful and freeing transgression
 Watu tunaoshikilia kwa sababu ya kazi na mawazo yao ni watu tu
 Ni binadamu 
 Tupo tayari kuwapenda katika changamoto zao Are we ever ready to love them in their complexity
@@ -1832,8 +1799,7 @@ Sasa labda waziri aweke msimamo wa kujihuzuru au JLo anapaswa kumfukuza kwa saba
 
 Makala 41
 Blanka Nagy akizungumza katika maandamano ya Januari 2019
-Picha na Márk Tremmel CC BYNCSA 2
-5
+Picha na Márk Tremmel CC BYNCSA 2.5
 Habari hii iliandikwa na Tamás B
 Kovács na kutafsiriwa na Anita Kőműves kwa ajili ya Jarida la Hungary lisilo la kibiashara Atlatszo
 Nakala hii iliyohaririwa inapatikana hapa kama sehemh ya ushirikiano wake na Global Voices
@@ -1873,8 +1839,7 @@ Kulingana na takwimu za hivi karibuni zilizokusanywa na Atlatszo vyanzo vikuu vy
 Makala 42
 Hawawezi kutuwekea mawazo yao vichwani mwetu hivyo wanatupiga risasi SOSNicaragua Ndivyo linavyosomeka bango la mwandamanaji mmoja wakati wa maandamano kwa ajili ya wafungwa wa kisiasa huko Managua
 Agosti 2018
-Picha na Jorge Mejía Peralta CC BY 2
-0
+Picha na Jorge Mejía Peralta CC BY 2.0
 Tangu maandamano makubwa dhidi ya Rais Daniel Ortega yalipuke nchini Nicaragua Aprili 2018 serikali imepiga marufuku maandamano imewakamata maelfu bila kuwafungulia mashtaka na kufungia kwa pamoja vyanzo vikuu na vile mbadala vya habari
 Majaribio ya kufanya mazungumzo yameshindikana  kwa sasa hatma ya Nicaragua imebaki kuwa swali gumu
 Maandamano yalianza kwa kupinga mabadiliko ya sera za mifuko ya hifadhi za jamii ambapo yangepandisha makato ya kodi ya mapato wakati ikipunguza maslahi ya kiinua mgongo
@@ -1937,11 +1902,7 @@ Katika mwezi Machi 2019 jamii za wazawa walifunga   barabara kuu katika mkoa w
 Tarehe 25 Aprili waliungana na maandamano ya jamii zingine ili kuongoza  maandamano ya kitaifa
 Pamoja na vitisho kwa haki za wazawa waandamanaji  wanapinga dhidi ya kukatwa kwa bajeti ya elimu na utekelezaji unaosuasua wa makubaliano ya amani ya mwaka 2016 ambayo Duque ambaye ana mwaka mmoja madarakani ndiye msemaji mkuu
 Wazawa wameyaita maandamano hayo mingas neno la lugha ya Quechua lenye maana ya kazi ya wote linalotumika sana katika maandamno katika Amerika ya Kusini
-ParoNacional  Comunidades indígenas campesinos campesinas y afros de Tado se movilizan desde tempranas horas a lo largo de la vía PereiraQuibdo en el marco del Paro Nacional SeValeProtestar pic
-twitter
-comYNOOB1oxNd
-Colombia Informa Col_Informa April 25 2019
-Tafsiri Maandamano ya kitaifa  Jamii za wazawa wakulima na watu weusi wa Tado wanahamasishana mapema kuanzia masaa ya  asubuhi kuwa barabarani kutoka Pereira kuelekea Quibdo kama sehemu ya maandamano ya kitaifa  Ni fahari kuandamana
+Maandamano ya kitaifa  Jamii za wazawa wakulima na watu weusi wa Tado wanahamasishana mapema kuanzia masaa ya  asubuhi kuwa barabarani kutoka Pereira kuelekea Quibdo kama sehemu ya maandamano ya kitaifa  Ni fahari kuandamana
 Mpango wa maendeleo wa Taifa unahusisha mageuzi katika sekta mbalimbali kama elimu nishati na kilimo
 Wakati Duque  anadai    mpango huo utawasaidia na kuwainua wakolombia milioni 3
 4 kutoka katika umaskini wachambuzi wanaona kuwa utawafaidisha hasa makampuni binafsi
@@ -1977,8 +1938,7 @@ Hakuna suluhusho la kudumu lililotolewa kwa mahitaji ya waandamanaji kwa hiyo ma
 Makala 44
 Swichi ya kuwasha na kuzima
 Picha na Andrew Huff
-Creative Commons CC BYNC 2
-0 Flickr Tarehe 20 Januari 2007Walipoamka tarehe 28 Aprili wakiwa tayari kupiga kura katika uchaguzi wa wabunge nchini Benin wapigakura hawategemea kukuta WhatsApp au Facebook ambazo zinatumika kuwasiliana au kupata habari wapi pa kupigia kura
+Walipoamka tarehe 28 Aprili wakiwa tayari kupiga kura katika uchaguzi wa wabunge nchini Benin wapigakura hawategemea kukuta WhatsApp au Facebook ambazo zinatumika kuwasiliana au kupata habari wapi pa kupigia kura
 Baadhi ya mitandao mikubwa ikiwemo Twitter Instagram Telegram na Viber ilikuwa imezimwa mapema siku ile
 Mpaka saa 5 Asubuhi asilimia 99
 5 ya upatikanaji wa mtandao  ulikuwa haupatikani na kuipeleka nchi ya Afrika magharibi kutokuwa na mtandao nchi nzima ambapo mtandao ulifunguliwa usiku
@@ -2018,8 +1978,7 @@ Msaidizi wa Kočner Alena Zsuzsová alituhumiwa kwa kulipa yuro 50000 karibu dol
 Wakati wa majira ya joto Kočner alikamatwa kwa makosa ya kifedha na alichunguzwa na Kuciak lakini ilizichukua mamlaka miezi sita zaidi kuwakamata wahusika wadogo wa mwekezaji huyo mtata na kumuunganisha moja kwa moja na mpango wa mauaji
 Sababu za mauaji ni kazi za uhandishi wa habari za mlengwa mwendesha mashtaka maalum ambaye hakutajwa jina kwa sababu za kiusalama aliwaambia wanahabari hapo Machi 15 katika mkutano wa habari karibu na Bratislava
 Maandamano huko Bratislava Machi 9 2018 kwa sababu ya mauaji ya Ján Kuciak na Martina Kušnírová
-Picha na Slavomír Frešo kupitia Wikipedia CC BYSA 4
-0
+Picha na Slavomír Frešo kupitia Wikipedia CC BYSA 4.0
 Mashtaka yalipokelewa na Taasisi za Haki za Vyombo vya Habari na Mawakili wa Haki za Binadamu Huko twita Mwanakamati ya Kulinda wanahabari Gulnoza Said alisema
 Tunapokea habari kuwa mamlaka za Slovakia zimemshtaki mtuhumiwa aliyechora mpango wa kumuua mwanahabari za uchunguziJánKuciak
 Hii ni hatua muhimu na ya kipekee katika mauaji ya wanahabari
@@ -2105,9 +2064,7 @@ Kwa maandamano ya kwenda ICC wanaharakati wanatarajia kuamsha mtazamo wa kimatai
 Wakati huo huo idadi inaendelea kuongezeja tangu kuanza kwa mwaka 2019 viongozi 73 wameshatishiwa katika eneo la idara ya Boyacá pekee
 
 Makala 48
-Bruno Saraiva alishinda tuzo nchini Hong Kong  picha ilitolewa na Bruno 20
-04
-2019
+Bruno Saraiva alishinda tuzo nchini Hong Kong  picha ilitolewa na Bruno 2004 2019
 Tarehe 17 Aprili mwanariadha raia wa Msumbiji Bruno Saraiva aliishinda mashindano ya kimataifa ya kutunisha misuli nchini Hong Kong
 Baada ya kuwashinda wapinzani watano mwanariadha huyo alishinda nafasi ya kwanza katika kundi la watunisha misuli bora kundi ambalo ni muhimu na linapendwa na watu wengi ambalo alikuwa anatafutwa mwanariadha mzuri ambaye huonesha maumbo yake katika mikao mbalimbali 
 Pia Bruno alishinda tuzo ya ujumla kwa wanariadha bora katika kundi la pili
@@ -2124,12 +2081,9 @@ Tafsiri Nakushukuru kwa ushindi Bwana
 Ninayo furaha kubwa ya kutangaza na kushirikiana nanyi kwa ushindi wangu katika kundi bora la watunisha misuli na kushinda ushindi wa jumla katika mashindano ya kimataifa ya kutunisha misuli nchini Hong Kong
 Katika  ujumbe mwingine  Bruno alielezea vikwazo au ugumu aliokutana nao kabla ya kwenda nchini Hong Kong
 Tafsiri Tafadhali rafiki yangu soma ujumbe huu kwa ukarimu kwa sababu ni uhalisia sina soni kuuelezea na najua wengi watahamaki sana Nilipokuwa nakaribia kuja Hong Kong kumalizia nilipita sehemu nyingi nikipiga hodi na kuomba msaada niliongea na marafiki zangu wengi ambao wengi niliamini watanisaidia na majibu yao yalikuwa haya
-1
-Bruno hutashinda na huna nafasi ya kushinda au kumaliza miongoni mwa wale bora
-2
-Wengine walisema hawawezi kunisaidia kwa sababu watakuwa wanapoteza fedha yao
-3
-Wengine hata waliniambia Bruno lazima unavuta bangi
+1. Bruno hutashinda na huna nafasi ya kushinda au kumaliza miongoni mwa wale bora
+2. Wengine walisema hawawezi kunisaidia kwa sababu watakuwa wanapoteza fedha yao
+3. Wengine hata waliniambia Bruno lazima unavuta bangi
 
 Makala 49
 Ould Mkhaitir alihukumiwa kifo mwaka 2014 kutokana na maoni aliyoyatoa katika kipande cha habari kilichochapishwa mtandaoni
@@ -2269,8 +2223,7 @@ Kuzuia vyombo vya habari binafsi  kupitia vikwazo mbalimbali dhidi ya vyombo vya
 Kushikiliwa na baadaye kurudishwa Uganda kwa Wakabi kunaonekana kuwa mwendelezo wa serikali ya Tanzania kushambulia uhuru wa kutoa maoni na hasa yanayokinzana na serikali
 
 Makala 53
-Alpha Condé akiwa katika mkutano wa jukwaa la uchumi ulimwenguni mwaka 2012 CC BYSA 2
-0
+Alpha Condé akiwa katika mkutano wa jukwaa la uchumi ulimwenguni mwaka 2012 CC BYSA 2.0
 Ingawa katiba ya Guenea inaruhusu  tu  mihula miwili mfululizo  kuwa madarakani Rais wa sasa wa nchi hiyo Alpha Condé hivi karibuni alitangaza kwamba ana nia ya kugombea urais kwa muhula wa tatu mfululizo
 Ili kusaidia kufanikisha hilo hakusita kushawishi wafuasi wake kufanya vurugu
 Katika uchambuzi uliochapishwa na gazeti la Horizon Guinée mwandishi wa bahari Sonny Camara anayeishi Conakry mji mkuu wa nchi hiyo alilipoti sehemu za hotuba ambayo Rais alihutubia tarehe 24 Machi 2019
@@ -2347,9 +2300,7 @@ Katikati ya mwaka 2018 rubani  Admira António alikuwa mwanamke wa kwanza kuwa r
 Mwaka  2014 wakati askari polisi wa Jamhuri ya Msumbiji ilipopandisha vyeo askari 39 Arsenia Massingue aliteuliwa kuwa mwanamke wa kwanza kuwa jenerali  katika jeshi hilo
 
 Makala 55
-Papa Francisco  Gabriel Trujillo  maelezo na ShareAlike ya 2
-0CC BYSA 2
-0
+Papa Francisco  Gabriel Trujillo  maelezo na ShareAlike ya 2.0CC BYSA 2.0
 Papa Francis atatembelea Msumbiji Mwezi Septemba 2019 wiki kadhaa kabla  ya uchaguzi ambao utamchagua Rais mpya Wabunge na Magavana wa majimbo
 Papa amealikwa na Rais wa Msumbiji Filipe Nyusi mwezi Septemba 2018
 Matembezi hayo yalitangazwa na kuthibitishwa tarehe 26 Machi katika hafla ya ibada  iliyojumuisha viongozi wa kanisa la Roma Katoliki katika nchi hiyo
@@ -2526,8 +2477,7 @@ Amani haimaanishi kuisha kwa vita pekee na hakuna Taifa litakalofanikiwa katika 
 
 Makala 60
 João Lourenço Rais wa  Angola
-Picha Wikimedia Commons CC BYSA 2
-0
+Picha Wikimedia Commons CC BYSA 2.0
 Mahojiano  aliyoyafanya Rais wa Angola João Lourenço na RTP  Kituo cha Televisheni ya Taifa ya Ureno ambapo alisema kuwa hakuna njaa nchini kwake yamesababisha ghasia miongoni mwa wananchi
 Katika mahojiano ya dakika 30 yaliyorushwa Machi 4 mwanahabari wa Kireno kwa RTP Áfrika alirejea ripoti ya UNICEF iliyosema kuwa wananchi wanakufa kwa njaa nchini Angola
 Rais Lourenço alikataa kuwepo kwa njaa nchini mwake wakati akikubali kuwa kuna utapiamlo
@@ -2825,8 +2775,7 @@ Ni muda pekee utakaoonesha ni jinsi gani mambo haya yatakavyojifunua katika kipi
 
 Makala 67
 Msikiti Mkuu wa Mecca inaaminiwa kuwa sehemu takatifu zaidi kwa Waislamu
-Picha na Wikimedia mtumiaji Basil D Soufi CC BYSA 3
-0
+Picha na Wikimedia mtumiaji Basil D Soufi CC BYSA 3.0
 Wakati mwanahabari wa Saudia na mwandishi wa makala katika Washington Post Jamal Khashoggi alipouawa Oktoba katika ubalozi wa Saudia huko Instabul kuleta giza totoro katika uhuru wa kujieleza kwa wanahabari kutoka Saudi Arabia na ukanda wote wa Arabuni
 Matokeo ya anguko hili la kisiasa limetikisa baadhi ya mamlaka zenye nguvu sana na sauti kubwa katika Uislamu
 Baada ya tukio la kupotea kwa Khashoggi na kifo chake kufahamika viongozi mbakimbali wa duniani wamemtuhumu mwana wa mfalme wa Saudia Mohammad Bin Salman kuagiza mauaji ya mwanahabari huyo
@@ -2897,8 +2846,7 @@ Kuhalalisha na kusafisha matendo ya unyanyasaji watawala wa Saudia hawakawii kut
 
 Makala 68
 Kulingana na serikali ya Cuba madaktari wapatao 20000 waliwahudumia Wabrazili milioni 113 kwa kipindi cha miaka mitano
-Picha na Agência Brasil CC BY 3
-0
+Picha na Agência Brasil CC BY 3.0
 Maelfu ya Wabrazili wanaweza kubaki bila huduma za afya kwa sababu Cuba imeanza kuwaondoa zaidi ya madaktari 8400 ambao walikuwa wamepangiwa kazi katika miji midogo ya mbali na ya ndani sana ya nchi kwa miaka mitano
 Katika taarifa ya rasmi ya Novemba 14 Havana ilitangaza kuwa itakatiza makubaliano yake na Brazili kutokana na maoni ya wazi ya Rais Jair Bolsonaro kuhusu mpango huo ambapo wanadhani kuwa yanaonesha vitisho na uonevu
 Mara kadhaa katika kampeni za Urais Bolsonaro alikosoa utandaji wa madaktari kutoka Cuba na kuukosoa mpango huo
@@ -2996,65 +2944,37 @@ Zaidi ya waandamanaji 40 wameuawa mamia wakiwekwa vizuizini na kuteswa
 Pamoja na mashambulizi ya kikatili wanawake hawakuwa nyuma kwa kujiweka imara katikati ya moyo wa maandamano hayo
 Hakuna kiwango cha vipigo au vizuizi vingeweza kutufanya tuache maandamano
 Wanawake hawa na wengine kama hawa wanaongoza maandamano makubwa dhidi ya Rais wa Sudan Omar Al Bashiri
-MaandamanoSudan l SudanUprising pic
-twitter
-comCWBr45Nbhn
-BBC News Africa BBCAfrica April 6 2019
 Leo nchini Sudan tunaandamana kwa ajili ya wanawake
 Wanawake waliovifungoni
 Wanawake Wanamapinduzi
 Wanawake waliokandamizwa
 Wanawake ambao ni wakimbizi
-Wanawake walioharibiwa na vita walibakwa waliopigwa na kunyanyaswa
+Wanawake walioharibiwa na vita 
+walibakwa waliopigwa na kunyanyaswa
 Wanawake ambao wanasauti kubwa na ya ujasiri kwa ajili ya nchi iliyojengwa kwa ajili ya wanaume
-مدن_السودان_تنتفض موكب10فبراير تسقط_بس SudanUprising
-Qutoufy Qutoufy February 10 2019
 Waliongoza maandamano hayo wakiimba Zagrouda namna ya ushangiliaji ambao hufanywa na wanawake katika ulimwengu wa Waarabu kuonesha furaha
 Zagrouda au wimbo wa wanawake umekuwa ndio ishara ya kuita watu katika maandamano yoyotehuko mitaani kwa sasa
 Watu wakisikia sauti hizi za wanawake wanajua ni sauti ya mapinduzi na ndio muda wa kuanza maandamano
-Maandamano_Sudan pic
-twitter
-comE2RasMe6tF
-Nandini nandi_naira March 21 2019
 Wakati wa mwezi Machi wanawake walivaa nguo nyeupe za kitamaduni  thobe katika kuwaunga mkono waandamanaji na haki za wanawake
 Majukwaa ya mitandao ya kijamii yalijaa picha za waandamanaji wa kike wakiwa wamevaa nguo nyeupe wakitumia hashitagi Maandamanomeupe مارس_الابيض
 Heri ya Siku ya Wanawake Kimataifa
-Familia ya Kitovu cha mabadiliko Khartoum
-IWD19 kitovuchamabadiliko kitovuchamabadilikokhartoum MaandamanoMeupe pic
-twitter
-comHnJicvsLDQ
-Kitovu cha mabadiliko Khartoum ImpactHubKRT March 8 2019
 Wanawake ambao huandamana mara nyingi hupambana na ukatili wa polisi
-Mamlaka zimeshawafyatulia gesi za kutoa machozi na risasi za moto na walishawahi kuwatishia kuwabaka
+Mamlaka zimeshawafyatulia gesi za kutoa machozi na risasi za moto na walishawahi kuwatishia kuwabaka 
 Imeripotiwa wanawake wanapigwa wanawekwa alama usoni na nywele zao kukatwa wakiwa ndani ya vituo vya mahabusu
 Kila siku video mpya za wanawake wa Kisudani wakiwa wanapigwa na kudhalilishwa zimekuwa zikisambazwa katika mitandao ya jamii
 Ukatili wa kutisha dhidi ya wazee na wanawake unaofanywa na polisi huko Kaskazini mwa KhartoumMaandamanoSudan Maandamano_Sudan pic
-twitter
-comusTEXp1c3f
-MaandamanoSudan uprising_sudan January 14 2019
 Lakini pia hashitagi hizo hizo zimekuwa zikitumika kuonesha ushujaa wa wanawake wa Sudan
 UngamkonoSudan
 Video ikimuonesha msichana wa Kisudani akirusha kopo la gesi ya machozi kuwarudishia vyombo vya Ulinzi
 WasichanawaKisudani na wanawake wameonesha ujasiri kinyume na matarajio wakati wa MaandamanoSudan
-مدن_االسودان_تنتفض موكب14مارس pic
-twitter
-com84XbERPwyg
-IUNGE MKONO SUDANI All4Sudan March 14 2019
 Wiki hii picha na video kutoka kwenye maandamano imesambaa mitandaoni
 Msichana wa miaka 22 mwanafunzi wa uhandisi anayeitwa Alaa Salah aliinua mkono wake wa kuume huku akiongoza umati wa watu kuimba Thawra Kiarabu linamaanisha Mapinduzi
 Video na picha zingeweza kuishia kuenea mtandoni lakini wanaharakati wa Sudani wameanza kumwita Kandaka jina walilopewa malkia wa Wanubi wa Sudani ya kale
-
 Simfahamu jina lake lakini huyu mwanamke katika Sudan anaongoza maandamano akiwa amesimama juu ya gari na akihimiza kuhusu mabadiliko dhidi ya dikteta Bashir
 Hapa akiimba Thawra Mapinduzi
 Kumbuka sauti hii pic
-twitter
-com0JG31Tp4rZ
-Joyce Karam Joyce_Karam April 9 2019
 Michoro iliyoshirikiswa katika mitandao ya kijamii imemgeuza Salah kuwa Mnara wa Uhuru wa Sudan
 Siku moja nikajaliwa kupata mtotowakike ninataka awe kama Salah AlaaSalah mwenye miaka 22 na mwanafunzi wa Uhandisi akiimba na kuongoza maandamano huko Khartoum kwa sasa amekuwa alama ya Mapinduzi Sudan na amekuwa sauti ya MapinduziYaWanawake wa Sudan UpendoWaWanawake Amani pic
-twitter
-compWxqJvCKN1
-Houda Henniche HoudaHenniche April 10 2019
 Kutoka mtaani mpaka Runingani
 Nyuma ya runinga ni vikundi vya Facebook ambavyo vilishawahi kutawaliwa na mijadala kuhusu ndoa na michepuko kwa sasa vinatumika kuonesha ukatili wa polisi
 Wanawake katika makundi haya wametoa video na picha za mamlaka katili za ulinzi
@@ -3062,19 +2982,17 @@ Huwa Wakishatambulika muhusika hupigwa na hufukuzwa nje ya mji
 Athari za makundi haya imeonekana  maajenti wengi wa usalama kwa sasa wanaficha nyuso zao
 Mamlaka za Sudani zimejaribu kuzima mitandao ya kijamii nchini lakini wanawake walivuka kikwazo hicho kwa kutumia VPN Virtual Private Networks ambapo huficha eneo la mtumiaji
 Mapinduzi hayawezi kukamilika bila sanaa
-
 Pitia bandiko hili huko Instagram
-
-Heri ya Siku ya wanawake Kwa wanawake wote na wanamapinduzi popote walipo 
-Shikilieni حركات نسوان  
+Heri ya Siku ya wanawake
+Kwa wanawake wote na wanamapinduzi popote walipo 
 Bandiko limeshirikishwa na  Alaa Satir alaasatir on Mar 8 2019 at 927am PST
-
 Wachoraji wa kike wapiga picha na wanamuziki walitengeneza kazi za sanaa kupongeza waandamanaji mtaani
 Walitumia sanaa kuenzi uvumilivu wa watu hasa wanawake
 Walitumia sanaa kutunza matukio na picha za wahanga na kuonesha uhalisia wa kuishi chini ya mamlaka kandamizi
 Wanawake wako mstari wa mbele kushoto na ni kitovu cha mapinduzi
 Wakati watu walipoanza maandaman walikuwa kama wanasema wanawake wanatakiwa kubaki nyumbani
-Lakini ilikuwa kama tumesema hapana  alisena Islam Elbeiti mwanamuziki wa Jazz mwenye miaka 24
+Lakini ilikuwa kama tumesema hapana
+alisena Islam Elbeiti mwanamuziki wa Jazz mwenye miaka 24
 Kupigania haki za wanawake Sudan
 Machi 12 mahakama ya dharura ya Sudan ilikutana na msukosuko wa maandamano nje ya mahakama kutoka kwa familia za wanawake hao na kuahirisha adhabu ya viboko kwa wanawake tisa ambao walikuwa wamehukumiwa viboko 20 na kifungo cha mwezi mmoja kwa kosa la kuandamana
 Kuchapwa viboko ni mojawapo ya adhabu hasa kwa wanawake huko Sudan na hutolewa kwa makosa kama vile kuvaa nguo zisizo za heshima au uzinzi
@@ -3095,64 +3013,21 @@ Picha ya mafuriko katika nchi ya Msumbiji iliyotumwa kwenye mitandao ya kijamii
 Kimbunga aina Idai kinachosababishwa na hali ya kitropiki kimeacha uharibifu mkubwa na vifo baada ya kuzikumba nchi za kusini mwa Afrika za Msumbiji Malawi na Zimbambwe
 Hadi sasa inakadiriwa katika nchi hizo  watu 162 wamepoteza Maisha katika kimbunga hicho
 Kimefanya uharibifu mkubwa karibu jiji lote la Beira nchini Msumbiji
-
-UPDATE A cyclone that slammed into Mozambique last week has damaged or destroyed 90 percent of the city of Beira the Red Cross says as the death toll in the country and neighbouring Zimbabwe rose to 157 httpst
-covZYLj71n4A CycloneIdai pic
-twitter
-comLiWR2MWIsY
-AFP news agency AFP March 18 2019
-Shirika la Msalaba Mwekundu limesema kimbunga ambacho kilichopiga Msumbiji wiki iliyopita kimeharibu asilimia 90 ya mji wa Beira na vifo vinaendelea kuongeza katika nchi hiyo na nchi jirani ya Zimbabwe vimefikia hadi vifo 157
 Hii ni ramani ya mahali ambapo kimbunga hicho kimeharibu
-Sofala Manica Zambezia and Inhambane provinces in Mozambique have been hardest hit by CycloneIdai
-Initial reports indicate significant damage to Beira and surrounding areas including destroyed houses
-httpst
-codAj2RpQKar pic
-twitter
-com1eTv9wdmso
-OCHA Southern  Eastern Africa UNOCHA_ROSEA March 16 2019
-Inakadiliwa  watu 89  wamekufa katika nchi ya Zimbabwe tu huku kukiwa na hofu ya takwimu ya juu katika eneo la Manicaland ya wilaya  Chimanimani ambayo ipo kilometa  406 mMashariki mwa mji mkuu wa Harare Zimbabwe huku nyumba na madaraja yakiwa yamebebwa na dhoruba iliyoanza Ijumaa
-Some people still attempt to cross this bridge in Chimanimani Zimbabwe despite the danger Cyclone Idai pic
-twitter
-comsVC6dDW6jr
-harumutasaaljazeera harumutasa March 17 2019
+Inakadiliwa  watu 89  wamekufa katika nchi ya Zimbabwe tu huku kukiwa na hofu ya takwimu ya juu katika eneo la Manicaland ya wilaya  Chimanimani ambayo ipo kilometa  406 m Mashariki mwa mji mkuu wa Harare Zimbabwe huku nyumba na madaraja yakiwa yamebebwa na dhoruba iliyoanza Ijumaa
 Kutokana na taarifa ya serikali zaidi ya watu 300 hawaonikani 
-Umoja wa Mataifa katika Zimbabwe ulisema kuwa zaidi ya watu 8000 wameathiliwa na mafuriko katika pande za mashariki mwa nchi hiyo
-
-Inasikitisha Maisha ya wtu yamepotea na mali zimeharibiwa Umoja wa Mataifa Zimbambwe ulituma ujumbe wake kupitia twiita
-UN in Zimbabwe is on the ground in Chimanimani district and other areas to support 8000ppl affected by flooding  landslides caused by Cycloneidai
-Sadly lives have been lost  properties destroyed
-Please take heed to SMS  media alerts by Civil Protection
-UN Zimbabwe UNZimbabwe March 16 2019
+Umoja wa Mataifa katika Zimbabwe ulisema kuwa zaidi ya watu 8000 wameathiliwa na mafuriko katika pande za mashariki mwa nchi hiyo Inasikitisha Maisha ya wtu yamepotea na mali zimeharibiwa
 Kutokana na taarifa ya serikali kimbunga Idai kilipiga sana mji wa Ngangu katika Chimanimani ambapo watu wengi wamepoteza maisha
 Zaidi ya nyumba elfu moja ziliharibiwa kwa kuangukiwa na udongo na mawe
 Kimbuka hicho kilitokea katika bahari ya Hindi na kuambatana na mvua nyingi iliyoanza kunyesha Msumbiji Alhamisi ikiambatana na upepo uliovuma kwa mwendokasi wa kilometa 160 kwa saa inalipotiwa ulisababisha mawimbi ya bahari yenye ukubwa wa meta  kwenda juu
-We have no idea how much damage Cyclone Idai has caused  human and otherwise  especially in the area around Beira
-Roads are blocked power lines are down cell phones are offline
-It could be much worse than we know so far
-httpst
-cosOpkTvbZ6W
-Simon Allison simonallison March 18 2019
 Jeshi  na polisi vimetumika kusaidia katika uokoaji wa majeruhi
 Kutokana na taarifa ya Waziri  mvua imeacha kuonyesha na hali ya kuonekana wazi ni nzuri  na hii itasaidia jeshi la anga kutumia helikopita kuokoa watu zaidi 
-The Airforce of Zimbabwe and the Zimbabwe National Army are on the ground saving lives
-President edmnangagwa has deployed an Elite Team from the ZDF CIO  other security forces to deliver aid  rescue victims of Cyclone Idai
-Military Engineers will also assist in rebuilding pic
-twitter
-com5D35YO7RRx
-Kudzai Mutisi KMutisi March 17 2019
 July Moyo Waziri wa mambo ya ndani alisema  kwamba miili inaonekana ikiwa inaelea katika mito na hakuna linguine linaloweza kufanyika kwa sasa
 Barabara madaraja na miundombinu ya simu kwa sasa vimekatika na mamia ya nyumba zimeharibika
 Paolo Cernuschi Mkurugenzi wa nchi wa shirika la msalaba mwekundu International IRC katika Zimbabwe alisema timu ya IRC katika Zimbabwe inajaribu kuzifikia jamii zilizoathiriwa na Kimbunga lakini uharibifu wa miundombinu ni mkubwa sana na timu hiyo imeshindwa kufika Chimanimani au Chipinge
 Kuna matengenezo ya haraka ya barabara yanaendelea kwa hiyo tutajaribu tena kesho Asubuhi alisema Cernuschi
-Our theIRC teams here in Zimbabwe are trying to reach the communities affected by CycloneIDAI but the infrastructure damage is severe and our teams couldnt reach Chimanimani nor Chipinge
-Urgent road repairs in progress so well try again in the morning
-pic
-twitter
-com82VZATHION
-Paolo Cernuschi PaoloCernuschi March 17 2019
 Siku ya Jumapili asubuhi serikali ya Zimbambe ilikutana na Kamati ya wizara zote na baadayae iliunda Kamati ndogodogo 10 zitakazoshughulikia maeneo yaliyoharibiwa sana
 Kamati zitashughulikia maeneo ya chakula rasilimali fedha usalama na malazi usafiri maji na usafi wa mazingira
-
 Afisa wa Idara ya huduma za hali ya hewa alisema kwamba kimbunga kilidhoofishwa na kuhamia kutoka mashariki kuelekea maeneo ya kusini ya Zimbabwe
 Hadi mililita 200 za mvua zimenyesha Chipinge eneo lililopo mashariki mwa Zimbabwe 118 mililita kaskazini mwa Chipinge na 102 mililita katika Buhera eneo la kusini mwa Zimbabwe Afisa alisema 
 Alitahadharisha kuwa nyanda za juu mashariki mwa nchi bado zinategemewa kuwa na mafuriko kutokana na mvua nyingi inayonyesha na alishauri umma kuepuka kusafiri kule
@@ -3164,77 +3039,42 @@ Picha iliyopigwa kutoka kwenye  TV5Monde ikionesha kutoka kulia wagombea katika 
 Kupitia  YouTube
 Mwezi Januari mahakama ya Jamhuri ya kidemokrasia ya Congo ilimtangaza Felix Tshisekedi kuwa ni Rais mteule mpya wa Congo ikitupilia mbali shauri  lililofunguliwa na mshindi wa pili Martin Fayulu ambaye alidai kulikuwepo ulaghai katika kura
 Mwishoni mwa mwezi Disemba mwaka jana Jamhuri ya Kidemokrasia ya Kongo ilikuwa na uchaguzi mkuu uliokuwa na upinzani mkubwa baada ya Rais wa wakati huo Joseph Kabila kuitawala Kongo kwa miaka 18 na kukosa sifa kikatiba ya kugombea  nafasi ya urais kwa kipindi cha tatu
-
 Uchaguzi huo ulitabiriwa kuwa  wa kwanza wa kubadilishana madaraka kidemokrasia kwa miaka 59 tangu Kongo ipate uhuru lakini uchaguzi huo ulighubikwa na mabishano tangu siku ya kupiga kura tarehe 30 Disemba
-
 Mgombea aliyetegemewa kuibuka na ushindi Martin Fayulu wa chama cha uzalendo na Maendeleo alishtaki mahakamani akidai kura zake ziliibiwa
 Yeye na wanachama wake waliamini ni mpango uliofanywa kati ya Tshisekedi wa chama cha  Umoja wa Demokrasia na Maendeleo ya wananchi au UDSP na Rais Joseph Kabila wa chama kinachotawala cha Umoja wa Wakongo au FCC
-
 Tarehe 19 Januari 2019 Mahakama ilitupilia mbali madai ya Fayulu kwa kushindwa kuthibitisha madai yake bila kutia shaka
-
 Kutokana na Tume Huru ya Uchaguzi  Tshisekedi  alipata asilimia 38
 5  ya kura wakati Martin Fayulu wa umoja wa vyama vya upinzani Lamuka alipata asilimia  34
-7 na Mwaminifu  Emmanuel Ramazani Shadary alivuna asilimia 23
-8
-Mahudhurio ya wapiga kura yalikuwa ni asilimia 47
-6 chini ya nusu ya wapiga kura wote
-
+7 na Mwaminifu  Emmanuel Ramazani Shadary alivuna asilimia 23.8
+Mahudhurio ya wapiga kura yalikuwa ni asilimia 47.6 chini ya nusu ya wapiga kura wote
 Baada ya kutangazwa shangwe za sherehe zilianzia makao makuu ya chama katika mji mkuu Kinshasa
 Miongoni mwa marais wa nchi za Afrika Rais wa Afrika ya Kusini Cyrill Ramaphosa alimpongeza Tshisekedi na Rais wa Jamhuri ya Muungano wa Tanzania John Magufuli alituma ujumbe wake wa kumpongeza kupitia twiita
-
-Following the judgement by the High Constitutional Court
-I congratulate HE
-Felix Tshisekedi on his election as President of the DRC
-While congratulating all the Congolese I beseech you to maintain peace and affirm my commitment to furthering our historic and brotherly ties
-Dr John Magufuli MagufuliJP January 20 2019
-Ingawa kulikuwa na kutokukubaliana na matokeo ya uchaguzi miongoni mwa wanachama wa Umoja wa Afrika Umoja huo AU umempongeza na kumkaribisha Tshisekedi ambaye alitoa hotuba yake ya kwanza kwa umoja huo tarehe 10 Februari kushukuru ukaribisho
-Lakini miezi miwili baada ya uchaguzi huo wa mgogoro wengi wanahofia kwamba kubadilishana madaraka kulifanywa kwa umakini kuhakikisha kwamba  Kabila anaendelea kuwa madarakani  kupitia makubaliano aliyoyafanya na Tshisekedi
-I welcome U
-S sanctions on individuals for their responsibility in fabricating electoral results
-In a spirit of consistency I encourage the U
-S to extend sanctions to those who willfully benefited from the very corruption it is sanctioning and to those who orchestrated it
-DRC
-Martin Fayulu MartinFayulu February 23 2019
 Tshisekedi ni nani
 Félix Antoine Tshilombo Tshisekedi alizaliwa Léopoldville tarehe  13 Juni 1963
 Baba yake ni Etienne Tshisekedi ambaye alitawala sana siasa za Kongo kama mwanzilishi wa chama cha  UDPS  ambacho ni chama kikubwa cha upinzani
-
-Kutokana na siasa za upinzani za baba yake familia uliwekwa   uhamishoni kwa nguvu katika mji walimokuwa wanaishi wa Kasai miaka ya 1980
-Baadaye Tshisekedi alisafiri na baba yake kuelekea Ubelgiji  ambapo alihitimu stashahda ya uhasibu mwaka 1987
+Kutokana na siasa za upinzani za baba yake familia uliwekwa   uhamishoni kwa nguvu katika mji walimokuwa wanaishi wa Kasai miaka ya 1980 Baadaye Tshisekedi alisafiri na baba yake kuelekea Ubelgiji  ambapo alihitimu stashahda ya uhasibu mwaka 1987
 Kati ya miaka ya 19912001 alipata shahada mbalimbali na kufanya kazi katika idara ya masoko
-
 Wakati yuko Ubelgiji aliingia kwenye siasa kama baba yake na akawa Katibu wa Taifa wa mahusiano ya Kimataifa wa chama cha UDPS  mwaka 2008
 Mwezi Novemba 2011 aligombea kuwa mwakilishi wa mji wa Mbuji Mayi katika Kasai lakini alikataa kutumikia nafasi yake akidai kulikuwa na udanganyifu katika uchaguzi
-
 Baba yake alitarajiwa kuchukua majukumu ya madaraka wakati Kabila akimaliza muda wake lakini kwa kifo chake kilichotokea tarehe 1 Februari 2017 kijana wake Felix Tshisekedi alichaguliwa kuiongoza UDPS akiaminiwa kuwa na uwezo wa kuongoza
-
 Askari wa watu  Maskitiko ya wapinzani yaendelea 
 Ushindi wa Tshisekedi unaweza kuleta amani katika Jamhuri ya Kidemokrasia ya Kongo au kulipua machafuko kutegemea Fayulu ambaye  dhahiri aliyakataa matokeo ya uchaguzi  kama atakubali au kukataa serikali hii ya mpito
-
 Fayulu aliyaita matokeo ya uchaguzi  Mapinduzi ya katiba na  uchaguzi wa ghilibu
 Tarehe 14 Januari Kanisa la Romani Katoliki ambalo ni taasisi inayoheshimiwa sana katika Jamhuri ya Kidemokrasia ya Kongo ilisema
 Matokeo ya uchaguzi wa Rais yaliyotangazwa na tume ya uchaguzi hayaendani na yale tuliyokusanya kwa kutumia waangalizi wetu
 Sio siri mmenichagua kuwa Rais Fayulu aliutangazia umma akijiona yeye kama Rais halali wa Jamhuri ya kidemokrasia ya Kongo
 Fayulu amekuwa akihusika sana katika kampeni na amekuwa akiratibu na kuongoza maandamano ya kudai kuanzishwa kwa demeokrasia ya vyama vingi miaka ya 2016 na 2017
-
 Francesca Bomboko ambaye ni Mkurugenzi wa Berci International kikundi cha utafiti na ushauri katika Jamhuri ya Kidemokrasia ya Kongo aliimbia BBC kuwa Fayulu amehusika sana kumpinga Kabila
 Fayulu amewaambia kwamba wakongo wanamwita  askari wa watu 
 Fayulu alipochaguliwa kuwa mgombea wa vyama vya upinzani Albert Moleka mfanyakazi mwandamizi wa Etienne Tshisekedi aliiambia BBC kwamba  Fayulu anaweza kuwa  Etienne Tshisekedi mpya akisema  ni yeye ambaye anafaa kuunganisha upinzani 
-
 Akiungwa mkono na makamu wa Rais wa zamani JeanPierre Bemba na Moise Katumbi gavana wa zamani wa jimbo la Katanga lenye utajiri wa madini Fayulu anaonekana kuwa na nguvu na ushawishi katika siasa za Jamhuri ya Kidemokrasia ya Kongo
-
 Akiwa hana kuungwa mkono sana kutoka kwenye chama chake ushindi wa Tshisekedi ulipatikana kwa mshangao
 Kutokana na kikundi kinachohusika na migogoro kimataifa UDSP iligawanyika katika makundi baadhi walimkataa kumpa madaraka Tshisekedi ambaye ni mtoto wa Etienne
-
 Felix Tshisekedi pia ni mchanga sana katika nyanja hii ya siasa
 Tshisekedi amekosolewa kwa kutojaliwa kipaji  na kutokuwa na uzoefu wa nafasi za juu katika kisiasa anapata kuungwa mkono kisiasa kutokana na uwezo na sifa ya   baba yake hii ni kutokana na Simon Allison wa  Mail  Guardian
-
 Kwa upande mwingine Tshisekedi ni mwanadiplomasia mtu wa maridhiano na msikivu wa watu alisema mwanachama wa chama cha upinzani cha Kongo 
-
 Ameahidi kujenga nchi ya Amani Utulivu na Umoja
-
 Tarehe 20 Januari Tshisekedi alisema kwamba ushindi wake  kuthibitishwa na mahakama ni ushindi wa nchi nzima
-
 Ni Kongo iliyoshinda
 Nimeingia kwenye kampeni ya kuwasuluhisha wakongo wote
 Kongo haitagawanyika wala haitakuwa ya chuki na ukabaila
@@ -3246,78 +3086,53 @@ Tunaweza kushuhudia mwanzo wa siasa za mihili ya dola kudhibitiana ili kuzuia ma
 Yajayo ya Jamhuri wa Kidemokrasia ya Kongo Yanakwazwa na historia yake mbaya 
 Jamhuri ya Kidemokrasia ya Kongo ilipata uhuru mwaka 1960
 Tangu hapo wananchi wamekuwa wahanga wa ukiukwaji wa haki za binadamu kama vile mauaji holela mateso na ukiiukwaji wa kijinsia pamoja na ubakaji na utekaji
-
-
 Mradi wa kukusanya taarifa ya migogoro Uppsala ilihitimisha kuwa serikali ya Laurent kabila ilishuhudia miaka mitatu yenye kiwango cha hali ya juu ya vifo vilivyosababishwa na migogoro mwaka 1998 kulikuwa na vifo vipatavyo 13884 mwaka 1999 vifo 8019 na mwaka 2000  kulikuwa na vifo 7537
 Je serikali mpya ijayo ya Felix Tshisekedi itamaliza machafuko au itayachochea Tusubiri
 
 Makala 73
 Ahmed HusseinSuale Divela Picha na Kamati ya Kulinda Waanadishi wa HabariMwezi mmoja baada ya ya kupigwa risasi akiwa kwenye gari yake huko Madina nchini Ghana Ahmed HusseinSuale Divela Mgana aliyekuwa mwandishi  wa habari za kiuchunguzi wanaharakati wanahitaji majibu na maelezo ili kujua  mazingira ya kifo chake cha kutisha
-
 Kikundi cha Maendeleo ya Umoja wa Waandishi wa Habari kilifanya matembezi ya mshikamano na amani  katikati  ya mwezi Februari mjini Accra kutoa ujumbe kwa jeshi la polisi kwamba wauaji wa Divela hawajajulikana na kushtakiwa
 Wanasema matembezi hayo yataendelea hadi kikundi hicho kipate majibu
-
 Mauaji ya Divela yanatoa tahadhari kwa uhuru wa waandishi wa habari nchini Ghana ambapo mauaji ya kikatili ya waandishi wa habari ni nadra hayo ni kutokana na  Kamati ya Kulinda Waandishi wa Habari 
-
 Hata hivyo mhamasishaji wa kikundi Kofi Asante anasema kwamba kikundi chake kina orodha ya wanahabari 31 waliouliwa  Kumasi baadhi yao waliuawa mwaka 2018 na imegeukia  Ghana yenye sifa kuwa nchi ya kwanza Afrika katika kutoa uhuru wa habari na ya 23 ulimwenguni
-
 Je Ahmed HusseinSuale Divela alikuwa ni nani
 Ahmed HusseinSuale Divela alifanya kazi katika gazeti la  Wakala wa uchunguzi wa habari za siri la Tiger eyes lililoongozwa na  Anas Aremeyaw Anas
 Mbinu yao isiyo ya kawaida katika kufanya uandishi wa habari za kiuchunguzi ziliiwezesha kuweka wazi habari za watu wazito na wenye wasifu  mkubwa katika Afrika
-
 Hivi karibuni Divela alihusika katika habari ya kiuchunguzi ambayo iliweka wazi habari juu ya Rais wa zamani wa shirikisho la mpira la Ghana Kwesi Nyantakyi ambaye pia alikwa ni mjumbe wa Halmashauri kuu ya FIFA ya kutuhumiwa kupokea rushwa ya dola za kimarekani 65000
 Baraza la maamuzi la FIFA lilimuhukumu Nyantakyi  Maisha  kutojishughulisha na masuala yanahusu mpira wa miguu
 Anas alitangaza kuuawa kwa Divela kupitia twita ambayo iliambatana na video inayoonesha mjumbe wa bunge la Ghana Kennedy Agyapong akiongea mbashara kwenye runinga mwezi Mei 2018
-Sad news but we shall not be silenced
-Rest in peace Ahmed
-JournalismIsNotACrime SayNoToCorruption pic
-twitter
-comGk2Jdgo6Sn
-Anas Aremeyaw Anas anasglobal January 17 2019
 Mwezi  September 2018 Divela aliiambia Kamati ya Kulinda Waandishi wa Habari  kupitia  WhatsApp kwamba baadhi ya watu wenye nguvu  katika nchi ya Ghna walikuwa wanamtafuta ili kumdhuru baada ya sura yake kuonekana kwenye kituo cha runinga cha NET 2 TV mwezi Mei 2018 na Agyapong
-
 Tangu sura yangu ionekane na umma ulinichukia  watu wengi wamejaribu kunishambulia
 Vitendo hivi vya jinai juu yetu ni vya watu ambao  wana nguvu katika Ghana na wanaweza kufanya lolote na kutokamatwa
 Ni kweli ilizungumzwa katika baadhi ya mitaa kwamba mtu yule yule ambaye alichapisha sura yangu alisema alikuwa anafanya lolote liwezekanalo aniue  
 Maneno ya mbunge yana nguvu
 Agyapong ambaye ni mwanachama wa chama tawala kipya cha Wazalendo amekuwa mbunge kwa miaka 19
-Katika mapambano yake dhidi ya rushwa Agyapong anajulikana kwa kutengeneza mashtaka ya rushwa dhidi ya wanasiasa ambao ni wala rushwa
-hasa wale wa ndani ya chama chake 
-
+Katika mapambano yake dhidi ya rushwa Agyapong anajulikana kwa kutengeneza mashtaka ya rushwa dhidi ya wanasiasa ambao ni wala rushwa hasa wale wa ndani ya chama chake 
 Mjadala ulipamba moto hasa kuhusu maoni ya Agyapong aliyoyatoa mbashara kwenye runinga kama ndiyo yamepelekea kuuawa kwa Divela 
 Kijana huyo ni hatari sana
 Anaishi hapa Madina
 Kama ukikutana naye mahali pasua masikio yake
 Kama akitokea maeneo haya nawaambia mpigeni
-
-Agyapong alithibitisha matendo yake na alisema maoni yake hayakumaanisha kusababisha madhara wala mvutano
-Divela  aliyasema hayo akiwa na mfanyakazi anayefanya kazia na Agypong
+Agyapong alithibitisha matendo yake na alisema maoni yake hayakumaanisha kusababisha madhara wala mvutano Divela  aliyasema hayo akiwa na mfanyakazi anayefanya kazia na Agypong
 Katika  video nyingine   Agyapong anapendekeza kwamba Anas ni mshukiwa  mkuu katika kifo cha Divela
 Aliahidi kulipa  zawadi ya fedha ya Ghana ipatayo 100000  about sawa na US dollars  kwa yeyote ambaye atakayewapata wauwaji wa Divela iwe uthibitisho kuwa hakushiriki katika mauaji yake
-
 Agyapong aliondoka Ghana baada ya jeshi la polisi kumhoji   alikanusha vikali  kuwa haikimbii Ghana au hakuthibishwa kuwa mshukiwa
-
 Watu sita wamekamatwa na kuachiwa kwa dhamana kufuatia mauaji ya Divela
 Jeshi la polisi lilieleza   kuwekwa nguvuni kwa washukiwa kulikuwa  kunazingatia tuhuma za msingi
 Hata hivyo vitambulisho vyao bado vimeshikiliwa
-
 Uandishi wa habari hatarishi 
 Wakala wa uchunguzi wa habari za siri Tiger Eyes limekuwa likipokea vitisho kwa miaka kadhaa na lilishtakiwa kwa kutumia mbinu ambazo zinavunja miiko ya uandishi wa habari
-
 Wakati hakuna Ushahidi wa kuonesha kumuunganisha Agyapong  moja kwa moja na mauaji ya Divela maneno yake yana nguvu na yaliongelewa kwenye kituo cha runinga na yeye mwenyewe
-
 Taarifa ya CPJ  inadhihirisha kwamba mwaka 2018 waandishi wa habari wapatao 53 ulimwenguni waliuawa 34 kati yao waliuawa kwa kuadhibiwa kutokana na kazi azo
 Kati ya mwaka 2016 na 2017 waandishi wa habari 102 waliuwa kutokana na matokeo ya kazi zao
 Zaidi ya waandishi wa habari elfu moja waliuwa  muongo uliopita 20062017 hii ni kutokana na  taarifa ya UNESCO  
 Kuuliwa kwa mwandishi mashuhuri wa Washington wa Makala  Jamal Ahmad Khashoggi kwenye ubalozi wa Saudi Arabia nchini Istanbul tarehe 2 mwezi Oktoba 2018 na mawakala wa serikali ya Saudi iliibua hasira ulimwenguni kote
 Awil Dihar Salad mwandishi wa habari mkongwe nchini Somalia  aliuawa  mwezi Disemba 2018
 Salad alikimbia Somalia mwaka 2005 akiogopa kuuwa lakini baadaye aliporudi aliuwa
-
 Mapema mwezi Julai 2018 waandishi wa habari watatu wa Kirusi waliuwa katika Jamhuri ya Afrika ya kati wakati wa shughuli za uchunguzi  wa kikundi kilichoitwa Wagner kikundi cha makadarasi wa jeshi wa kujitegemea 
 Kujihusisha na uandishi wa habari za kiuchunguzi inaweza kuwa kama kusaini kibali cha kifo
 Serikali nyingi za kiafrika haziruhusu na huzuia hasa habari za namna hiyo zisichapishwe
 Fikiria malipo ya chini sana ya waandishi wa habari haina maana kwa waandishi wa habari wengi kuwa katika hatari hii kubwa
-
 Hata hivyo kifo cha Divela hakitasahaulika ingawa kazi yake itaendelea kuishi
 Waandishi wa habari na wanaharakati wataendelea kuwa na matembezi hadi ufumbuzi upatikane
 
@@ -3326,41 +3141,28 @@ Bango lenye picha ya Rais wa Msumbiji Filpe Nyusi Nyusi
 Picha na  Dércio Tsandzana na imetumiwa kwa kibali
 Kwa mara ya sita tangu mwaka 1994 Msumbiji itamchagua Rais wake mwingine mwezi Oktoba 2019  na kwa mara ya kwanza itawachagua wakuu wa majimbo
 Ingawa ushindani huo haujafunguliwa rasmi kwa ujumla inategemwa kwamba upinzani ndani ya siasa za Msumbiji utashindana Frelimo chama kinachoongoza serikali tangu 1994 na Renamo ambacho ni chama kikuu cha upinzani
-
 Itakuwa mara ya kwanza Renamo kupambana bila kiongozi wao wa kihistoria Afonso Dhlakama ambaye amekiongoza chama hicho kwa zaidi ya miongo minne
 Dhlakama alifariki tarehe 3 Mei 2018 kutokana na mshtuko wa moyo
 Dhlakama atakumbukwa kama kiongozi wa Renamo ambaye alisaini Makubaliano ya amani na Rais wa zamani Joaquim Chissano mwaka 1992 ambayo yaliiweka Msumbiji katika mstari kuelekea Demokrasia
 Ili kushinda Renamo imemchagua Ossufo Momade baada ya kupendekezwa na mkutano mkuu wa chama uliofanyika Gorongosa mwezi Juni mwaka 2018 katika jimbo la kati la Sofala ambapo ndio ngome ya Renamo
-
 Yamkini ndiye atakuwa mgombea wa Renamo mwezi Oktoba na inawezekana akapambana na Rais wa sasa Filip Nyusi ambaye anatoka chama Frelimo na Daviz Simangoambaye anatoka chama kingine cha upinzani cha Demokrasia Msumbuji MDM
 MDM ilianzishwa mwaka 2009 sambamba na Renamo na Frelimo ndiyo vyama ambavyo vina wawakilishi katika Bunge la Jamhuri au kuongoza manispaa
 Daviz Simango amegombea urais na kushindwa katika chaguzi mbili zilizopita za urais
-
 Upigaji kura wa mwezi Oktoba unaweza kutokea katikati ya  makubaliano ya kusitisha mapigano  yaliyosainiwa kati ya jeshi la Renamo na majeshi ya  serikali mwaka 2016 ambapo hivi karibuni pande hizo zimevutana maeneo ya pembezoni mwa Msumbiji
 Mwezi Februari 2019 Tume ya taifa ya uchaguzi CNE ilitahadharisha umma juu ya ukosefu wa rasilimali fedha kwa ajili ya kuratibu uchaguzi nchi nzima
-
 Tarehe muhimu
 0104  1505 uandikishaji wa wapiga kura
 3108 a 1210 kuanza kwa kampeni 
 1510 Siku ya kupiga kura 
 Labda muhimu zaidi ni kwamba hii itakuwa ni mara ya kwanza kwa wanamsumbiji kuchagua  magavana wa majimbo
 Siku za nyuma walikuwa wakiteuliwa na Rais
-
 Mabadiliko hayo ni matokeo ya makubaliano mazito na yaliyochukua muda marefu  kati ya Renamo na serikali
-
 Wakati Rais hajaondoa sheria ambayo itaendana na mabadiliko haya hata hivyo inaaminika kuwa atafanya hivyo
 
 Makala 75
-Katika hotuba yake ya mwaka kwa taifa Vladimir Putin amewaahidi warusi mtandao wnye kasi zaidi na wakuaminika
-wataalamu wanasema Kuwa hakika hautatolewa bure
-TASSkremlin
-ru under CC2
-0
+Katika hotuba yake ya mwaka kwa taifa Vladimir Putin amewaahidi warusi mtandao wenye kasi zaidi na wakuaminika wataalamu wanasema Kuwa hakika hautatolewa bure
 Februari 20 Vladimir Putin alihutubia bunge la urusi katika  hotuba yake ya mwaka kwa taifa
 Ameahidi uwekezaji mkubwa katika miradi ya kijamii na miundombinu hasa kwenye msingi wa teknolojia ya habari
-Уже в текущем году необходимо принять генеральную схему развития инфраструктуры цифровой экономики включая сети телекоммуникаций мощности по хранению и обработке данных
-И здесь также нужно смотреть вперёд
-Задача ближайших лет  организовать повсеместный доступ к высокоскоростному интернету начать эксплуатацию систем связи пятого поколения 5G
 Mwaka huu lazima tuwe na mpango madhubuti wa kuendeleza miundombinu ya kiuchumi ya kidigitali ikiwemo mitandao ya simu na utunzaji wa taarifa na kasi kubwa ya usambazaji
 Hapa pia tunapaswa kuangalia mbele
 Kazi ya miaka michache ijayo ni kutoa upatikanaji wa mtandao wenye kasi kubwa kwa wote na kuanza kutumia mitandao ya simu yenye nguvu ya masafa ya 5G
@@ -3370,46 +3172,34 @@ Mwezi wa Februari taarifa mbili zilieleza kwamba uhuru mtandaoni umeendelea kuzo
 Hakika inaonekana kuwa wakati Warusi wengi watakuwa na mtandao utakuwa mtandao unaotawaliwa na masharti
 Utafiti mmoja uliofanywa na  Agora kikundi cha Haki za binadamu kimeweka wazi njia mbalimbali ambazo mamlaka za Urusi zinazuia watumiaji binafsi mitandao ya kijamii na vyombo vya habari mtandaoni
 Agora inasema njia zaidi ambayo imekuwa ikitumika ni sheria na kanuni ambazo zinawalazimisha watoaji wa huduma za mtandao na wataalamu wakubwa wa mifumo ya mitandao kulinda na kusimamia maudhui mtandaoni kwa niaba ya serikali ya Urusi
-
 Zaidi ya mara moja watoaji wa huduma za mtandao walilazimishwa kuzuia upatikanji wa tovuti za kuchapisha habari juu kesi mahakamani au kuweka wazi rushwa serikalini
 Katika kesi iliyohusu kigogo mkubwa watoa huduma walilazimika kuzuia upatikanaji wa tovuti ya Alexey Navalny ambaye ni mwanaharakati mashuhuri wa upinzani na mpiga kampeni ya kuzuia rushwa
 Ripoti ya Agora inasema
-Власти подготавливают почву для блокировки сервисов которые считают основными катализаторами массовых протестов пытаясь представить ее как требование соблюдать национальное законодательство
-Делегирование полицейских и цензорских функций частным игрокам не только минимизирует ущерб репутации но и очевидно более оправдано с точки зрения расходования ресурсов и эффективности контроля
 Mamlaka zimeanzisha njia za kuzuia huduma mtandaoni ambazo wanaziona kama vichocheo vya maandamano ya watu wengiinakuwa ni sharti la kufuata sheria za nchi wakati wanapotekeleza ukandamizaji huu
 Kazi za kulinda na kudhibiti maudhui mtandaoni kufanywa na taasisi binafsi haipunguzi tu  uhalibifu bali pia huhakikisha uendeshaji na utumiaji mzuri
 Pia Agora inaona kuna ongezeko kubwa la vikwazo juu ya kutuma maudhui kwa mtu jumla ya maudhui 662842 yalidhibitiwa mwaka 2018 ukilinganisha na maudhui 115706 katika mwaka 2017
-Hii ni pamoja na kufungiwa kwa tovuti URL za watu binafsi Makala mtandaoni jumbe za mitandao ya kijamii zilizonekana kuwa na msimamo mkali au uchochezi n
-k
-
+Hii ni pamoja na kufungiwa kwa tovuti URL za watu binafsi Makala mtandaoni jumbe za mitandao ya kijamii zilizonekana kuwa na msimamo mkali au uchochezi nk
 Mifano michache ya habari njema  ni ibara ya 282 Uchochezi wa chuki au uadui pamoja na kufedhehesha heshima ya mtu moja ya vipengele vibaya vya sheria za jinai Urusi inahusika sana kwa mashtaka juu ya mazumngumzo mtandaoni ilibadilishwa katika marekebisho  yaliyofanyika mwezi Desemba 2018
 Hii imefanya mashtaka yanayohusiana na mazungumzo mtandaoni kupungua
 Hata hivyo wataalamu wa sheria wana wasiwasi juu ya uwezekano wa kufanya sheria za Urusi kuwa huria
 Taarifa ya Agora inatabiri kuwa  waendesha mashitaka wa serikali wanaweza kubadili na kutumia ibara nyingine za jinai na uendeshaji ambazo sio kali sana kuwaadhibu wapinzani
 Hii itawasaidia kuwafanya watumiaji binafsi na taasisi kukaa kimya bila kuchochea upinzani kutoka kwa umma
-
 Pia Agora inaona kwamba jukwaa la teknolojia ya habari la magharibi linaendelea kuridhia madai ya mamlaka za Urusi mwenendo ambao huko nyuma Runet Echo aliuzungumzia
 Ikitaja   uwazi wa taarifa ya Google  Agora inasema kwamba mwezi Juni 2018 Google ilithibitisha kutendea kazi asilimia 79 ya maombi ya serikali ya kuondoa habari wakati maombi kama hayo kutoka kwenye mamlaka za Marekeni ni asilimia 62 tu iliyofanyia kazi
 Taarifa ya Google inaonesha kuwa maombi ya serikali ya Urusi ya kuondoa maudhui yaliongezeka maradufu kwa zaidi ya mara tano katika miezi sita katika mwaka wa 2016 kutoka 2045 hadi 11164 mwezi Desemba
-
 Pongezi kwa Google kwa kutokubalina na maombi 94 ya serikali ya Urusi ambayo yaliainishwa kama ukosoaji kwa serikali
-Pia Google hutoa baadhi ya mifano ya maudhui wanayoyaondoa na sehemu muhimu ambayo ni hatarishi kwa umma matangazo kwa ajili ya kamari haramu ambayo hufedhehesha watu waliochuma ruba sarafu ya urusi kwa taabu propaganda mbaya ya ubaguzi  masoko ya madawa ya kulevya mtandaoni yanayouza madawa hatari n
-k
-
+Pia Google hutoa baadhi ya mifano ya maudhui wanayoyaondoa na sehemu muhimu ambayo ni hatarishi kwa umma matangazo kwa ajili ya kamari haramu ambayo hufedhehesha watu waliochuma ruba sarafu ya urusi kwa taabu propaganda mbaya ya ubaguzi  masoko ya madawa ya kulevya mtandaoni yanayouza madawa hatari nk
 Lakini Google walikubaliana na maombi ya kuondoa video za wanaharakati  waliokuwa wakiitisha maandamano dhidi ya rushwa kwa sababu maandamno haya yalitamkwa kiholela kuwa yamezuiliwa na kwa hiyo ni uvunjaji wa sheria ya katazo iliyolenga kukandamiza upinzani wa umma
-
 Twitter Google and Facebook wote wameonesha nia ya kuondoa maudhui au kutopatikana kwa watumiaji wa Urusi  kutokana na kupokea maombi kutoka kwenye mamlaka ya Urusi ili kutii sheria za nchi
 Kuna dalili kidogo sana kampuni hayo kuangalia chanzo cha kizuizi kwa baadhi ya sheria hizi au hata kupima maombi haya dhidi ya katiba ya Urusi
 Taarifa nyingine iliyotolewa na jamii inayolinda mtandao  OZI inaonesha giza nene katika utabiri wake Ina kichwa cha habari Mwaka Mpya usio na matumaini na inaonesha anguko kubwa na la muda mrefu la uhuru wa kutoa maoni mtandaoni tangu kuanza kwa vigezo mwaka 2016
 OZI inaorodhesha matukio saba ambayo yaliadhiri uhuru wa kuongea mwezi Januari kuanzia baadhi ya vifungu vipya vya sheria hadi mashauri ya kihistoria kama vile mashtaka  ya Yana Antonova bigwa wa upasuaji wa Watoto wa Krasnodar ambaye alishtakiwa kwa kutumiwa video na Open Russia mtandao wa kijamii wa kiharakati uliotangazwa kuwa taasisi isiyofaa
-
 Kwa kuwa na mahusiano na taasisi isiyofaa   pia orodha ya serikali  inajumuisha taasisi ya majaliwa ya demokrasia ya taifa na msingi wa jamii iliyowazi   ni kosa linalostahili adhabu na sheria iliyoanzishwa 2015 ikiwa na adhabu mbalimbali kuanzia faini kubwa hadi kifungo gerezani
 Hata pia kutumiana video kupitia Facebook kunahesabiwa kama kushirikiana na taasisi isiyofaa kama iliyomkumba Antonova
 Pia taarifa ya OZI ilisistiza uharibifu mkubwa uliosababishwa na muswada wa Klishas ambao uliletwa kama sehemu ya sheria zenye vizuizi ambazo sasa zinafanyiwa marekebisho na Bunge la Urusi
 Ukiwa na jina la mwandishi aliyeuandika Senator Andrey Klishas muswada huo unalenga kujenga miundombinu huru  kwa mtandao wa Urusi  hasa kuulinda usingiliwe na wageni
 The other  Muswada wa kupambana na habari za uongo nao uliandikwa na Klishas nao pia una utata sana  na umelaumiwa karibu na wataalamu ulimwenguni kote
 Hata hivyo miswada yote ilipitishwa iliposomwa kwa mara kwanza shukrani kwa chama tawala cha Umoja wa Urusi kilizuia kutokana na kuwa na wabunge wengi katika bunge
-
 Inaonekana serikali ya Urusu inatumaini nguvu yake ya kudhibiti shughuli za mtandaonikiasi kwamba sasa inawahakikishia utoaji na upatikanaji wa mtandao kwa Warusi wote bila kuhofia mabaya yanayoweza kutokea
 
 Makala 76
@@ -3421,13 +3211,11 @@ Yupo nje kwa dhamana wakati akisubiri rufaa yake
 Wham ni mwanaharakati anayejulikana kwa kampeni zake za kutetea haki za wafanyakazi wa kigeni uhuru wa kutoa maoni katika Singapore na mageuzi ya sheria za nchi za kuwekwa kizuizini na hukumu ya kifo
 Mwezi uliopita Wham alikuwa  ameshtakiwa kwa kufanya mkutano haramu  kwa kuwa mwenyeji wa jukwaa la Novemba 2016 liliokuwa na mada juu ya uasi wa raia na harakati za kijamii ambao ulihudhuriwa na Joshua Wong na wanaharakati wa vyombo vya habari vya ndani
 Wham aliambiwa na polisi kwamba anahitaji kuwa na kibali cha kuruhusu Wong kuzungumza lakini aliendelea bila kuwa nacho
-
 Tarehe 21 Februari Wham alipigwa faini na mahakama S 2000 sawa na dola za kimarekani 1476 kwa kuandaa mkutano wa wazi bila kibali cha polisi
 Pia alipigwa faini ya S 1200 sawa na dola za kimarekani 886 kwa kushindwa kutia saini maelezo ya polisi
 Vyombo vya habari vya Singapore vililipoti  kwamba Wham alikataa kulipa faini na mahakama ikamhukumu siku 16 kwenda jela kwa kushindwa kulipa faini
 Sambamba na mkutano haramu pia Wham alishtakiwa kwa kukataa kutia saini maelezo ya ushahidi uliotolewa na polisi
 Wakati anakataa kutia saini alisema kuwa hakupewa  nakala ya maelezo hayo
-
 Wham anatarajia kukata rufaa kupinga maamuzi ya Jaji
 Ameachiwa kwa dhmana ya S 8000 sawa na dola za kimarekani 5906 hii ni kutokana na ripoti za vyombo vya habari
 Mkutano unaohojiwa uliandaliwa na Mtandao wa Jumuia kwa Vitendo ambao ni shirika lisilo la kiserikali linalojihusisha na uhuru wa kutoa maoni katika mji mkuu wa nchi
@@ -3459,7 +3247,6 @@ Mwishoni mwa mwaka 2017 Bunge la nchi ya kisiwa cha Polynesian walipiga kura bil
 Serikali ya Tuilaepa ilisema sheria hiyo itatumika dhidi ya mabloga na watumiaji wa Facebook wasiojulikana ambao wanasambaza uongo na habari za upotoshaji
 Waziri Mkuu alirejea sheria hii katika malalamiko yake dhidi ya Malele ambaye ameshitakiwa kwa kutuma habari za uongo juu yake na siasa za Samoa
 Ililipotiwa kuwa Malele aliandika kwenye Blogi yake kwamba Tuilaepa alifanya mauaji wizi rushwa na biashara ya magendo ya usafirishaji ya silaha
-
 Tuilaepa alisisitiza kuwa hayupo dhidi ya wananchi wanaotoa mawazo yao
 Sizuii yeyote kutumia haki yake ya uhuru wa kutoa mawazo au uhuru wa kujieleza bali nachukua hatua pale haki za watu wasio na hatia kama mimi zinapovunjwa kupitia uongo na  udanganyifu
 Sheria iliundwa kuzuia aina hii ya kuongopa na kushambulia wajumbe wa jumuia kupitia vyombo vya habari
@@ -3470,12 +3257,10 @@ Tutajitahidi kufanya kadri ya uwezo wetu kuwasaidia wale wanaothiriwa na kauli z
 Mwenyekiti wa baraza la uhuru wa Pacific Bernadette Carreon wa Palau alieleza juu ya kukamatwa kwa Malele kama shambulio dhidi ya uhuru wa kutoa maoni
 Lenga kupambana na rushwa na sio uhuru wa kutoa maoni
 Sheria mpya ambayo imetokana na sheria ya zamani ya maandishi ya kukashfu tangu ukoloni imewasukuma viongozi wa Samoa kugeuka na kuangalia nyuma badala ya kuangalia mbele
-
 Bloga Ole Palemia ambaye ni mkosoaji mwingine wa serikali alikosoa  uamuzi wa kumkamata Malele
 Kitu ambacho watu mara nyingi hukumbuka na wanachotaka kujua ni kwamba mla rushwa waziri Mkuu Tuilaepa na wanasiasa wote ni viongozi wa umma kwa hiyo wanapaswa kukosolewa na umma  hiyo ndiyo inayoitwa demokrasia
 Kukamatwa kwa Malele kumeibua mjadala mkali katika Samoa
 Taarifa ya habari iliyotafiti  maoni ya baadhi ya wananchi ambao walieleza juu ya kukamatwa kwa Malele na wengine walikubalina na kesi hiyo ya kukashfu na wakashauri wakosoaji kuwa na heshima kwa waziri mkuu wa nchi
-
 Malele amepangiwa kufikishwa mahakamani tarehe 5 Machi
 
 Makala 78
@@ -3547,23 +3332,16 @@ Muhamad anasema alishajaribu kuwasiliana na ubalozi wa Niger huko Addis Ababa la
 Kwa ilivyokuwa mwaka 2018 kwa sasa Israel ina wahamiaji wa Kiafrika 34000 ambao walichukua safari za hatari wafike Israel kutafuta maisha bora
 Lakini Israel inalalamika kuwa wengi wao ni wahamiaji wa kiuchumi ambao wanakwamisha uchumi wa Israel
 Kuchagua kubaki inamaanisha kifungo gerezani au chaguo hafifu la makazi
-
 Waziri Mkuu Benjamin Netanyahu na chama cha mrengo wa kulia cha Likud wamebaki kuwalenga wale wambao wanahisiwa kuwa wamejipenyeza
 Utafiti wa Taasisi ya Demokrasia ya Israel unasema kuwa asilimia 66 ya Waisraeli wanaunga mkono utaratibu wa serikali wa kuwarudisha makwao wahamiaji wa Afrika
-
 Muhamad anadai kuwa alikuwa akiishi Israel kihalali na alikuwa akifanya kazi kwenye kiwanda na anadai kuwa serikali ilimnyanganya hadhi yake ya kupata makazi na kumtupa nje ya nchi
 Mamlaka za Ethiopia haijamkamata Muhamad na imekuwa ikimpatia chakula kwa kipindi chote alichokaa ndani ya uwanja wa ndege
 Kitaalamu Ethiopia ni moja ya watia saini wa azimio la 1951 kuhusu hadhi ya wakimbizi na Protokali ya 1967 na pia 1969 Azimio la Umoja wa Afrika kuhusu utawala wa mambo ya msingi kuhusu matatizo ya wakimbizi barani Afrika na karibu wakimbizi wote wanaoingia Ethiopia hupewa hifadhi kwa msingi wa prima facie lakini Muhamad aliniambia kuwa hana mpango wa kuomba hifadhi nchini Ethiopia
-
 Katika mahojiano ndani ya video hii Muhamad ananieleza jinsi anavyojisikia baada ya kukwama uwanja wa ndege huku akiwa hajui mustakabali wa maisha yake ya baadaye
 
 Makala 80
 Picha ya Skrini kutoka katika video ya Balozi wa Urusi akihutubia katika kituo cha runinga cha Africa Guinee TV huko YouTube kwa KifaransaHapo Januari 9 2019 Alexander Bregadze Balozi wa Shirikisho la Urusi kwa Jamuhuri ya Guinea alituma salamu za Mwaka mpya kumpongeza Rais Alpha Condé wa nchi hiyo ya Afrika Magharibi
 Alirekodi video hiyo ya salamu akiwa huko Conakry mji mkuu ambapo ndipo ofisi yake ya kidiplomasia ipona katika hotuba yake alilenga jambo la msingi uwezekano wa WaGuinea kubadilisha katiba yao na kumruhusu Rais Condé kugombea kwa kipindi cha tatu baada ya muhula wake kuisha hapo 2020
-Depuis que la Guinée est devenue la Guinée dAlpha Condé elle est vraiment en marche
-Monsieur le Président vous êtes un exemple phare pour la jeunesse guinéenne
-Malheureusement le principe dalternance qui domine beaucoup de Constitutions dans le monde mais pas toutes heureusement impose la mentalité de revanche Cest notre tour maintenant cest nous qui devons diriger le pays
-Mais les Constitutions ne sont pas ni dogme ni Bible ni Coran
 Tangu Guinea imekuwa Guinea ya Alpha Condé kwa kweli imekuwa katika mwendo
 Mheshimiwa Rais wewe ni kielelezo kwa vijana wa nchi hii
 Bahati mbaya utaratibu wa kukabidhiana madaraka ambayo imetawala katiba nyingi duniani sio wote wanafurahia kuweka msingi wa mtazamo wa kulipa fadhila Ni muda wetu sasa lazima tuiendeshe nchi
@@ -3573,14 +3351,9 @@ Kulingana na balozi mambo yote ni sawa ndani ya Guinea
 Lakini hata hivyo hali halisi inaonesha ukweli mwingine
 Waalimu waliingia katika mgomo wa pamoja mwaka huu ambao ulidumu kwa miezi mitatu ukosefu wa ajira umeongezeka maradufu na imegundulika kuwa wahamiaji wengi haramu wanaoingia huko Ulaya kwa mwaka 2018 asili yao ni nchini Guinea takwimu zikioneshwa wanakaribia watu 13068
 Bado balozi aliendelea kusema
-Sous nos yeux la Guinée devient le pays le plus électrifié de lAfrique
-Dune année à lautre  on circule mieux sur les routes entre Conakry et les régions guinéennes
 Mbele ya macho yetu Guinea inakuwa nchi iliyosambaa huduma ya umeme zaidi Afrika
 Mwaka hadi mwaka barabara kati ya Conakry na mikoani zinarahisha usafirishaji
 Katika makala ya gazeti la Vision Guinée mwandishi wa habari Pathé Bah aliandika kuwa Ousmane Kaba mshauri wa mipango wa zamani wa Rais Condé alifahamika kwa kusimamia maslahi ya umma
-La Guinée est dans lobscurité Il ny a pas délectricité dans notre pays
-Cest pourquoi je me suis battu pour avoir largent pour construire Kaleta sur le Konkouré
-On se bat pour avoir beaucoup de barrages sur le Konkouré parce que cela fait avancer le pays
 Guinea iko gizani
 Hakuna umeme katika nchi yetu
 Ndiyo maana nilipigania fedha za kujenga Kaleta kinu cha kufulia umeme wa maji katika mto Konkouré
@@ -3590,14 +3363,11 @@ Na kwa uchumi wa nchi waziri wa fedha alikadiria kiwango cha ukuaji kuwa kwa asi
 Benki ya Maendeleo ya Afrika ilihakiki kuwa Guinea imefikia kukua kwa pato la ndani kwa asilimia 6
 6 kwa mwaka 2016 na asilimia 6
 4 kwa mwaka 2017  lakini hilo halikumzuia balozi kutangaza namba zilizokuzwa tu ili kuonesha uchumi unakua
-Ces dernières années on a constaté la croissance entre 105 en 2016 et de 6 au 7 en 2018 avec le pronostic de 7 en 2019Connaissezvous beaucoup de pays en Afrique qui font mieux 
 Kwa miaka michache iliyopita tumeona ongezeko la kukua kwa uchumi kati ya asilimia 10
 5 mwaka 2016 na kuanzia asilimia 6 hasi 7 asilimia kwa mwaka 2018 likiwa na matarajio ya asilimia 7 kwa mwaka 2019
 Mnafahamu ni nchi ngapi za Afrika zinazofanya vyema
 Balozi aliongezea hali ya barabara katika litania yake ya sifa kwa Raisi
 Hata hivyo Alimou Sow bloga maarufu wa Guinea alishirikisha habari yenye ukinzani katika blogu yake
-Je suis debout dès potronminet pour affronter en solitaire le tronçon jugé le plus difficile ConakryKindia  135 km que lon accomplissait il y a quelques années en un peu moins de deux heures montre en main
-Maintenant il faut rajouter deux heures supplémentaires pour crapahuter sur la même distance devenue un parcours de rêve pour un rallye raid de type ParisDakar tant la route est en piteux état
 Nimekuwa macho tangu kulipopambazuka nikipambana mwenyewe na barabara inayosadikiwa kuwa korofi zaidi ya kutoka Conakry kwenda Kindia kilomita 135 ambapo miaka michache iliyopita ungetumia chini ya masaa mawili ukipima muda
 Sasa lazima uongeze japo saa nyingine mbili kutambaa umbali ule ule na imegeuka kuwa barabara ya ndoto kwa ajili ya mbio za magari za uvumilivu za à la ParisDakar ni hatari sana kwa hali hiyo ya barabara
 Mwaka 2016 wanachama wa chama cha mabloga wa Guinea walianzisha kampeni ya kuamsha uelewa kuhusu hali ya barabara  za nchini na walionesha kukasirishwa kwao kwa kutumia hashtagi montronsnosroutes tuoneshe barabara zetu
@@ -3607,36 +3377,22 @@ Picha ya ufunguzi wa kampeni ya Chama cha Mabloga wa Guinea montronsnosroutes
 Imetumika kwa ruhusa
 Hotuba ya Balozi wa Urusi imeleta fadhaa kwa jamii na jumuiya za kiraia na zile za kidiplomasia
 Kiongozi wa upinzani wa Guinea Cellou Dalein Diallo amekosoa mtazamo wa mwanadiplomasia huyo kwa kuelezea imenukuliwa na Balla Yombouno katika gazeti la Le Djely
-Il a été manipulé par Alpha Condé le Président de la Guinée luimême
-Et nous savons quil est le représentant dune grande nation dun grand pays qui a participé activement à la décolonisation du continent africain et qui a eu une relation exemplaire avec la Guinée dans le respect du principe de noningérence dans les affaires intérieures  Nous allons essayer aussi de saisir le gouvernement russe pour faire état de cette prise de position 
 Amekuwa akiendeshwa na Condé mwenyewe
 Na tunajua kuwa yeye ni mwakilishi wa nchi kubwa nchi yenye nguvu iliyoshiriki kikamilifu katika kuuondoa ukoloni barani Afrika na ambayo imekuwa na uhusiano wa mfano na Guinea kwa kuheshimu kanuni ya kutokuingilia masuala ya ndani ya nchi
 Tunapambana kuwasiliana ma serikali ya Urusi ili kuweka msisitizo katika eneo hilo 
-Akiongea kwa niaba ya wanaharakati wa mashirika ya kijamii Gabriel Haba Rais wa Brigedi ya Hatua za Kiraia alielezea  hasira iliyoamshwa na balozi kwa kuunga mkono huko mwanahabari Ibrahima Sory Barry aliandika katika mtandao wa Aminata
-com
-La question de lalternance est une question de souveraineté
-Et la souveraineté appartient au peuple
-Il nest pas du rôle dun ambassadeur de dicter à la Guinée sa destinée
-Cest de lingérence dans les affaires internes de notre pays
+Akiongea kwa niaba ya wanaharakati wa mashirika ya kijamii Gabriel Haba Rais wa Brigedi ya Hatua za Kiraia alielezea  hasira iliyoamshwa na balozi kwa kuunga mkono huko mwanahabari Ibrahima Sory Barry aliandika katika mtandao wa Aminata.com
 Suala la kupokezana madaraka kisiasa ni suala huru
 Na uhuru uko kwa wananchi
 Sio sehemu ya majukumu ya balozi kusimamia majaliwa ya Guinea
 Hii ni kuingilia mambo ya ndani ya nchi yetu
 Shirika la Juimiya ya Kiraia Cellule Balai Citoyen Citizens Sweep Up walitoa waraka kwa vyombo vya habari uliokuwa unasomeka hivi kwa sehemu
-La Guinée vit sous le risque dun embrassement sans précèdent susceptible de découler dun forcing politicosocial en faveur dun 3e mandat en violation de lactuelle constitution mais aussi de léthique dans la gouvernance démocratique
-Cette tentative qui se fait de plus en plus sentir peut être source dune violence politique aux graves violations de droits de lhomme dans notre pays qui peine encore à cicatriser le lourd passif dans cette matière de lindépendance à nos jours
 Guinea ipo katika hatari ya aibu ambayo haijawahi kutokea na hii ni endapo kutachomekwa kipindi cha tatu kutokana na msukumo wa kisiasa na kijamii na kuvunja katiba iliyopo na hakika taratibu za utawala wa kidemokrasia
 Majaribio yanayoonekana kuongezeka yanaweza kuamsha vurugu za kisiasa yakiwa na uvunjifu mkubwa wa haki za binadamu katika nchi yetu ambayo bado inapambana kujiweka kumbukumbu nzuri na nzito ya urithi tangu uhuru mpaka sasa
 Huko Facebook mwandishi na mtoa maoni Ibrahim Marie Sanoh aliandika
-Cest fort abstrus que ce soit un étranger qui doit saluer les prouesses du pouvoir guinéen et plaider à ce quil lui soit accordé dautres années pour faire du pays le plus électrifié du contient le plus industriel du monde tandis que le peuple qui la investi manifeste une cruelle indifférence et ne pipe mot
 Ni namna ya kipekee na inayopendeza kuona raia wa kigeni akitoa mchango wake katika uongozi wa Guinea kwa kuomba uongozi huo upewe miaka zaidi ili kuifanya nchi hiyo iwe nchi iliyosambaa umeme kuliko nchi zote za bara lenye viwanda vingi zaidi duniani wakati watu waliouweka uongozi huo madarakani wanatendwa kikatili na hawana la kusema 
 Wakati huo huo tabia za mabalozi wengine zilivuta hisia za bloga wa Guinea Nouhou Baldé
-Cette déclaration est tellement grave que le silence des autres nest pas à excuser si facilement
-Dautant que certains de ceux qui ont pris la parole par la suite lambassadeur du Maroc le représentant de la Banque mondiale ont dit ne pas dire mieux que le russe
-Personne ne sest désolidarisé de cette déclaration et aucune ambassade na publié un communiqué
 Azimio hili ni hatari kiasi kwamba ukimya wa mabalozi wengine hauwezi ukachukuliwa kirahisi
-Wote ni sawa tu hata na wale waliozungumziwa balozi wa Morocco na mwakilishi wa Benki ya Dunia
-wamesema yaleyale hivyo ni kusema hawana utofauti na mwenzao  balozi wa Urusi
+Wote ni sawa tu hata na wale waliozungumziwa balozi wa Morocco na mwakilishi wa Benki ya Dunia wamesema yaleyale hivyo ni kusema hawana utofauti na mwenzao  balozi wa Urusi
 Hakuna hata mmoja aliyejiengua katika tamko hilo na hakuna ubalozi ulishatoa waraka kuhusu jambo hilo
 Hapo Januari 14 mamlaka za ulinzi zilitawanya  maandamano yaliyoandaliwa nje ya ubalozi wa Urusi na  mashirika ya kiraia yakipinga kuhusu maoni ya balozi
 
@@ -3686,7 +3442,6 @@ Lakini itachukua muda kidogo mpaka Nigeria ije ipate Rais wa Kiraia ambaye ahusi
 
 Makala 82
 Anguko la ardhi hapo April 8 2009  Picha na hisank ya Elizabeth Donoghue  katika akaunti ya Flickr CC BYNCND 2
-0
 Miaka kumi iliyopita siku ya Jumamosi 7 Februari 2009 Victoria ilipatwa na janga la nyika kuwaka moto ambapo watu 173 waliuawa na zaidi ya mia nne kujeruhiwa na makazi zaidi ya elfu mbili kuharibiwa na moto huo
 Watu saba walifariki baadaye kutokana na majeraha
 Katika Juma la maadhimisho hayo kwa mwaka 2019 wakazi wa Victoria waliikumbuka Jumamosi Nyeusi   kwa vyombo vikubwa vya habari kuonesha habari nyingi za watu binafsi kuhusu moto huo
@@ -3706,9 +3461,6 @@ Moyo wangu na roho yangu vilibadilika milele
 Kama kawaida mawazo yangu yako na wahanga wote wa Jumamosi Nyeusi
 Nitashukuru milele kwa msaada mimi na familia yangu tuliopokea kutoka kwa walio juu na nje ya milima
 Nilikuwa na bahati kuliko baadhi ya watu
-pic
-twitter
-comgKHLwlUbpH
 Dianne McNamara DianneMcNamara February 6 2019
 Mwanasheria wa Melbourne Georgia alikuwa na miaka kumi na tano wakati huo
 Aliwakilisha hisia za wengi
@@ -3720,30 +3472,18 @@ Robin Steenberg alishirikisha kumbukumbu ya kusikitisha
 Ni miaka 10 iliyopita rafiki yangu na familia yake waliangamia katika moto ule wa Jumamosi Nyeusi  Kaskazini mwa Melbourne Australia
 Bado naona ni kama jana tu
 Fikra zetu ziendee familia zote
-Lala mahala pema peponi rafiki zangu RIP TruemanTrades stocktcm iObvi8 pic
-twitter
-comDtZxTlodD7
-fxtrader robinsteenberg2 February 5 2019
 Watu wengi wanaunganisha janga la Jumamosi Nyeusi na hali mbaya ya hewa ya sasa ambayo inaleta madhara katika maeneo mengine ya nchi
 Janga lingine la asili la mafuriko limeikumba ukanda wa Kaskazini mwa Queensland ikifuatiwa na mvua
 Blair Drysdale alielezea baadhi ya madhara katika maeneo ya bara
 Hili ni shamba la Julia Creek huko North Queensland shamba lake lote ni kamahekari 150000
-pic
-twitter
-comdv2k6kzqDn
-Blocka blairdrysdale77 February 6 2019
 Hali katika mji wa Pwani wa Townsville hali ilikuwa mbaya pia
 Kampuni ya uzalishaji video ya Ruptly ilirekodi mafuriko hayo
-Townsville umekumbwa na mafuriko kama milango ya bwawa imefunguliwaAustralia pic
-twitter
-comzYjFtnIjke
-Ruptly Ruptly February 3 2019
+Townsville umekumbwa na mafuriko kama milango ya bwawa imefunguliwa Australia
 Mkazi wa Melbourne Ann Moorfield aliunganisha matukio
 Nataka kumkumbusha kila mmoja kuwa tulipopatwa ma Jumamosi Nyeusi kulikuwa na mafuriko huko Qld wakati huo huo
 Kulikuwa na wito kwa wahanga wa mafuriko ya Qld na wahanga hao walisema kuwa fedha itumwe kwa wahanga wa moto wa nyika huko Vic maana walizihitaji zaidi
 hivyo chimba chini zaidi kwa ajili ya wahanga wa mafuriko ya Qld
 Townsville
-Ann Moorfield AnnMoorfield February 6 2019
 Elizabeth Donoghue alichukua picha yenye kichwa cha habari kutoka katika njia ambayo watu wengi wanaielezea kama mtego wa kifo njia ambayo nimeikwepa hadi leo
 Uendeshaji huu wa kutisha ulistahili
 Aliposti miezi miwili baada ya moto kutokea huko Flickr
@@ -3753,9 +3493,7 @@ Nimepiga Picha hii katika barabara ambayo wengi huielezea kama mtego wa kifo bar
 Lakini uendeshaji huu hatari ulistahili
 Hatimaye Adrian Cutts aliangazia ukuaji wa mitandao ya kijamii tangu siku ya Jumamosi Nyeusi
 Kama bahati kesho pia itakuwa miaka 10 tangu WaAustralia wengi wajue Twita ilikuwa nini
-Jumamosi Nyeusi ilikuwa mwanzo wa mageuzi
-ya Twita katika nchi hii kuanzia pale ilipokuwa inachukuliwa kama njia ya mawasiliano isiyo na uhakika na sasa imekuwa sehemu ya maisha yetu
-Adrian Cutts LYBASkw February 6 2019
+Jumamosi Nyeusi ilikuwa mwanzo wa mageuzi ya Twita katika nchi hii kuanzia pale ilipokuwa inachukuliwa kama njia ya mawasiliano isiyo na uhakika na sasa imekuwa sehemu ya maisha yetu
 
 Makala 83
 Manusura waliopoteza ndugu zao na nyumba zao wakiwa wamejipumzisha kufuatia shambulizi la Juni 5 katika kijiji cha Naunde huko Cabo Delgado Msumbiji
@@ -3778,21 +3516,16 @@ Taasisi ya Habari Ukanda wa Kusini mwa Afrika ambayo husimamia haki na shughuli 
 Kuendelea kushikiliwa kwa Abubacar Na jeshi ni uvunjaji wa haki zake pia kukamatwa kwake bila mashtaka rasmi
 Serikali ya Msumbiji inaweka historia mbaya ya kuvunja haki za uhuru wa kujieleza na Uhuru wa kupata habari katika ukanda huu
 Shirika la haki za Binadamu Pia walitoa tamko
-Amade Abubacar é um respeitado jornalista que estava a gravar depoimentos de pessoas que fugiram de ataques mortais em Cabo Delgado quando foi preso pela polícia
-Esta é a mais recente demonstração de desprezo pela liberdade de expressão e liberdade de imprensa por parte das autoridades moçambicanas que veem os jornalistas como uma ameaça e os tratam como criminosos
 Amade Abubacar ni mwandishi anayeheshimika ambaye alikuwa akirekodi shuhuda za watu waliokimbia mashambulizi huko Cabo Delgado alipokamatwa na polisi
 Hii ni dharau ya hivi karibuni kutoka kwa mamlaka za Msumbiji na zimeelekezwa katika uhuru wa kujieleza na uhuru wa vyombo vya habari mamlaka zinawaona wanahabari kama maadui na hivyo wanatendwa kama wahalifu
 Kampeni hii imeenea pia huko Twita na imeundiwa hashtagi kama vile MfungueniAmade kutaka uhuru wa Amade
 UNHumanRights imetaka kufunguliwa haraka kwa mwandishi huyo wa habari AmadeAbubacar
 Kuwekwa kizuizini holela haikutosha wamemtesa na kumlaza huku amevaa pingu katika kambi ya jeshi bila kumpa chakula
 Hii ni mbaya sana
-MfungueniAmade CaboDelgado
-Cídia Chissungo Cidiachissungo 26 janvier 2019
+Mfungueni Amade CaboDelgado
 Angela Quintal coordinator wa Mpango wa Afrika kwa Kamati ya Kuwalinda Wanahabari alimtupia lawama Rais wa Msumbiji
 Msumbiji Leo ni Jan 30 ni siku ya 25 mwandishi wa habari AmadeAbubacar akiwa bado kizuizini kwa sababu tu ya uandishi wake wa habari
-Mtu anaweza kudhani kuwa Rais FNyusi ana mambo mengi sana mkononi kuanza kupoteza rasilimali kwa kumfungia mtu asiye na hatia MwachieniAmade httpst
-cogiF8zFnaCY
-Angela Quintal angelaquintal 30 janvier 2019
+Mtu anaweza kudhani kuwa Rais FNyusi ana mambo mengi sana mkononi kuanza kupoteza rasilimali kwa kumfungia mtu asiye na hatia Mwachieni Amade
 
 Makala 84
 Viwanja vya Nyerere Square jijini Dodoma makao makuu ya Tanzania lilipo bunge
@@ -3801,53 +3534,30 @@ Mnamo Januari 29 wakati  Bunge la Tanzania likiendelea na kikao chake jijini Dod
 Tukio hili lilivutia hisia za watu wengi nchini humo na kuibua maswali hasa katika mitandao ya kijamii na magazeti
 Swali kubwa likiwa je kutua kwa bundi kwenye jengo la bunge kulibeba maana yoyote 
 Bundi alionekana mara mbili jana ndani ya ukumbi wa Bunge jijini Dodoma
-Je Bundi anapoonekana inaashiria nini pic
-twitter
-comRMKzRskrXc
-Mwananchi Newspapers MwananchiNews January 30 2019
+Je Bundi anapoonekana inaashiria nini
 Ishara mbaya gazeti la kila wiki The East African lilipendekeza
-
-Mwanablogu wa Uingereza na mchambuzi wa vyombo vya habari Ben Tylor alidadisi zaidi  
-The owl that entered parliament signalled the coming death of Tanzanian democracy
-Ben Taylor mtega January 30 2019
+Mwanablogu wa Uingereza na mchambuzi wa vyombo vya habari Ben Tylor alidadisi zaidi
 Bundi kuingia bungeni kumeashiria ujio wa kifo cha demokrasia ya Tanzania
 Katuni imechorwa na Samuel Mwamkinga Joune imetumiwa kwa ruhusa
 Mchora katuni wa Tanzania Samuel Mwamkinga Joune aliliweka tukio hilo katika mchoro akilifananisha na neno la Kiingereza kundi la bundi likibeba maana ya Kigiriki kwamba bundi wana hekima picha imetumiwa kwa ruhusa
 Bundi hata hivyo anaonekana kama ishara ya kifo na mikosi nchini Tanzania
-
 Inavyoonekana  bundi huyo alikusudia kukaa Bungeni kwa mujibu wa gazeti la The Citizen
-
 Bundi ndege anayependa kuruka usiku hakuondokapamoja na majaribio kadhaa ya maafisa wa bunge kumtoa
 Bundi ni ndege maarufu nchini Tanzania na si ajabu ndege hawa kuhusishwa na masuala ya ushirikina
 Mwaka 2010  utafiti uliwahi kuonesha kuwa asilimia 93 ya waTanzania wanaamini ushirikina
 Kikao kisicho cha kawaida 
 Kikao hiki cha Bunge uwepo wa bundi ulikuwa alama isiyo ya kupuuza hata kwa wasioamini ushirikina
 Agenda ya kikao cha kwanza cha Bunge cha mwaka 2019 ilikuwa ni mapendekezo ya marekebisho ya Sheria ya Vyama vya Siasa iliyotanguliwa na mjadala mzito ulioendelea kwa takribani mwezi mzima katika mazingira ya kisiasa yanayoonekana kuendelea kuwa tete
-
 Tanzania iliweka historia  mwaka 1992 kuwa miongoni mwa nchi za mwanzo barani Afrika kuanzisha mfumo wa vyama vingi vya siasa ulioruhusu kuundwa kwa vyama vya upinzani
 Sheria ya Vyama vya Siasa  hapa ikiwa na mabadiliko yanayopendekezwa  ilitungwa mwaka 1992 na imekuwa ikirekebishwa mara kwa mara na mabadiliko ya  mwisho kabla ya haya yalifanyika mwaka 2009
-
 Wakati bundi akiwa ametua kwenye jengo la Bunge wabunge wa Tanzania walikubali kurekebisha sheria hiyo  hatua ambayo wakosoaji wanaiona kama itadhoofisha sana mfumo wa vyama vingi nchini Tanzania na hivyo kuathiri mwenendo wa demokrasia nchini
 Kwa kifupi mabadiliko ya sheria yanampa mamlaka makubwa zaidi msajili wa vyama vya siasa aliyeteuliwa na serikali si tu kuvifutia usajili vyama vya siasa lakini pia kutoa adhabu ikiwa ni pamoja na kifungo jela ikiwa chama cha siasa kwa mfano kitatoa elimu ya uraia kwa wapiga kura na kuendesha shughuli nyingine zenye mrengo wa kisiasa kwa mujibu wa Reuters
 Vyombo kadhaa vya habari vimemnukuu Zitto Kabwe kiongozi wa chama cha upinzani ACTWazalendo ambaye  mwezi Agosti 2017 alinukuliwa akikosoa mabadiliko hayo ya sheria akidai kuwa yangefifiisha haki za kisiasa nchini humo
 Kabwe aliifananisha sheria hiyo na Muswada wa Huduma za Habari wa 2016 ambao unadaiwa kurudisha nyuma uhuru wa vyombo vya habari
 Sasa Kabwe anaangazia mkanganyiko unaosababishwa na mabadiliko hayo ya Sheria ya Vyama vya Siasa 
 Huwezi kuwa na katiba inayoruhusu uhuru wa watu kukusanyika na kisha uwape mamlaka baadhi ya watu kupokonya uhuru huo
-
-Kiongozi wa chama Cha ACTwazalendo Ndugu zittokabwe akielezea mahusiano ya Demokrasia na Maendeleo kwa kutumia Takwimu za WorldBank PoliticalPartiesBill pic
-twitter
-comIwNln6Wl68
-ACT VIJANA TAIFA ActVijana January 29 2019
-Dying democracy
 Kuzorota kwa demokrasia Tanzania chini ya utawala wa Rais Magufuli imekuwa mada isiyoisha na hujirudia mara kwa mara kwenye vyombo vya habari na pia imekuwa ikijitokeza mara kwa mara kwa waandishi wa kejeli
-
 Mnano Januari 30 Fatma Karume Mwenyekiti wa Chama cha Wanasheria wa Tanganyika TLS alitwiti katuni ya mchora katuni maarufu wa Kenya Gado Septemba 22 2017akionesha wajibu wa Rais wa Tanzania Magufuli na kifo cha demokrasia 
-Good morning everyone
-Have a lovely day
-pic
-twitter
-comRKDe0iX5ZG
-fatma karume aka Shangazi fatma_karume January 30 2019
 Habari za asubuhi ndugu zangu
 Muwe na siku njema
 Katika miaka ya karibuni Tanzania imegeuka kwa kasi  kuwa nchi yenye sheria za kiimla  zinazosababisha kuminywa kwa fursa kwa wanasiasa wa upinzani kufanya siasa sambamba na vyombo vya habari
@@ -3856,39 +3566,24 @@ Upinzani ni muhimu kwa demorasia hai
 Upinzani imara huisimamia serikali na kuipa changamoto
 Katika mazingira ambayo upinzani haupo ni wazi mahitaji tofauti ya raia hayawezi kuwakilishwa ipasavyo
 Kwa kutumia twiti 15 mwanafunzi wa udaktari Rachel McLellan aliwapitisha wasomaji wake kwenye ucmabuzi unaoangazia hali inayoweza kujitokeza kufuatia sheria hii mpya na anaonesha mazingira ambayo chama cha upinzani kinachoonesha uhai kinaweza kujikuta kikibanwa 
-So most of your ways of convincing voters are gone
-What do you do if youre an opp party Go back to the drawing board and come up with new strategies right Well this bill introduces unprecedented oversight powers to the Parties Registrar that make that v difficult 5n
-Rachael McLellan RachaelMcLellan January 29 2019
-Hawawezi tena kufanya mikutano kuwashawishi wapiga kura wamewekewa mazingira ya kufungwa jela kwa kufanya mikutano na waandishi wa habari
-Muswada huu unazuia vyama vya siasa kutoa elimu ya uraia na shughuli za kuwajengea wananchi uwezo shughuli ambazo ni muhimu kwa vyama vya siasa
-Inawalazimisha kupata idhini ya serikali ili kupokea misaada ya nje
 Kwa hiyo njia za kuwashawishi wapiga kura wenu zimezibwa
-Unafanyaje unapokuwa mpinzani Nenda ubaoni na uje na mbinu mpya sivyo Muswada huu unampa nguvu kubwa zisizodhibitiwa Msajili wa Vyama vya Siasa inayofanya ubunifu huo uwe mgumu 
+Unafanyaje unapokuwa mpinzani
+Nenda ubaoni na uje na mbinu mpya sivyo Muswada huu unampa nguvu kubwa zisizodhibitiwa Msajili wa Vyama vya Siasa inayofanya ubunifu huo uwe mgumu 
 Iwe ni ushirikina au la  wale wanaokosoa mwelekeo wa Tanzania kuwa nchi ya kiimla walitafsiri vibaya uwepo wa bundi bungeni hasa iliposhindikana kumfukuza
-
 Bundi alibaki
 Spika wa Bunge Job Ndugai alijaribu kuondoa imani hiyo kwa maelezo chanya 
 Waheshimiwa Wabunge tumekuwa tukimwona bundi hapa bungeni tangu asubuhi lakini kwa mila ya watu wa Dodoma bundi anayeonekana mchana hawezi kuwa na madhara yoyote
 Maana yake ni kwamba tusiogope uwepo wa bundi huyu
-
 Kwa wakosoaji hata hivyo hakuna maelezo mengine chanya ya sheria hiyo mpya
 
 Makala 85
 Picha ya Bendera ya Upinde wa Mvua kutoka kwa Jaime Pérez CC BYNC 2
-0
 Eneza Upendo na sio Chuki ni kauli mbiu iliyosikika wakati wa maandamano ya kwanza ya wapenzi wa jinsia moja nchini Guyana ambayo yalifanyika juni 3 2018
 Ni tamasha ambalo liliwapa fursa jumuiya ya wapenzi wa jinsia moja kutoka nje ya nguo iliyowaficha na kudai haki zao ya kuona fahari ya vile walivvyo na wale waliochagua kuwapenda
 Eneza Upendo na sio chuki
 Hongereni kwa maadhimisho ya kwanza kabisa ya FahariYenu Guyana UpendoNiUpendo  pic
-twitter
-comlEFxgf5Kja
-Shomeo SassBaller June 4 2018
 Shamrashamra zilianzia Viwanja vya Mapinduzi katika mji wa Georgetown na washiriki walikuwa wamevaa nguo zenye rangi za upinde wa mvua na walikuwa wakicheza mziki wa soka wakati wakiandamana kwa mshikamano kupinga chuki na unyanyapaa
-Guyana_Pride
 Muda wa fahari katika kusherehekea uwepo wa wananchi wenye kushiriki mapenzi ya jinsia moja nchini Guyana pic
-twitter
-comS5PdblZn7b
-Guyana Trans United trans_guyana June 3 2018
 Mapenzi kinyume na maumbile ambapo mara nyingi hufahamika kama umende katika nchi nyingi za kiCarribean bado ni haramu nchini Guyana pamoja na ushindi mkubwa katika shauri la Caleb Orozco huko Belize mwaka 2016 na hivi karibuni katika kesi ya Jason Jones huko Trinidad na Tobago ambapo kesi zote inadhaniwa kuwa ni uhalifu dhidi ya katiba kufanya ngono kinyume na maumbile
 Sio kuwa kesi zote hazikuwa na utata and mrejesho hasi ukanda mzima  na vivyo hivyo na maandamano ya mashoga huko Guyana
 Raia wa mitandaoni walipiga kelele za kupinga
@@ -3919,8 +3614,8 @@ isupportthelbgtqcommunity
 Pia kulikuwa na utetezi huko Twitter
 Moja na kusonga mbele Guyana ni nchi pekee ya Amerika Kusini ambapo ushoga bado ni haramu
 Ilifanya maandamano yake ya kwanza ya Jumuiya ya Mashoga
-Tuamini kuwa kutokuwahukumu ndilo litakalofuatia httpst
-coKinMuV8YK6 Hongera kwa SASODGuyana GuyanaTrans  Chama cha Upinde wa Mvua Guyana
+Tuamini kuwa kutokuwahukumu ndilo litakalofuatia
+Hongera kwa SASODGuyana GuyanaTrans  Chama cha Upinde wa Mvua Guyana
 MSHIKAMANO
 Peter Tatchell PeterTatchell June 5 2018
 Maandamano hayo ni moja kati ya mifumo ya jamii kupigania haki sawa
@@ -3930,13 +3625,14 @@ Katika mkutano siku moja kabla ya maandamano ya mashoga wajumbe wa Jumuiya ya Wa
 Jumuiya ya Kikristo ambayo inachukua asilimia 60 ya watu wa Guyana na ukichukulia mamlaka nyingine kikanda inashawishi kuibadilisha sheria iliyopitwa na wakati ya ushoga
 Jumuiya hiyo ilitishia hata kuyazuia maandamano hayo lakini kuliwepo na polisi wa kutosha hivyo hakuna tukio lililoripotiwa
 Simpson aliyehudhuria mkutano kama mwakilishi wa jumuiya ya mashoga alionesha kuwa wananchi mashoga bado wanasubiri ahadi ya uchaguzi wa mwaka 2015 ambapo waliahidiwa mabadiliko ya sheria
-Tu wapiga kura na raia walipa kodi kama raia wengineHatudai kitu chochote maalum Tunastahili kufurahia ulinzi dhidi ya unyanyapaa
+Tu wapiga kura na raia walipa kodi kama raia wengine
+Hatudai kitu chochote maalum
+Tunastahili kufurahia ulinzi dhidi ya unyanyapaa
 
 Makala 86
 Maafisa wa polisi wa Naijeria waliomaliza mafunzo yao mwaka 2015
 Picha na AMISOM imeachiliwa kwa matumizi ya umma
-Daniel Elombah ni mchapishaji wa  elombah
-com
+Daniel Elombah ni mchapishaji wa  elombah.com
 Kulingana na Premium Times akina Elombah walikamatwa nyumbani kwao Nnewi huko kusini Mashariki mwa Naijeria
 Daniel Elombah alikamatwa mnamo saa 1030 alfajiri nyumbani kwake huko Nnewi siku ya mwaka mpya kulingana na taarifa za kaka yake Paul
 Alisema walipokea taarifa kutoka kwa maafisa waliomkamata kaka yake kuwa alikamatwa kwa sababu ya makala ya hivi karibuni ambayo wanadhani ilimzungumzia vibaya Kamanda Mkuu wa Polisi Inspekta Ibrahim Idris
@@ -3957,9 +3653,7 @@ Mamlaka za Nigeria lazima zimuachilie huru Timothy Elombah haraka sana na kutupi
 Polisi  hawawezi kuvamia nyumba za wanahabari na kuwakamata na kuwaweka kizuizini kwa sababu tu Ofisa hakupenda kitu kilichoandikwa kwenye gazeti
 Kwanza haioneshi wazi kama mtu aliyeko kizuizini ana lolote la kufanya na makala wanayodhani ni ya kumkashifu Inspekta wa jeshi
 Daniel Elombah amemshitaki Inspekta Mkuu wa polisi wa Nigeria katika Mahakama kuu huko Abuja kwa kuvunja haki zake msingi
-Anataka afidiwe Naira bilioni 2 karibu dola milioni 5
-5 kwa kuwekwa kizuzini kinyume cha sheria
-
+Anataka afidiwe Naira bilioni 2 karibu dola milioni 5.5 kwa kuwekwa kizuzini kinyume cha sheria
 Vile vile mawakili watatu wanaotoka Uingereza walitoa hoja kwa Mbunge wa Uingereza Lyn Brown Waziri Mkuu Theresa May na Waziri wa Mambo ya Nje Boris Johnson kuhusu kukamatwa kwa Daniel Elombah kinyume na sheria
 
 Makala 87
@@ -3969,12 +3663,9 @@ CC ATNC
 Tetesi   juu ya kusambaa kwa waandamanaji wa kifaransa waliovalia fulana ya njano katika nchi nyingine za Ulaya ilivuma sana katika mitandao ya kijamii nchini China kabla ya sikukuu ya Krismas
 Habari hiyo ilitokea baada ya Rais wa Ufaransa Emmanuel Macron kutangaza makubaliano kadhaa  akihutubia juu ya malalamiko ya waandamanaji juu ya sera za uchumi
 Wakati Macron akitegemea utulivu na amani kurejea tetesi iliyotengenezwa china ilitabiri tofauti
-
-Matoleo mengi ya habari yalisambaa kupitia baadhi akaunti ndogo za kublogu kwenye Weibo na wechat zikinukuu vyanzo kutoka bidhaa ya muuza jumla katika Yiwumji ambao unajulikana kama mji na kituo cha mauzo ya jumla ambaye alieleza kuwa akiba yao yote ya fulana za njano imeuzwa nchi za nje na mahitaji zaidi ya bidhaa hiyo yanatoka katika nchi za Ulaya kama vile Swedeni mji wa Prague Uswisi n
-k
+Matoleo mengi ya habari yalisambaa kupitia baadhi akaunti ndogo za kublogu kwenye Weibo na wechat zikinukuu vyanzo kutoka bidhaa ya muuza jumla katika Yiwumji ambao unajulikana kama mji na kituo cha mauzo ya jumla ambaye alieleza kuwa akiba yao yote ya fulana za njano imeuzwa nchi za nje na mahitaji zaidi ya bidhaa hiyo yanatoka katika nchi za Ulaya kama vile Swedeni mji wa Prague Uswisi n.k
 Habari hiyo ina maana kuwa waandamanaji wenye fulana za njano walikuwa wanasambaa katika bara zima
 Hapa kuna toleo moja la habari  ambalo lilisambaa kupitia Weibo na WeChat
-义乌指数中国义乌的服装调研报告指出现在来自欧洲的黄背心订单继续暴涨现在黄背心制作工作已经在加班加点地进行更有不少跨境电商卖家将此视为一次绝佳的销售机会不少网友说根据义乌商品市场的大数据可以预测未来黄背心运动的的浪潮还有可能蔓延到瑞典捷克瑞士西班牙等国早前就有外媒发文指出义乌具有一股神秘力量可以通过市场行情来预测国际政治大事件的走向在义乌接受的海外订单数量更被视为民意的风向标可以惊人地对将要发生的事件做出准确预测早在2016年美国大选的时候义乌制造商就通过美国订购的旗帜和衣衫的数量提前5个月预测出特朗普将会成为总统据了解目前义乌的一些纺织厂已经开始陆续接受到美国订单开始生产特朗普2020年竞选时的旗帜和支持者所穿的衬衫由于订单量已经比民主党竞选所开出的需求高出数倍因此也有人通过这点来预测特朗普很有可能连任美国总统这是中国制造的大数据威力
 kiwango cha mauzo ya Yiwu  taarifa ya utafiti wa Yiwu kuhusu mavazi ilionesha kwamba mahitaji kutoka Ulaya ya fulana za najno yameendelea kuongezeka
 Watengenezaji walifanya kazi hadi masaa ya ziada ili kukabili mahitaji na wafanyabiashara wa nje wa jukwaa la kielekitroniki wanauona mwenendo huo kama ni fursa nzuri ya mauzo
 Raia wa  mtandaoni nchini china wanaamini kwamba kwa kuzingatia kiwango cha mauzo ya bidhaa ya Yiwu na taarifa yake kubwa fulana za njano zinaweza kusambaa Sweden Jamhuri ya Cheksolovakia Uswisi na Hispania
@@ -3993,17 +3684,13 @@ Katika kipindi cha uchaguzi Marekani mwaka 2016 kiwango cha mauzo  ya Yiwu kilik
 Baada ya uchaguzi hata vyombo vya habari vya serikali vilitaarifu  kwamba takwimu za mahitaji ya bidhaa kutoka Yiwu na Alibaba yalikuwa ni nguvu ya kutabiria na raia wengi mtandaoni wa nchi ya china wanaamini kwamba kiwango cha mauzo ya Yiwu kilitabiri sahihi kabisa juu ya uchaguzi wa Marekani
 Baadhi ya waangalizi wa vyombo vya habari waliharakia kusema kuwa tafsiri hiyo ni tatizo kwa kuwa Clinton alipata kura zaidi ya Trump lakini uchambuzi huo ulipuuzwa
 Sasa  Global Times ambacho ni chombo cha habari cha serikali kimethibitisha  habari iliyopo mtandaoni na kuripoti kuwa kuna akiba kubwa ya fulana za njano katika mji wa kibiashara na ukubwa wa mauzo yake katika miezi ya hivi karibuni sio mkubwa kama miezi ya mwaka jana
-zithe
 Hata hivyo taarifa ya Global Times haijazuia chochote juu ya  kusambaa kwa taarifa ya kiwango cha mauzo ya Yiwu
 Kiukweli  maoni mapya yameibuka  baada ya sikukuu ya Krismas yanayothibitisha kiwango cha mauzo ya Yiwu kuwa na nguvu ya kutabiri
 Habari iliyochapishwa katika majukwaa ya mitandao mingi ya kijamii yanakiri kuwepo na makosa ya kiasi cha mauzo ya fulana za njano lakini inaendelea kusistiza kwamba kiwango cha mauzo ya Yiwu imefanikiwa kutabiri matokeo ya uchaguzi wa Urais wa Marekani mwaka 2016 na kombe la dunia la mwaka 2018
 Mwandishi alirudia hotuba ya tarehe 18 Desemba ya Rais wa china Xi Jinping kwenye sikukuu ya kumbukumbu ya 40 juu ya uwazi na mageuzi ya nchi ambapo aliitaja Yiwu kama mfano wa mageuzi hayo
 Hotuba hiyo ilihitimisha kuwa uwezo wa kutabiri wa kiwango cha mauzo ya Yiwu huakisi historia mpya ya mageuzi ya nchi
-实际上义乌之所以能够一次次精准预测国际重大事件的走向究其原因是义乌人通过几十年的奋力拼搏将小商品产业在世界范围内做的了独树一帜傲视群雄成为世界多国所依赖的小商品产地
-在改革开放的历史浪潮中就是无数个义乌这样曾经名不见经传的无名小城在国家政策的鼓励扶持下刻苦攻坚努力拼搏敢为天下先使中国在短短40年里实现了史无前例的惊天巨变
 Sababu ya Yiwu kuweza kutabiri kwa usahihi mwelekeo wa mambo ya dunia mara kwa mara yanatookana na mchango wa watu wa Yiwu miongo michache iliyopita
 Wamepitia njia tofauti katika masoko ya bidhaa duniani na kuanzisha mji wenye hadhi ya juu kama mji wa viwanda vya kutengeneza mahitaji ya kila siku duniani
-
 Sera ya uwazi na mageuzi imesaidia miji mingi kama Yiwu kuwa na hatua na kupata mafanikio
 Jitihada zao zimeleta mageuzi makubwa nchini China katika miaka 40 tu
 Huu mwingiliano wa uwezo wa kiwango cha mauzo ya Yiwu kutabiri na mageuzi ya kiuchumi nchini China umefanya hadithi ya asili ya Yiwu kuwa ngumu kubadilishwa
@@ -4015,7 +3702,6 @@ Imetumika kwa ruhusa
 Pamoja na ukosefu mkubwa wa rasimali  unaosababishwa na vita nchini Yemeni familia nyingi zinalazimika kuondoa watoto wao shuleni
 Mara nyingi wasichana wanapelekwa kuolewa  wakiwa na umri mdogo wa miaka13
 Lakini shule moja katika mji mkuu Sanaa ilipata njia kama tiba ya tatizo hilo
-
 Shirika lilisilo la kiserikali Solidarios sin Fronteras lenye makao yake Hispania na Yemeni kwa kiasi kikubwa linaendeshwa na wasamalia na hufadhiriwa na michango ya watu   wengine wakichangia kiasi kidogo kama euro moja kwa mwezi shirika hilo limeanza kutoa kifungua kinywa kwenye shule za wasichana ambao wana umri wa miaka kuanzia sita hadi kumi na sita
 Kabla ya mradi huo kuanza moja ya tano ya wasichana hao wamekuwa hawahudhurii masomo
 Kidogo kidogo wasichana hao walianza kurudi shuleni na tangu septemba 2018 wanafunzi wote 525 wanaendelea kuhudhuria madasani
@@ -4023,13 +3709,11 @@ Mwanzilishi wa Salidarios alisema
 Nimeongea  kupitia Whatsapp na Eva ambaye miaka mingi iliyopita nilikutana naye katika mji wa Barcelona na Faten ambaye yupo Yemeni hawa niwaanzilishi wawili wa shirika hilo
 Waliniambia namna mradi wao wa kifungua kinywa kwa ajili ya kulinda na kuelimisha  ulivyoanza
 Pia waliniomba kutotaja majina yao kamili na jina la shule kwa sababu za usalama
-
 Mwezi Machi 2018  mmoja wa walimu wa shule hiyo alimwendea Faten na kumweleza juu ya mwanafunzi wa kike ambaye kipindi cha mchana alikuwa akionekana kudhoofika na kuchoka sana
 Ghafla aliacha kuhudhuria shuleni
 Hakuwa msichana wa kwanza kuacha shule ingawa alikuwa bado mdogo sana
 Mwalimu huyo aliongea na familia ya yule binti
 Familia ile ilikuwa haina fedha na ilikuwa imepata ofa ya kumuoza binti yao
-
 Wakati akiongea na Faten Mwalimu yule alionesha matumaini juu ya utoaji wa chakula kila siku shuleni unaweza kumotisha familia kuwaacha binti zao kuendelea na shule
 Faten anasema hapo ndipo wazo lilipoibuka 
 Wengi wao wa wasichana hawa ni wa wafanyakazi wa kiwanda cha nguo ambacho kiliharibiwa kabisa na mabomu
@@ -4043,9 +3727,9 @@ Solidarios sin Fronteras ilipata ushauri kutoka kwa mtaalamu wa watoto juu ya na
 Faten hununua bidha za vyakula kila asubuhi na wanandoa hutumia jiko lake kuandaa kujaza kwenye vifungashio na kusafirisha chakula
 Wakati wa mapumziko ya dakika 45 kazini huenda haraka shuleni kuwasaidia walimu kugawa chakula
 Muda mwingine pia ndugu zake huja kumsaidia
-
 Huu moyo wa kufanya mwenyewe umesaidia taasisi kuendesha programu nyingine tatu
-Pamoja na Msaada wa chakula kwa familia  husambaza chakula kwa familia zilizo katika mazingira magumu katika mji wa Sanaa Aden Amran Raydah Hodeidah Al Dorihimi na familia waliokimbia makazi yao kutoka TaizMaji kwa ajili ya Yameni  hushughulikia hifadhi ya maji katika kambi za Amrani na Raydah kwa ya wakimbizi wa ndani na Kujenga tena Socotra hutoa simenti kwa ajili ya kujenga tena nyumba na kuchimba visima katika kisiwa cha Socotra kilichoharibiwa na kimbunga mwaka 2015
+Pamoja na Msaada wa chakula kwa familia  husambaza chakula kwa familia zilizo katika mazingira magumu katika mji wa Sanaa Aden Amran Raydah Hodeidah Al Dorihimi na familia waliokimbia makazi yao kutoka Taiz
+Maji kwa ajili ya Yameni  hushughulikia hifadhi ya maji katika kambi za Amrani na Raydah kwa ya wakimbizi wa ndani na Kujenga tena Socotra hutoa simenti kwa ajili ya kujenga tena nyumba na kuchimba visima katika kisiwa cha Socotra kilichoharibiwa na kimbunga mwaka 2015
 Kuna nini kama tukifanya sisi wenyewe
 Kifungua kinywa kilichoandaliwa kusambazwa shuleni kila siku asubuhi
 Picha ilipigwa na Faten kwa ajili ya Solidarios sin Fronteras Mshikamano usiokuwa na mipaka
@@ -4064,6 +3748,5 @@ Eva na Noelia ambao huishi Hispania hushughulikia upatikanaji wa vyanzo vya fedh
 Watu wengi huchangia kupitia mtandaoni na mfuko wa pamoja wa SSF kila mradi hujitegemea
 Faten anahusika na kuratibu huduma zinazotolewa shuleni  mara nyingi nyumbani kwake
 Wote watatu hutengeneza timu ya watendaji wakuu na hufanya shughuli zao katika taasisi isiyo ya kiserikali pamoja na kazi zao binafsi
-
 Mara kwa mara huwa  wanatumiana picha  video na zikiwa na taarifa mpya kwenye kurasa za mitandao ya kijamii juu ya SSF
 Pia husambaza maudhui yanayopanua uelewa  kuhusu vita katika nchi ya Yemen hasa hasa jukumu la Hispania  na nchi nyingine ambazo husambaza silaha  zinazosababisha migogoro katika nchi hiyo
