@@ -4,18 +4,10 @@ Picha imepigwa kwenye filamu.
 Maneno yanayoonekana yanasema: Ninataka Dias Santana na kaka yake wauawe
 Kuanzia Agosti 28, filamu iliyozalishwa Angola itaonekana kwa mara ya kwanza katika orodha ya Netflix.
 Ni filamu Dias Santana, iliyotengenezwa kwa ushirikiano na Afrika Kusini.
-O filme Santana, uma co-produção entre Angola e a África do Sul, de Maradona Dias dos Santos e Chris Roland, que se estreou nos cinemas em 2015 com o título Dias Santana, vai estar disponível no Netflix no dia 28 de Agosto.#NovoJornal #Angolahttps://t.co/gVhp4JFHWA
-Novo Jornal (@novojornalAO) August 17, 2020
 Filamu Santana, imetarishwa kwa pamoja kati ya Angola na Afrika Kusini, na Maradona Diad dos Santos na Chris Roland, ambayo ilionyeshwa katika sinema mnamo 2015 kwa jina la Dias Santana, itapatikana kwenye Netflix mnamo Agosti 28.
 Filamu iliyoonyweshwa kwenye tamasha la filamu la Cannes mwaka 2015, inaelezea stori ya ndugu wawili, Jenerali na Afisa wa polisi, waliogundua utambulisho wa mtu aliyewaua wazazi wao, mauaji yaliyotokea miongo kadhaa iliyopita.
 Kulingana na chombo cha habari Observador, filamu hiyo iliandaliwa na Giant Sables Media ya Angola na Zen HQ Films ya Afrika Kusini.
 Mtayarishaji wa filamu wa Angola, Jeremias Didalewa, alituma ujumbe wa shukrani kwenye wasifu wake wa Instagram kwa kufanikiwa kufunga mpango huo na jukwaa:
-Malta, amigos e compatriotas.
-Conseguimos fechar o deal com a Netflix.
-Teremos o filme DIAS SANTANA primeiro filme Angolano na Netflix.
-Um filme, com uma produção Angolana 80%/Sul Africana 20%.
-História de uma família Angolana, que começa em Angola e termina na África do Sul.
-Com vários actores nacionais e internacionais.
 Jamaa, Marafiki na wenzetu.
 Tuliweza kufunga mpango na Netflix.
 Tutakua a filamu DIAS SANTANA filamu ya Angola kwenye Netflix.
@@ -37,9 +29,6 @@ Picha ya twiti ya vitisho ya Rais wa Naijeria Buhari
 Twiti zilizojibu mapigo kwa matamshi hayo yaliyotolewa na Buhari aliyeonekana dhahiri kuwa na hasira akiwa katika Ikulu ya nchi hiyo, makao makuu ya nchi, Abuja, kuhusu mwelekeo wa mashambulizi dhidi ya maafisa wa uchaguzi.
 Ninadhani tumewapa jukwaa la kutosha.
 Wamesema walichokitaka, lakini sasa wanataka kuiangamiza nchi, alisema, akionekana kuwazungumzia watu hao wanaotaka kujitenga:
-Buhari made the statement himself.
-pic.twitter.com/CCX4d78SLk
-Karo (@Karovoni) June 1, 2021
 Buhari amezungumza kwa kinywa chake
 Buhari, jenerali mstaafu, alikuwa jeshini wakati wa vita vya wenyewe kwa wenyewe nchini Naijeria.
 Vita hivyo vibaya vilisababisha vifo vya zaidi ya watu milioni wa kabila la Igbo na wakazi wengine wa ukanda wa Mashariki, kwa mujibu wa Chima J. Korieh, profesa wa Historia ya Afrika kwenye Chuo Kikuu cha Marquette nchini Marekani.
@@ -49,16 +38,12 @@ Sera ya Twita kuhusu tabia za chuki inazuia twiti ambazo zinahubiri ghasia na k
 Twiti za namna hiyo, kama ya Buhari, hufutwa na kampuni hiyo au watumiaji wenyewe hulazimisha kufuta maudhui yanayokwenda kinyume na sera.
 Lai Mohammed, waziri wa habari wa Naijeria, alieleza kuondolewa kwa twiti ya rais huyo na kampuni hiyo ya mitandao ya kijamii kama tukio la kushukiwa sana:
 Twitters Mission In Nigeria Is Suspicious, Says Lai Mohammed pic.twitter.com/6hbAKsnjVM
-Channels Television (@channelstv) June 2, 2021
 Twiti zenye vitisho bado zinaonekana mtandaoni
 Uchunguzi uliofanywa na mtaalam wa mtandao ya kijamii wa Digital Africa Research Lab (DigiAfricaLab) unaonesha kwamba twiti ya vitisho iliyoandikwa na Buhari bado inaonekana kwenye akaunti kadhaa siku mbili baada ya kuwa imefutwa na Twita, shauri ya kunukuliwa na watumiaji wengine:
-Over 30 hours after Twitter deleted a Tweet by Nigerian president @MBuhari for violating its rules, the deleted Tweet REMAINS VISIBLE across numerous timelines due to Quote Tweets!
-[DigiAfricaLab made this observation whilst signed in to different accounts on different devices] pic.twitter.com/KwUIVmzEoP
-Digital Africa Research Lab (@DigiAfricaLab) June 3, 2021
 Zaidi ya saa 30 baada ya Twita kufuta twiti ya rais wa Naijeria @MBuhari kwa kosa la kuvunja sheria, twitiiliyofutwa BADO INAONEKANA kwenye akaunti nyingi mtandaoni kwa sababu ya kunukuliwa!
 Kwa kuingia mtandao kwa kutumia akaunti tofauti kupitia vifaa tofauti, DigiAfricaLab iliweza kuona zaidi ya twiti 17,000 zilizonukuliwa na watumiaji kabla kampuni hiyo ya mtandao wa kijamii haijaifuta twiti hiyo kutoka kwenye akaunti ya @MBuhari na @NGRPresident, zote zikiwa ni anuani za twita zilizohakikiwa zinazotumika na Rais Buhari.
 Zaidi ya hayo, DigiAfricaLab iliweza kubofya na kukuza twiti ya Rais Buhari iliypfutwa.
-Twiti zilizofutwa zinaweza kuendelea kuonekana kwa watumiaji wa mtandao wa twita kwa sababu zana inayotumiwa na Twita (API) hutegemea zana za mitandao mingine inayounganisha kazi data za Twita kwa kupitia URL.
+Twiti zil nizofutwa zinaweza kuendelea kuonekana kwa watumiaji wa mtandao wa twita kwa sababu zana inayotumiwa na Twita (API) hutegemea zana za mitandao mingine inayounganisha kazi data za Twita kwa kupitia URL.
 Sababu nyingine, kwa mujibu wa  J. D. Biersdorfer wa New York Times, ni kwamba twiti zilizofutwa zinaweza kuwa bado zinapatikana na hivyo kuonekana kwenye matokeo ya utafutaji mtandaoni  mpaka tovuti ihuishwe na nakala mpya ya twiti kwenye ukurasa mkuu wa akaunti husika.
 Mwitikio wa alama habari ya #IAmIgboToo
 Twiti ya vitisho ya Rais Buhari iliibua mjadala mkali kutoka kwa Wanaijeria wanaotumua mtandao wa Twita, mjadala uliogonga vichwa vya mtandao huo kwa alama habari ya #IAmIgboToo kuonesha masikitiko yao.
@@ -66,35 +51,18 @@ kadhalika, watumiaji wa mtandao wa Twita nchini Naijeria kutoka kwenye makundi m
 Uchambuzi uliofanywa mnamo Juni 4, 2021 na Global Voices kwa kutumia zana ya Brand Mentions  ulionesha kwamba ndani ya siku saba, alama ishara ya #IAmIgboToo ilitajwa mara 508, imetumiwa mara 319,200, imewafikia watu 457,500, na kusambazwa mara 313,100 kwenye mtandao wa Twita na Instagram.
 Picha ya maneno yanayotajwa kwenye alama habari ya #IAmIgboToo
 Mwanaharakati wa Haki za Binadamu Aisha Yesufu  akitumia jina la Waigbo Somtochukwu, likimaanisha ungana nami kumsifu Mungu  huku akilaani namna Rais Buhaari aliyowatisha watu wa Igbo wakisema kushambuliwa kwa watu wa Igbo ni kushambuliwa mimi:
-My name is Aisha Somtochukwu Yesufu#IAmIgbo.
-Any threat to Igbo people is a threat to me.
-An attack to Igbo people is an attack on me.
-I condemn the 1967 threats from President Buhari to the Igbo people
-No Nigerian is more Nigerian than any Nigerian pic.twitter.com/VMHeYkWY2e
-Aisha Yesufu (@AishaYesufu) June 2, 2021
-Jina langu ni Aisha Somtochukwu Yesufu
-Tishio lolote kwa watu wa Igbo ni kunitisha na mimi
-Kuwashambulia watu wa Igbo ni kunishambulia mimi
+Jina langu ni Aisha Somtochukwu Yesufu.
+Tishio lolote kwa watu wa Igbo ni kunitisha na mimi.
+Kuwashambulia watu wa Igbo ni kunishambulia mimi.
 Nalaani vitisho vya 1967  kutoka kwa Rais Buhari kwa watu wa Igbo
 Hakuna Mnaijeria ambaye ni zaidi kuliko Mnaijeria yeyote
 Msanii wa muziki wa kufoka foka na mzalishaji wa muziki Jude Abaga (M.I Abaga) alionesha shauku yake kwa nchi hii kuendelea mbele ya matamshi haya yaliyojaa chuki:
-The narrative that Nigeria hates Igbo people is an outdated context that will leave with the old and bitter generation
-Today let us stand with our Igbo family and say #IAmIgboToo #Ozoemena  pic.twitter.com/B0xGAjnfMG
-Yung denzL (@MI_Abaga) June 2, 2021
 Maelezo kwamba Naijeria inawachukua watu wa Igbo ni ya kishamba na yanaacha mtazamo ule ule usiobadilika
 Mwanaharakari wa #KomeshaSars Rinuola [Rinu] Oduala, akitumia jina la Kigbo Ochiaga, ikimaanisha lkiongozi wa vikosi vya majeshi, alikumbuka kwa fahari mchango muhmu wa wanawake wa Kiigbo kwenye historia ya Naijeria, akirejea Maasi ya Wanawake wa Aba  Novemba 1929:
-I remember the Aba Women Rebellion where at least 25,000 Igbo women protested against colonial oppression.
-I come from the same land with those dynamic women, born of confidence & resilience to years of oppression & social injustice.
-My name is Rinu Ochiagha Oduala.#IAmIgboToo
-Rinu #EndSARS (@SavvyRinu) June 2, 2021
 Ninakumbuka Maasi ya Wanawake wa Aba ambapo wanawake wasiopungua 25,000 waliandamana dhidi ya unyanyasaji wa kikoloni.
 Ninatoka kwenye eneo hilo hilo lenye wanawake wenye hulka hiyo, wakiwa wamezaliwa na ujasiri & uvumilivu dhidi ya miaka mingi ya unyanyasaji na ukosefu wa  haki.
 Jina langu ni Rinu Ochiagha Oduala #MimiNiIgbo
 Blossom Ozurumba, mtafsiri wa lugha ya Igbo wa Global Voices alibainisha kwamba vitisho huanza na kutweza utu wa mtu:
-The use of dehumanization makes it easier to remove the moral concern associated with killing, discriminating, or torturing others based on their group identity.
-If they arent seen as human, it is easier to justify acts of violence against them.
-https://t.co/nW2OPFBqbM
-Chief Ofu Ji (@blossomozurumba) June 1, 2021
 Ukishatweza utu wa watu inakuwa rahisi kuondoa ule wasiwasi wa kimaadili kuhusu mauaji, ubaguzi au kutesa wengine kwa sababu tu ya utambulisho wa makabila.
 Kama hawaonekani kuwa binadamu, ni rahisi kuhalalisha matendo ya vurugu dhidi yao.
 Kuteza utu, kwa mujibu wa Ozurumba, kunafanya iwe rahisi kuondoa hali ya kuguswa kimaadili na vitendo vya mauaji, ubaguzi, au utesaji wa watu kwa sababu tu ya makabila yao.
@@ -104,13 +72,7 @@ Picha na makeitkenya, CC PDM 1.0
 Mnamo Machi 27, mjadala mkali uliibuka kwenye mitandao ya kijamii ya Kenya juu ya matamshi yaliyotolewa hewani na watangazaji wa redio tatu wakati wa kipindi cha asubuhi Breakfast Show.
 Watangazaji walikuwa wakijadili kesi inayoendelea ya kortini inayomshirikisha Eunice Wangari, mwanamke ambaye alisukumwa nje ya jengo la ghorofa 12 na mwanamume ambaye alikuwa na mahusiano naye.
 Kwenye mtandao wa Twitter, Wakenya wenye hasira waliwaghadhabisha watangazaji Shaffie Weru, Joseph Munoru, na Neville Muysa kwa matamshi yao juu ya kesi ya madai ya unyanyasaji wa kijinsia, na kuwaita watangazaji hao wahanga-wa-kulaumu.
-Shaffie is insinuating that the lady who was pushed from the 12th floor of a building in Nairobi CBD after she said no to a man's advancements was because she was too loose & very available hence putting herself is such a situation.
-Homeboyz yawa.
-What the actual hell!
-BRAVIN YURI (@BravinYuri) March 25, 2021
 Shaffie anasisitiza kwamba mwanamke huyo alisukumwa kutoka gorofa ya 12 ya jengo jijini Nairobi baada ya kusema hapana kwa mwanamume ni kwa sababu alijiachia sana na kuwa huru kwa hivyo kujiweka mwenyewe katika hali kama hiyo.
-Homeboyz yawa.
-Je!
 Ni kuzimu gani!
 Kesi hii imegawanya watumiaji wa mitandao kwani kuna baadhi yao wanakubaliana na watangazaji hao.
 Ingawa watatu hao walifukuzwa kazi na kituo hicho cha redio, ilileta wazi jinsi uhasama wa nafasi mkondoni ya Kenya imekua kwa wanawake.
@@ -126,21 +88,10 @@ Baada ya kupona alikuja na kuelezea juu ya safari yake wakati ulimwengu ulipoanz
 Lakini Cherotich hakupokelewa kwa uchangamfu kama alivyotarajia.
 Baada ya kufanya mahojianona vyombo vya habari mwezi April 2020, alikabiliwa na unyanyasaji na usumbufu mtandaoni kutoka kwa Kenyan On Twitter (maarufu kama #KOT neno linalotumika mara nyingi kuelezea watumiaji hai wa mtandao wa twitter nchini Kenya wanaoshiriki kwenye mijadala mbalibali au haiba kwenye mtandao huo) ambao walitafuta kudhalilisha na kuuliza ukweli kuhusu hadithi yake.
 Wanyanyasaji wengine wa mtandaoni waliingilia maisha yake binafsi, mazungumzo yake binafsi na picha zake zilisambaa sana mtandaoni, pengine baada ya kuvujishwa na rafiki yake au mtu wake wa karibu.
-her hairstyle looks like Corona itself #brenda @indukusy pic.twitter.com/q3HsQxkcfw
-this is me (@mykdjmaliq) April 1, 2020
 Mtindo wa nywele zake zinaonekana kama Corona yenyewe
 Baada ya kukasirishwa kwa hili, waziri wa afya wa Kenya Mutahi Kagwe alijitokeza kumtetea Brenda, kutoa wito wa kukamatwa kwa wanyanyasaji hao na kuwataja kama jitihada za aibu zinazodhoofisha juhudi za serikali za kupambana na COVID-19.
-Health CS Mutahi Kagwe tells police to arrest social media users for bullying Brenda pic.twitter.com/YkI5EMfeaM
-Nairobi News (@Nairobi_News) April 3, 2020
 Waziri wa afya Mutahi Kagwe akiwaambia polisi kuwatia hatiani watumiaji wa mitandao ya kijamii kwa kumnyanyasa Brenda
 Na hiyo haikuwa mwisho wake, mwathirika mwingine hivi karibuni alianguka kwenye shambulizi la #KOT: Mtangazaji wa runinga Vyonne Okwara alilengwa baada ya kumtetea Brenda na kumuunga mkono hoja ya waziri ya kuwatia hatiani wanyanyasaji wa mitandao.
-I strongly disagree with Yvonne Okwara.
-Your statement is not objective.
-It is emotional and stinks to high heavens.
-Speaking of which where was your voice when your fellow women stripped a MAN (Lonyangapuo) naked and shared his nude photos?
-This is toxic
-pic.twitter.com/mqXDt0GkAK
-Lord Abraham Mutai (@ItsMutai) April 3, 2020
 Sikubaliani kabisa na Yvonne Okwara.
 Taarifa yako haina tija.
 Ni ya kihemko na yenye kunuka hadi mbingu za juu.
@@ -149,18 +100,9 @@ Hii ni sumu
 Okwara aliwakosoa wanyanyasaji kwa kulenga wanawake.
 Alisema kuwa Brian Orinda, mwathirika watatu wa COVID-19, aliekuwepo alipotoa safari yake ya kupona pamoja na Brenda, hakupata muitikio sawa.
 Hii ilichochea vidole vya wapambanaji wa kibodi kuwasha ambao walikuwa na siku yao kwenye mtandao wa Twitter wakimshambulia Okwara.
-Playing gender card everytime.
-Women should safeguard their dignity in the first place.
-Posing for such photos and sharing the same is equally immoral
-Saadiq-Al Amin (@Saadiq77) April 3, 2020
 Utumiaji wa kadi ya kijinsia muda wote.
 Wanawake wanatakiwa kulinda heshima wao kwanza.
 Kupiga picha kama hizi na kuzishiriki vile vile ni ukosefu wa maadili.
-Kind of shallow and idiotic take from Okwara.
-So shallow, you wonder if Corona ate the brain.
-Nudes of men were online juzi.
-She suddenly has selective amnesia over that.
-Robert Alai, HSC (@RobertAlai) April 3, 2020
 Hali hiyo duni na ya kijinga kutoka Okwara.
 Kwa hivyo duni, unashangaa kama Corona alikula ubongo.
 Uchi wa wanaume ulikuwa mtandaoni juzi.
@@ -168,37 +110,21 @@ Yeye ghafla amepata usahaulifu kwa kuchagua juu ya hiyo.
 Mwanzoni mwa mwaka, msemaji mkuu wa Ikulu Kanze Dena pia aliathirika na unyanyasaji wa kimtandoa wa Kenya.
 Alipokua akitoa mkutano na waandishi wa habari kwenye hafla, wanyanyasaji wa mtandao waliudhalilisha mwili wake kutokana na uzito wake.
 Kwa haraka ikawa mjadala kwenye mitandao ya kijamii, na sehemu ya Wakenya na haiba ya media wakimtetea Dena.
-Shes too fat, tall,short!
-Who set standards for how women should look like?Why is it our problem that @KanzeDena has added some weight?
-Well, shes a new mother, but, she owes no one an explanation!
-#HerBodyHerChoices!
-Give her a break please!
-This is a new low we must reject  pic.twitter.com/x7qP3nuPeS Patience Nyange (@NyangePatience) January 29, 2021
 Yeye ni mnene sana, mrefu, mfupi!
 Ni nani aliyeweka viwango vya jinsi wanawake wanavyopaswa kuonekana?
 Kwa nini ni shida yetu kwamba @KanzeDena ameongeza uzito?
 Kweli, yeye ni mama mpya, lakini, hana deni kwa mtu yeyote!
-#HerBodyHerChoices!
 Mpeni pumziko tafadhali!
 Hii ni chini mpya lazima tuyakatae
-View this post on Instagram
-A post shared by Emmy Kosgei (@emmykosgei)
 Makala ya The Elephant,  moja ya chapisho kuu la kidijitali nchini Kenya, ilibaini kuwa nyanja za mtandao wa kijamii mkondoni nchini Kenya na ulimwenguni zimegeuka kuwa mipaka ya maneno yenye sumu na unyanyasaji.
-There is no gainsaying that social media has become an important tool for social and professional advancement, more so for women.
-Many women have built their businesses online and, in the process, have learned how to connect with others.
-Many find clients to buy and sell their products online.
-Others find platforms to incubate ideas, leading to hundreds if not millions of social enterprises that not only spur economic growth but directly empower young men and women economically.
-They have also learned how to improve their entrepreneurship skills online.
-No doubt then, social media has emerged as a great space to do business.
-This is important for womens economic empowerment and visibility.
-Source: The Elephant
 Hakuna ubishi kwamba mitandao ya kijamii imekuwa nyenzo muhimu kwa maendeleo ya kijamii na kitaalam, zaidi kwa wanawake.
 Wanawake wengi wamejenga biashara zao mkondoni na, katika mchakato huo, wamejifunza jinsi ya kuungana na wengine.
 Wengi hupata wateja wa kununua na kuuza bidhaa zao mkondoni.
 Wengine hupata majukwaa ya kuwezesha maoni, na kusababisha mamia kama sio mamilioni ya biashara za kijamii ambazo sio tu zinazochochea ukuaji wa uchumi lakini zinawawezesha moja kwa moja wanaume na wanawake wadogo kiuchumi.
 Wamejifunza pia jinsi ya kuboresha ujuzi wao wa ujasiriamali mkondoni.
 Bila shaka basi, mitandao ya kijamii imeibuka kama nafasi nzuri ya kufanya biashara.
-Hii ni muhimu kwa uwezeshaji kiuchumi na kujulikana kwa wanawake  Chanzo, The Elephant.
+Hii ni muhimu kwa uwezeshaji kiuchumi na kujulikana kwa wanawake.
+Chanzo, The Elephant.
 Inaonekana kwamba kwa wanawake kushiriki mazungumzo ya maana mkondoni juu ya mada zinazoathiri moja kwa moja maisha yao, mtandao lazima uwe mahali salama zaidi kuliko ilivyo sasa.
 
 Makala 5
@@ -223,16 +149,6 @@ Wakati huo huo, mashoga wanaendelea si tu kukabiliana na ubaguzi, lakini pia vit
 Katika tukio la hivi karibuni,  kifo cha Marcus Anthony Singh, mwanachama wa chama cha mashoga kwenye eneo analoishi, kiliibua mjadala mzito mtandao kuhusu mazingira magumu ambayo mashoga wanakabiliana nayo hususani usalama wao sambamba na vitendo vya ubaguzi.
 Mazungumzo hayo mengi yamekuwa yakifanyika kupitia teknolojia ya Twitter Spaces, jukwaa la mazungumzo ya sauti linalowezesha mijadala na elimu salama.
 Wakati Mwanasheria Mkuu wa Serikali Al Rawi hajatoa muda rasmi wa kufanyika mabadiliko hayo ya sheria, kwa mashoga na washirika wao, matumaini yanabaki kwamba huenda hatua zinazochukuliwa na makampuni binafsi kama Benki ya Scotiabank si muda mrefu zitaanza kuchukuliwa na serikali, na hatimaye kuleta mabadiliko yenye sura ya jamii nzima.
-
-Makala 6
-Kwa wengi barani Ulaya na kwingineko, Shindano la Uimbaji la Eurovision linafuatiliwa sana kila mwaka, na mashabiki wake hukusanyika kwa makundi kulitazama shindano hilo.
-Kwa wengine, ni shindano linaloboa, lisiloisha, kwa zaidi ya miaka 65, zimekaa muda mrefu na kuchosha.
-Lakini ulipende au usilipende, hakuna mashaka kwamba shindano la Eurovisionna mwitikio linalousababishalinatoa mtazamo mzuri kuhusu Ulaya ya sasa, siasa zake,  taswira yake na tunu zake.
-Ungana nasi Mei 20 saa 11mchana GMT kwa kipindi chetu cha Global Voices Insights, mfululizo wa mazungumzo, ambako Mhariri Mtendaji wa Global Voices Filip Noubel atakaa na Mhariri wa habari za Ulaya Mashariki Tanya Lokot na mhariri wa Ulaya ya Kati Filip Stojanovski kwa mazungumzo kuhusu shindano hilo la Eurovision kama suala la kiutamaduni na kisiasa.
-Kipindi hiki pia kitaonesha mahojiano na washirikisha wawili wa shindano hilo ambao walitikisa pia kwenye maonesho ya  Rotterdam mnamo Mei 22.
-Washiriki hao ni Benny Cristo, anayeiwakilisha Jamhuri ya Czech, na Vasil, anayeiwakilisha Macedonia Kaskazini.
-Kipindi hiki ni bure na kiko wazi kwa mtu yeyote, na kitarushwa mubashara kwenye mitandao ya Facebook, YouTube na Twitch
-Tunatarajia utaungana nasi siku hiyo (bofya kiungo hiki kufahamu muda halisi kwa saa za nchini kwako)!
 
 Makala 7
 Duval, Mhandisi wa Kifaransa na mwanzilishi wa Taasisi ya Gaël.
@@ -305,14 +221,10 @@ Kwenye taarifa yake kwa vyombo vya habari, Mwakilishi wa UNICEF nchini Kenya Ma
 Kufuatilia kuwasili kwa chanjo hizi, UNICEF na washirika wake wanapongeza ahadi ya COVAX kuhakikisha kuwa watu wanaotoka kwenye nchi zisizo na uwezo mkubwa kiuchumi hawaachwi nyuma kwenye mpango huu wa kimataifa wa kuokoa maisha ya watu kwa chanjo, alisema.
 Hata hivyo, mpango huu wa tatu ulivurugika mara baada ya zoezi kuanza kwa sababu ya uamuzi wa dakika za mwisho wa kuharakisha awamu ya pili ya mpango huyo kama namna ya kukabiliana na wimbi la tatu la maambukizi, maslahi ya kisiasa yanayokinzana, na serikali kushindwa kuwasiliana na kuwajulisha wananchi.
 Katika makala yake inayohoji kile kinachoendelea kwenye mpango wa chanjo ya UVIKO-19 nchini Kenya, Patrick Gathara, mwandishi anayeishi Kenya na mchoraji wa katuni za siasa aliyepata tuzo mbali mbali alisema:
-Politicians loudly and self-servingly argued that they should be given priority to inspire confidence among the population, even though the Ministry of Health was reporting encountering little resistance.
-Because the state had ignored the need to explain its plan to the population, there was widespread confusion about where and when people were expected to be in line.
 Kwa sauti kubwa na ubinafsi, wanasiasa walidai kwamba wao ndio wanaopaswa kupewa kipaumbele ili kuwajengea imani wananchi, ingawa Wizara ya Afya tayari ilisharipoti kutokuwepo kwa upinzani mkubwa wa chanjo hiyo.
 Kwa kuwa serikali imepuuza takwa la kueleza mpango wake kwa wananchi, kulikuwa na mkanganyiko mkubwa kuhusu wapi na lini watu wanatarajiwa kusimama kwenye mstari.
 Pamoja na maelekezo ya serikali  kuwapa kipaumbele wananchi wenye umri wa zaidi ya miaka 58,  vyombo vya habari nchini Kenya viliripoti kwamba wafanyabiashara na wanasiasa wasio kwenye kundi la umri huu wamekuwa wakipata huduma kinyume na utaratibu, hali inayoonesha ubaguzi mkubwa wa masikini unaofanywa na wenye fedha.
 Wakati huo huo, wazee wanaostahili na Wakenya maskini, ambao hawana mtandao wa watu wa kuwasaidia na wasio na fedha za kuhonga,  huonekana wakingoja kwenye mstari siku zote kuanzia saa 11 alfajiri, na kuishia kuombwa warudi siku nyingine kwa sababu dawa zimeisha, kwa mujibu wa habari iliyoandikwa na jarida la The Washington Post.
-They have another door for their friends, Mary Njoroge, 58, one of the teachers, told The Washington Post.
-Without a godfather to help you through this process, what are you supposed to do?
 Wana mlango mwingine kwa marafiki zao, Mary Njoroge, 58, mmoja wa walimu, aliliambia The Washngton Post.
 Bila kuwa na mtu wa kukusaidia kukamilisha mchakato wote, utafanya nini?
 Tukio kama hilo liliripotiwa kwenye hospitali nyingine ya serikali na @_Sativa, mtumiaji wa Twita anayeishi Nairobi, ambaye pia ni Mkenya.
@@ -320,14 +232,10 @@ Kwenye uzi huo wa Twita, alielezea kile ambacho shangazi yake alikutana nacho,�
 Wakati wazee wakisubiri mstarini, muuguzi aliita majina na vijana walikuja mbele na wakatangulia kupata chanjo.
 Shangazi yake alipouliza nini kinaendelea, muuguzi alimpa namba [ya simu] ambayo angeweza kutumia fedha, alisema kwenye uzi huo wa Twitter.
 Kufuatia taarifa za kuongezeka kwa hamasa ya watu kwa kampeni hiyo ya chanjo, Waziri wa Afya wa Kenya, Mutahi Kagwe aliviambia vyombo vya habari:
-I think somewhere along the line we seem to have developed some confusion that anybody can walk into a vaccination centre and get vaccines.
-I want to make it very clear, those carrying out vaccination will have to account for every dose that they have used and that dose that they have used must be matched against an eligible person.
 Nadhani tumefika mahali tumetengeneza hali ya sintofahamu kwamba mtu yeyote anaweza kwenda kwenye kituo cha kutolea chanjo na kupata huduma.
 Ninataka kuliweka suala hili vizuri, wale wanaotoa huduma ya chanjo watatoa hesabu ya kila dawa waliyoitumia na kwamba dawa zilizotumika lazima zioanishwe na mtu anayestahili huduma hiyo.
 Rais wa Chama cha Taifa cha Wauguzi nchini Kenya Alfred Obengo aliwaomba Wakenya wasio kwenye orodha ya kipaumbele kuepuka kusimama kwenye foleni ya chanjo.
 Akifafanua namna serikali ya Kenya ingeweza kuepuka mkanganyiko huo katika kutekeleza mpango huo,  Gathara anahitimisha makala yake kwa kusema:
-Much of this could have been avoided if the Kenyan government and its global partners, including the World Health Organization and Western governments, treated Kenyans as partners in the rollout rather than colonial subjects to be brutalised and exploited.
-Sadly for Kenyans, their colonial state does not know how to act any differently.
 Tungeweza kuepuka kadhia hii kama serikali ya Kenya na washirika wake duniani, ikiwa ni pamoja na Shirika la Afya Duniani na serikali za nchi za magharibi, zingefanya kazi na Kenya kama mbia wa mpango huu na sio koloni linalotendewa ukatili na kunyonywa.
 Inasikitisha sana kwa Wakenya, nchi yao ambayo ni koloni haifahamu namna nyingine ya kufanya.
 
@@ -348,7 +256,6 @@ R Umaima ana uzoefu wa zaidi ya miaka 10 wa maudhui ya mtandaoni na magazetini.
 Amejikita kwenye masuala ya usalama wa kidijitali, wanawake na haki za wanyama.
 Pia ni mwandishi wa Global Voices.
 Dominika Lasota (Poland): mwanaharakati wa haki za tabia nchi mwenye umri wa miaka 19 ambaye pia ni sehemu ya harakati za Fridays For Future na Women's Strike.
-globalvoices · Breaking The Taboo On Abortion: Perspectives From Uganda, Thailand, Brazil, Pakistan & Poland
 
 Makala 10
 Wakala wa huduma za kifedha za simu akisubiri wateja jijini Dar es Salaam, Tanzania.
@@ -396,7 +303,6 @@ Chini ya utawala wa Magufuli, asasi za kiraia, vyombo vya habari na haki za kidi
 Baada ya kifo cha ghafla cha Magufuli, wengi sasa wanajiuliza kuhusu mustakabali wa haki za kidijitali nchini humo   baada ya miaka sita ya uongozi ulioendelea kuonesha dalili za mabavu.
 Global Voices iliongea na baadhi ya maafisa wa serikali kwa sharti la kutokutajwa majina kuhusu kanuni mpya na  hali ya haki za binadamu na uhuru wa maoni mtandaoni.
 Mtaalam mmoja wa haki za biandamu nchini Tanzania aliiambia Global Voices, kwa sharti ya kutokutajwa:
-The regulations are not fair as anyone can be criminalized, because not many citizens understand the implications of these regulations.
 Kanuni hizi si za haki kwa sababu yeyote anaweza kutiwa hatiani, kwa kuwa si wananchi wengi wanaelewa tafsiri ya kanuni hizi.
 Mwingine alifikiri kwamba serikali inachukulia mitandao ya kijamii kama kero.
 Aliwatahadharisha wananchi kuchukua tahadhari wanapozungumza kwenye majukwaa ya wazi kwa sababu serikali ina nguvu za kisheria kupata taarifa zao zote kupitia wamiliki wa majukwaa hayo.
@@ -417,29 +323,25 @@ Picha na Pernille Baerendtsen, imetumiwa kwa ruhusa.
 Maelfu ya watu wanakusanyika kwenye viwanja vya michezo, viwanja vya ndege na pembezoni mwa barabara, katika maeneo mbalimbali nchini Tanzania, maeneo ambayo mwili wa hayati Rais John Pombe Magufuli ulisafirishwa  kutoka Dar es salaam kuwawezesha wananchi kumuagwa kwa heshima kwa juma zima  jijini Dodoma, yalipo makao makuu ya serikali, visiwa vya Zanzibar, Mwanza na Chato, nyumbani kwake, pembezoni mwa Ziwa Victoria, ambako atazikwa.
 Magufuli alitangazwa kufariki dunia akiwa na umri wa miaka 61, mnamo Machi 17, katika hotuba ya aliyekuwa Makamu wa Rais, Samia Suluhu Hassan, iliyorushwa kwenye kituo cha televisheni ya taifa, tangazo lililomaliza majuma kadhaa ya uvumi kuhusu hali ya afya ya rais na mahali alipo.
 Inadaiwa alifariki kwa maradhi ya moyo:
-Taarifa ya Kifo Cha Rais Wa Jamhuri Ya Muungano Wa Tanzania pic.twitter.com/LNi5CtoURm
-Samia Suluhu (@SuluhuSamia) March 17, 2021
+Taarifa ya Kifo Cha Rais Wa Jamhuri Ya Muungano Wa Tanzania.
 Kifo cha ghafla cha Magufuli, hata hivyo, kimewaacha wa-Tanzania, na watu wengine, wakidadisi hatma ya siasa na utawala katika nchi hiyo ya Afrika Mashariki.
 Siku ya Ijumaa, Hassan aliapishwa kuwa rais wa sita wa Tanzania, akiandika historia ya kuwa mwanamke wa kwanza kuwa Rais wa Tanzania, Rais wa pili kuzaliwa kwenye visiwa vya Zanzibar ambavyo ni sehemu ya Tanzania, na mwanamke wa kwanza mwislamu kuchukua nafasi ya juu kabisa ya utumishi nchini humo.
 Chini ya katiba ya Tanzania, Hassan atatumikia kipindi chote kilichobaki cha muhula wa miaka mitano wa urais wa Magufuli uliokuwa uende mpaka 2025.
 Katika video hii fupi, inayosambaa sana kwenye mitandao ya kijamii, Hassan anapuuza mashaka yoyote kuhusu uwezo wake wa kuongoza kama mwanamke:
-Kwa wale wote wenye mashaka kwamba mwanamke huyu ataweza kuwa rais wa Jamhuri ya Muungano wa Tanzania ningependa kuwaambia kuwa huyu aliyesimama hapa ni rais [makofi]  ningependa kurudia kwamba aliyesimama hapa ni rais wa Jamhuri ya Muungano wa Tanzania, mwenye maumbile ya kike.
+Kwa wale wote wenye mashaka kwamba mwanamke huyu ataweza kuwa rais wa Jamhuri ya Muungano wa Tanzania ningependa kuwaambia kuwa huyu aliyesimama hapa ni rais.
+[makofi]  ningependa kurudia kwamba aliyesimama hapa ni rais wa Jamhuri ya Muungano wa Tanzania, mwenye maumbile ya kike.
 Wakati wa-Tanzania wangali wakimwombolezea Magufuli na kuendelea kutafakari mabadiliko haya ya ghafla, wengi wanaonekana kuwa na matumaini makubwa na Hassan.
 Mwanasiasa wa upinzani Zitto Kabwe, kiongozi wa chama cha ACT Wazalendo, ana matumaini na historia ya Hassani katika harakati na kazi kama mwanachama wa asasi za kiraia.
 Historia nzuri sana ya Rais @SuluhuSamia katika dakika 20 ikisimuliwa na yeye Mwenyewe.
 Anasema alikuwa activist.
 Alikuwa mtu wa Asasi za Kiraia.
 Asante Chambi kwa kufanya nione hii.
-Haichoshi kusikiliza https://t.co/F2S6gW4dYK
-Zitto MwamiRuyagwa Kabwe (@zittokabwe) March 20, 2021
+Haichoshi kusikiliza.
 Wakati Hassan akifahamika zaidi kama mtu mpenda maridhiano, akitoa wito wa umoja na utulivu katika kipindi hiki cha mpito, Magufuli anafahamika kama bulidoza, jina la utani alilolipata kama Waziri wa Ujenzi kutambua ufanisi wake wa kuhakikisha barabara zinajengwa.
 Kumkumbuka Magufuli
 Kanga ikimkumbuka marehemu John Magufuli, rais wa tano wa Tanzania, aliyefariki mnamo Machi 17, 2021.
 Buriani baba yetu mungu akulaze pema / Tutakukumbuka daima shujaa wetu
 Wa-Tanzania wengi   na Waafrika  kwa ujumla wanamkumbuka Magufuli kwenye mitandao ya kijamii kwa mabaya na mazuri.
-The Bad and the Good of Magufuli are equally undeniable, and it means the legacy he leaves behind is complicated but also valuable.
-The pro-Magufuli and anti-Magufuli camps will never agree and the debate will go on for years.
-Michael Mwebe (@MichaelMwebe) March 21, 2021
 Mabaya na mazuri ya Magufuli hayawezi kupingika kwa uzito unaofanana, na hiyo ina maana kuwa kumbukumbu anayoiacha nyuma ina utata wake lakini yenye maana kubwa.
 Kambi za wanaomwuunga mkono Magufuli na wanaompinga Magufuli hazitakaa zikubaliane na mjadala utaendelea kwa miaka mingi.
 Magufuli alijipatia umaarufu katika siku za mwanzo za urais wake kwa ahadi zake za kupambana na ufisadi kwa nguvu.
@@ -452,10 +354,6 @@ Picha na Pernille Baerendtsen, imetumiwa kwa ruhusa.
 Msimamo wake dhidi ya ufisadi pia ulizivutia nchi za Magharibi, na vyombo vya habari  mwanzoni viliandika msimamo wake kwa mtazamo chanya.
 Kwa baadhi, Magufuli anakumbukwa kama mwana wa Afrika kweli kweli na mtetezi wa Afrika aliyetanguliza maslahi ya Afrika.
 Wengine wanamkumbuka kama rais aliyependa  umaarufu akitanguliza uzalendo kuliko kitu kingine chochote:
-Been watching Tanzania mourning John #Magufuli.
-We denounced his autocratic ways, populism & sneered at his unscientific bent, but clearly, with the man and woman on the street, the fellow was quite popular.
-https://t.co/KOZ15oBK4o
-Charles Onyango-Obbo (@cobbo3) March 20, 2021
 Nimekuwa nikifuatilia Tanzania inavyomwombolezea John Magufuli.
 Tulipinga njia zake za kidikteta na kumkosoa kwa tabia yake ya kupuuza sayansi, lakini ni wazi, kwa kutazama watu wanaosimama barabarani [kumuaga], huyu jamaa alikuwa maarufu.
 Hata hivyo, utawala wa Magufuli alikuwa wa kimabavu na hivyo kuathiri sana haki za binadamu na uhuru wa kujieleza.
@@ -488,34 +386,11 @@ Muda mfupi baada ya kifo cha Magufuli, mwandishi Elsie Eyakuze alijitokeza kweny
 Katika uzi mrefu kwenye mtandao wa Twitter, alisema:
 Now.
 For the real story I have been at a loss to tell for too long.
-#thread.
-In March of 2020, the Covid19 pandemic started to rampage throughout the world.
-It did not spare Tanzania.
-But in April of 2020 we stopped all public efforts to halt is spread in the country.
-Elsie Eyakuze (@MikocheniReport) March 20, 2021
-Sasa.
-Kwa simulizi halisi nililoshindwa kulisema kwa muda mrefu.
 #uzi.
 Mwezi Machi mwaka 2020, mlipuko wa Korona ulianza kushika kasi duniani kote.
 Tanzania haikuachwa.
 Lakini mwezi Aprili ya 2020 tuliachana na juhudi zozote za pamoja kudhibiti kuenea kwa ugonjwa huu nchini.
 Kwenye twiti zake za mwisho, akasema:
-Did he die of Covid19, tho.
-Yes, he did.
-And him, and her.
-And them.
-Tanzanians.
-And beyond.
-But they are not who you want to talk about is it?
-They are not The Story.
-It is.
-A friend gets in touch.
-Can you?
-Wellcan I make it personal?
-Please do.
-I will.
-Tomorrow.
-Elsie Eyakuze (@MikocheniReport) March 20, 2021
 Hivi alifariki kwa Korona?
 Ndio, bila shaka.
 Huyu na yule.
@@ -579,20 +454,16 @@ Wakati utawala wa Magufuli haujaonesha kujali madhara ya virusi hivi kwa maisha 
 Waziri wa Fedha wa Tanzania awataka wafanyakazi wa Wizara yake kuchukua tahadhari zote kujilinda na virusi vya korona, wakati huo huo akisema Tanzania haisumbuliwi na UVIKO-19.
 Picha ya gazeti la Mwananchi.
 Kwa mfano, Magufuli alipoapishwa kwa mara ya pili mwaka jana, mamlaka za serikali zilichukua tahadhari nyingi dhidi ya UVIKO-19, wakiwalazimisha wahudhuriaji wote kupima joto la mwili na kuosha mikono yao kwenye sehemu maalumu zenye maji na vipupushi.
-Mnamo Januari 25, Waziri wa Fedha wa Tanzania, Dk.
-Philip Mpango  aliwataka watumishi wa wizara yake  kuchukua tahadhari dhidi ya UVIKO-19 na kwa wakati huo huo akikanusha kuwepo kwa ugonjwa huo nchini Tanzania, wakati wa mkutano wake jijini Dodoma, yalipo makao makuu ya kisiasa.
+Mnamo Januari 25, Waziri wa Fedha wa Tanzania, Dk. Philip Mpango  aliwataka watumishi wa wizara yake  kuchukua tahadhari dhidi ya UVIKO-19 na kwa wakati huo huo akikanusha kuwepo kwa ugonjwa huo nchini Tanzania, wakati wa mkutano wake jijini Dodoma, yalipo makao makuu ya kisiasa.
 Wataalam wengi wa ndani wanaogopa kuzungumza,   kwa hofu ya kuchukuliwa hatua.
 Global Voices ilizungumza na mtalaam mmoja wa afya aliyeamini kwamba Tanzania inaweza kuwa inakabiliwa na wimbi la pili ya mlipuko lakini akifikiri wananchi walifichwa taarifa hizi.
 Mtaalam huyo hakutaka kutajwa jina, akiogopa kuchukuliwa hatua.
 Mtaalam mwingine wa afya aliiambia Global Voices kwa sharti ya kutokutajwa jina kwamba watu lazima wafahamu mwenendo wa hali ya UVIKO-19 ili waweze kuchukua tahadhari kujilinda na kuzuia kusambaa kwa virusi hivyo kwa jamii zao.
 Alisema kwamba kuwaacha watu gizani kunafanya kazi yao iwe ngumu lakini aliamini kwamba Watanzania watajaribu kujilinda wenyewe kwa kuchukua tahadhari zote kama inavyoshauriwa na Shirika la Afya Duniani (WHO).
 Aliiambia Global Voices:
-Politicians have taken over the whole COVID[-19] issue and they are playing a dangerous game, but when people will start dying they will start sacking medical staff.
 Wanasiasa wameteka suala hili zima la UVIKO-19 na wanacheza mchezo hatari, lakini watu watakapoanza kufa wataanza kuwafukuza wafanyakazi wa afya.
 Daktari mwingine aliyezungumza na Global Voices kwa sharti la kutokutaja jina lake alisema kwamba ingawa kuna matumaini ya kupata kinga, matamshi ya serikali ya Tanzania kukanusha uwepo wa ugonjwa huo yatakwamisha upatikanaji wake, kwa sababu serikali haijachukua hatua yoyote kuitafuta kwenye masoko ya dunia, na  badala yake kukimbilia tiba za mitishamba.
 Mwezi Desemba 2020, Msemaji wa Waziri wa Afya Gerald Chamii alionesha mashaka yake kwa chanjo zinazopigiwa chapuo duniani, akiliambia jarida la East African:
-It takes not less than six months to find a vaccine or cure for a certain disease.
-We have fared on our own since the pandemic spread, I am not sure if it is wise to have a vaccine imported and distributed to the citizens without undertaking clinical testing to approve if it is safe for our people.
 Haichukui hata miezi sita kupata chanjo au tiba ya ugonjwa fulani.
 Tumejikwamisha wenyewe tangu mlipuko uanze, sina hakika kama ni busara kuingiza kinga hiyo na kuisambaza kwa wananchi bila kufanya majaribio ya kitabibu kuthibitisha usalama wake kwa watu wetu.
 Kupata taarifa ni suala muhimu kwa demokrasia na maendeleo.
@@ -614,58 +485,29 @@ Alipoulizwa na gazeti la O País hapo Agosti 8, Kamanda wa Jeshi la Polisi Jener
 Haikuchukua muda mrefu kabla shauri hili kulaaniwa vikali katika mitandao ya kijamii.
 Watumiaji kadhaa wa mitandao walieleza wazi kutokufurahishwa na maamuzi ya shule hiyo na hivyo kutaka haki ifanyike kwa wanawake hao.
 Mwanaharajati Fátima Mimbire aliandika huko Facebook:
-Tratem o assunto Matalane com a devida seriedade.
-Estou de coração partido com esta notícia de 15 instruendas grávidas no Centro de Treinos de Matalane.
-Isso é grave.
-É grave porque, como o próprio documento refere, envolve os instrutores.
-Ora, uma pessoa que detém autoridade sobre outra a engravida e o fim é um processinho?
-Isso me lembra o professor que exige sexo às alunas em troca de notas ou para não serem humilhada na sala de aulas por serem, na visão do professor, burras, no lugar de ser processado é transferido para ir dar aulas em outro lugar.
-E lá, continua as suas façanhas.
 Suala  la Matalane lichukuliwe kwa uzito.
 Nimevunjwa sana moyo na suala hili la ujauzito wa wanafunzi 15 wa kituo cha mafunzo cha  Matalane.
 Hili jambo kubwa sana.
 Ni jambo kubwa kwa sababu kama nyaraka zilivyoonesha wahusika ni wakufunzi.
 Sasa mtu mmoja mwenye mamlaka juu ya mwingine anamtia mimba na matokeo yake ni mchakato kidogo?
-Hili linanikumbusha kuhusu mwalimu aliyedai rushwa ya ngono kwa wanafunzi wake ili awape maksi au ili asiwadhalilishe darasani kwa sababu kwa mtazamo wake wanafunzi hao ni wajinga, na badala ya kushtakiwa mwalimu yule alihamishwa akafundishe mahali pengine  na huko anaendeleza unyonyaji wake.
+Hili linanikumbusha kuhusu mwalimu aliyedai rushwa ya ngono kwa wanafunzi wake ili awape maksi au ili asiwadhalilishe darasani kwa sababu kwa mtazamo wake wanafunzi hao ni wajinga, na badala ya kushtakiwa mwalimu yule alihamishwa akafundishe mahali pengine.
+Na huko anaendeleza unyonyaji wake.
 Txeka, mwanaharakati wa haki za wanawake pia alilaani jambo hili huko Twitter:
-Caso de Matalane
-A edificação de uma sociedade de justiça social, na defesa de igualdade de direitos os cidadãos, passa por uma politica de educação e formação equilibrada, valorizando a formação dos cidadãos, com preparação científica e educação moral, cívica e patriótica.
-pic.twitter.com/fiMoyq3DOW
-Txeka (@TxekaMoz) August 10, 2020
 Shauri la Matalane
 Kuunda jamii yenye usawa kijamii katika kulinda haki sawa kwa wananchi inahitaji elimu sawia pamoja na sera za maendeleo zinazojali maendeleo ya wananchi pamoja na maarifa ya kisayansi na maadili pamoja na elimu ya uzalendo.
-Caso Matalane
-A culpabilização da violência contra a mulher é uma prática comum nas sociedades machistas/patriarcais, conhecidas pela desvalorização da mulher e submissão às vontades do homem, causando julgamentos acerca da conduta da vítima, atenuando a conduta do agressor.
-pic.twitter.com/OGbrfeOUVa
-Txeka (@TxekaMoz) August 11, 2020
 Shauri la Matalane
 Kulaumu ukatili dhidi ya wanawake ni jambo la kawaida kwa jamii zenye mfumo dume, zinazofahamika kwa kudhalilisha wanawake na kuwafanya kutii matakwa ya wanaume ikiletea kuhukumiwa kwa matendo ya wahanga na kupunguza hatia ya wanyanyasaji.
 Profesa wa chuo kikuu Carlos Serra alisema:
 Matalane?
-Apenas a ponta do Iceberg, somos formatados para reproduzir Matalane.
-Imagino o dia em que elas começarem a narrar as suas histórias, começando pela mais tenra infância.
-Matalane?
 Ni kipande kidogo sana cha barafu kinachochungulia na Matalane ni zao letu.
 Ninafikiria siku watakapoanza kueleza masahibu yao, wakianzia tangu utoto wao.
 Vile vile mwanahabari na mwanaharakati  Selma Inocência alisema:
-Poucos professores são levados à justiça, julgados e condenados.
-São responsáveis pela infância perdida de milhares de meninas.
-A escola não é segura.
-Estatísticas revelam que centenas de meninas são engravidadas na escola, parte delas por tutores, professores, directores.
-pic.twitter.com/Q8F0LPbbpw
-Txeka (@TxekaMoz) August 13, 2020
 Waalimu wachache sana wamefikishwa mahakamani, wakashtakiwa na kuhukumiwa.
 Wanahusika na kuwapotezea utoto wao maelfu ya wasichana.
 Shuleni sio sehemu salama.
 Takwimu zinaonesha kwamba mamia ya wasichana hupata mimba shuleni na wahusika wengine wakiwa ni wakufunzi, walimu na wakuu wa shule.
 Ombi limepitishwa likitaka adhabu itolewe kwa maofisa wa polisi waliohusika.
 Mpaka sasa zaidi ya watu 3,8000 wameshasaini.
-Hapo Agosti 19, Rais Filipe Nyusi hatimaye aliongea kuhusu kesi hiyo na akasema kuwa polisi itafanya uchunguzi:
-Para o Governo, este caso é sério e está a ser investigado ao detalhe ao nível ministerial e do Comando-Geral da Polícia da República de Moçambique.
-O Estado não deve nem vai tolerar situações como esta.
-A lei deverá ser cumprida e ela é igual para todos nós.
-Ninguém está acima da lei.
-Decorrem inquéritos para aferir os contornos de cada um dos casos, procurando salvaguardar o estado psíquico e emocional das gestantes, porque elas merecem respeito humano.
 Kwa serikali suala hili ni la msingi na linafanyiwa uchunguzi wa kina katika ngazi ya wizara na mkuu wa jeshi la polisi la Msumbiji.
 Jamuhuri haiwezi na haitavumilia masuala kama haya.
 Lazima sheria ichukue mkondo wake na ni kwa kila mtu.
@@ -733,8 +575,7 @@ Kuhakiki ulinzi na ufaragha wa data, mbinu zote za masomo ya mashine inayotumiwa
 Hio ni  data iliokusanywa inahaririwa kwa ajili ya uchambuzi wa takwimu  sio data binafsi ya kulenga watu  isipokua kwa ajili ya kufuatilia mwasiliwa, ambapo itatakikana kufikia washukiwa ama waathiriwa.
 Kuhakikisha uzuizi wa kuingilia ufaragha, Muungano wa Afrika, PanBIOS, na washirika wake lazima wapendekeze namna watakavyo zingatia sheria za ulinzi wa data za nchi tofauti tofauti kulinda ufaragha,hakikisha idhini ya data na kuepuka kushiriki data kibiashara.
 Kwa sasa, huu pragramu-tumizi hauna sera ya faragha inayopatikana kwa umma, ambapo inaelezea watumiaji kanuni za kukusanya na kushiriki data.
-Changamoto ni jinsi huo sera faragha utatimiza malengo mbalimbali, kibara, kitaifa, na kikanda ya sheria za kulinda data kama vile ya Muungano wa Afrika Mkataba juu ya Usalama wa Mtandao na Ulinzi wa Takwimu za Kibinafsi,ya Jumuiya ya Maendeleo Kusini mwa Afrika (SADC) sheria kielezo juu ya ulinzi wa data, Jumuiya ya Kiuchumi ya Mataifa ya Afrika Magharibi
-(ECOWAS) Sheria ya nyongeza A / SA.1 / 01/10 juu ya Ulinzi wa Takwimu Binafsi Ndani ya ECOWAS na Jumuiya ya Afrika Mashariki Kiunzi cha Kanuni za mtandao.
+Changamoto ni jinsi huo sera faragha utatimiza malengo mbalimbali, kibara, kitaifa, na kikanda ya sheria za kulinda data kama vile ya Muungano wa Afrika Mkataba juu ya Usalama wa Mtandao na Ulinzi wa Takwimu za Kibinafsi,ya Jumuiya ya Maendeleo Kusini mwa Afrika (SADC) sheria kielezo juu ya ulinzi wa data, Jumuiya ya Kiuchumi ya Mataifa ya Afrika Magharibi (ECOWAS) Sheria ya nyongeza A / SA.1 / 01/10 juu ya Ulinzi wa Takwimu Binafsi Ndani ya ECOWAS na Jumuiya ya Afrika Mashariki Kiunzi cha Kanuni za mtandao.
 Suluhu za kiteknolojia zimechangia ufanisi kukabiliana na COVID-19 Afrika
 Pamoja na PanaBIOS, baadhi ya mataifa ya Afika wameamilisha itikio inayoegemea teknolojia kupambana na uenevu wa janga la COVID-19.
 Kwa mfano, wanasayansi toka Sengali wametengeneza kifaa cha kupima COVID-19 inayogharimu $1 na Vipumuaji vya 3D ya wagonjwa.
@@ -751,26 +592,16 @@ Wataalam wa afya ya umma walikadiria kwamba janga lingeathiri pakubwa bara la Af
 Bayana, Afrika imethibitisha vinginevyo.
 
 Makala 18
-Screen capture from CCTV's video on Miaopai.
-Via Youtube.
 Habari hii imetumia utafiti wa Factcheck Lab, wakala wa uhakiki wa ukweli ulioko Hong Kong,ambaye pia ni mshirika wa habari wa Global Voices ambapo mwandishi ni mwanachama.
-Tokea Septemba 22, taarifa za habari na machapisho ya mtandao ya kijamii inayoenea katika mitandao ya Kichina ilinukuu sivyo kuwa mwanasayansi mkuu wa Shirika la Afya Duniani (SAD), Dkt.
-Soumya Swaminathan, alisema chanjo za Uchina dhidi ya COVID-19 zimethibitishwa kuwa na athari.
+Tokea Septemba 22, taarifa za habari na machapisho ya mtandao ya kijamii inayoenea katika mitandao ya Kichina ilinukuu sivyo kuwa mwanasayansi mkuu wa Shirika la Afya Duniani (SAD), Dkt. Soumya Swaminathan, alisema chanjo za Uchina dhidi ya COVID-19 zimethibitishwa kuwa na athari.
 Hizi ripoti na machapisho zinanukuu chanzo  video ya dakika inayotayarishwa na televisheni ya China kwa programu-tumizi ya kushiriki video China Miaopai.
-Huo video inaonyesha hotuba ya mkurugenzi mkuu wa SAD Tedros Adhanom Ghebreyesus akiongelea umuhimu wa kukuza chanjo ya UVIKO-19,ikifuatiliwa na matamshi ya Dkt.
-Swaminathan.
+Huo video inaonyesha hotuba ya mkurugenzi mkuu wa SAD Tedros Adhanom Ghebreyesus akiongelea umuhimu wa kukuza chanjo ya UVIKO-19,ikifuatiliwa na matamshi ya Dkt.Swaminathan.
 Katika video ya CCTV, ambayo maelezo yake mafupi yanasema Mwanasayansi mkuu wa WHO: Chanjo za China za UVIKO-19 zimehakiki kuwa na athari (), huu ni taarifa ya Swaminathan:
-As you know, they also have a very active vaccine development programme and several of their vaccine candidates are in advanced stages of clinical trial, so this is also of interest to us, so we're following those very closely.
-Some of their candidates actually prove to be successful in the clinical trials that are going on.
 Kama mnavyofahamu,pia wanayo programu amilifu ya kukuza chanjo na baadhi ya chanjo yako hatua mbele katika majaribio ya kliniki, huu pia ni maslahi kwetu, tunaifuatilia kwa karibu.
 Wengineo wa washirika wamethibitisha kufaidika kutokana na majaribio la kliniki yanayoendelea..
-Lakini, hotuba asili ya Dkt.
-Swaminathan umehaririwa.Sentensi yake ya mwisho, kwa uhakika, ulianza na neno ikiwa, na mziki wa mandharinyuma ulifanya utoke kana kwamba anasema ulithibitisha badala ya thibitisha.
-Matamshi ya Dkt.
-Swaminathan kamili ni haya yafuatayo :
-We've been engaged in discussions with China for the last several months because, as you know, they also have a very active vaccine development programme and several of their vaccine candidates are in advanced stages of clinical trial so this is also of interest to us so we're following those very closely.
-We've had very constructive and open discussions with them and they have always been reiterating their commitment to global access if some of their candidates actually prove to be successful in the clinical trials that are going on [emphasis added].
-So I think the conversations are going on, it's still open and we're hopeful that more countries are going to join.
+Lakini, hotuba asili ya Dkt.Swaminathan umehaririwa.
+Sentensi yake ya mwisho, kwa uhakika, ulianza na neno ikiwa, na mziki wa mandharinyuma ulifanya utoke kana kwamba anasema ulithibitisha badala ya thibitisha.
+Matamshi ya Dkt.Swaminathan kamili ni haya yafuatayo :
 Tumehusika na mjadala na Uchina kwa miezi mingi iliyopita kwa sababu,mnavyojua, hao pia wanao programu amilifu ya kukuza chanjo na na chanjo zao mingi ziko hatua mbele ya majaribio ya kliniki, huu ni maslahi kwetu,kwa hivyo tunafuatilia kwa karibu.
 Tumekuwa na mjadala wa kujenga na wazi nao na kila mara wamesisitiza kujitolea kwao kwa ufikavu kote duniani  ikiwa baadhi ya chanjo zao zimepita majaribio ya kliniki yanayoendelea [msisitizo umeongezwa].
 Kwa hivyo nafikiria mazungumuzo yanayoendelea, bado ni wazi na tunatumania nchi mingi watajuinga.
@@ -786,11 +617,8 @@ Hii ndio zawadi ya Siku ya Kitaifa na Tamasha la Katikati ya Vuli.
 Huwezi dhania ukasi wa Uchina.
 Navunia nchi yangu.
 China imeokoa dunia.
-Baada ya wakaguzi hakika huashiria maneno ya Dkt.
-zimepotoshwa, baadh ya vyombo vya habari,ikiwa pamoja na  CGTN na CCTV, walifutilia machapisho yao ya mtandao wa kijamii.
+Baada ya wakaguzi hakika huashiria maneno ya Dkt. zimepotoshwa, baadh ya vyombo vya habari,ikiwa pamoja na  CGTN na CCTV, walifutilia machapisho yao ya mtandao wa kijamii.
 Miongoni mwao ni Ligi ya Kikomunisti ya Vijana ya China, ambao chapisho lao ilinikuliwa na mtumiaji wa mtandao wa twita @Emi2020JP kabla kupotea toka Weibo:
-pic.twitter.com/IvIbSFl2XY
-Emi JP (@Emi2020JP) September 28, 2020
 Tedros anafaa kuchanjwa kwanza.
 Kama @Emi2020JP, wengi wa watumiza wa mtandao wa twita waliamini WHO was assisting China with distorting the video, na kuchapisha maoni ya hasikwa kwake Tedros:
 Tedros ni kisugulio ya choo!
@@ -833,11 +661,6 @@ Maandamano dhidi ya kifo cha daktari Silvio Dala huko  Luanda.
 Picha na  Simão Hossi, CC-BY 3.0
 Wengi waliyahamishia maandamano haya katika kurasa za Facebook na WhatsApp kupinga tukio hilo.
 Mwanaharakati na mwanazuoni  Nuno Álvaro Dala aliandika huko  Facebook:
-A POLÍCIA NACIONAL É A RESPONSÁVEL PELA MORTE DO MÉDICO SÍLVIO DALA
-As imagens são fortes e muito esclarecedoras.
-Temos todos de exigir que a justiça seja feita.
-A Polícia Nacional tem de pagar pelo crime que cometeu.
-Isto não deve ficar assim.
 POLISI WA NCHI HII WANAHUSIKA NA KIFO CHA DAKTARI SILVIO DALA
 Picha zina nguvu sana na ziko sawia.
 Lazima wote tudai haki itendeke.
@@ -913,13 +736,8 @@ Kitendo hiki ni utamaduni wa kimila na kidini ulioota mizizi kote barani Afrika
 Ukeketaji pia unafahamika kama ukataji wa sehemu za siri inaaminika kwa upana kuwa ni  moja ya ukatili uliopitiliza dhidi ya wasichana na wanawake, na bado unaripotiwa kwa uchache sana hasa huko Mashariki ya Kati.
 Inakadiriwa kuwa angalau wanawake milioni 200 wameathiriwa nao.
 Jambo hili limeelezewa vyema na UNICEF katika video:
-In the MENA region, Female Genital Mutilation (FGM) is a problem that primarily concerns Egypt, Sudan, Yemen, Iraq and Djibouti.
-Carlos Javier Aguilar, Regional Adviser Child Protection, explains more.
-Watch and sharehelp #EndFGM  pic.twitter.com/OrjJvIQl8R
-UNICEF MENA       (@UNICEFmena) February 7, 2020
 Katika ukanda wa Mashariki ya Kati na Kaskazini mwa Afrika, ukeketaji ni tatizo ambalo kimsingi linazitatiza nchi za Misri,  Sudan, Yemen, Iraq na Djibouti.
 Carlos Javier Aguilar, Mshauri wa Masuala ya Ulinzi wa Mtoto anaelezea zaidi,
-Angalia na shirikishamsaada #EndFGM  pic.twitter.com/OrjJvIQl8R
 Somalia inadhaniwa kuwa na idadi kubwa ya wahanga wa ukeketaji ambapo asilimia 98 ya wanawake wenye miaka kati ya 15 mpaka 49 wamekeketwa.
 Huko Djibouti, inakadiriwa asilimia 93 wameathirika, Misri asilimia 92, Sudan asilimia 88, Mauritania asilimia 69, Yemen asilimia 19  na Iraki asilimia 7 kulingana na takwimu zilizoachiliwa Juni na Shirika la Umoja wa Mataifa linaloshughulika na Idadi ya watu  (UNFPA).
 Kitendo hiki hutofautiana kulingana na tabaka la kijamii, kabila na hata kiwango cha elimu katika kila nchi na katika maeneo ya mijini au vijijini.
@@ -941,10 +759,6 @@ Kwa mfano, nchini Misri Wakristo na Waislamu kwa pamoja wanaamini kwamba ukeketa
 Taasisi hii inaendelea kukusanya taarifa zaidi za ukeketaji na imetengeneza njia ya kukusanya taarifa itakayosaidia mtu mmoja mmoja au vikundi vya watu kufanya tafiti ndogo juu ya ukeketaji.
 Watu hupendelea kuepuka mazungumzo na  mada za ukeketaji labda tu litokee tukio litakalogusa vichwa vya habari kama tukio la kifo cha binti wa miaka 12 alifariki baada ya kukeketwa huko Kusini mwa Misri mwezi Februari, ndipo watu huzungumza.
 Ghida Hussein, mwanafunzi wa Kimisri aliiambia Global Voices kwamba:
-As we dont talk about it, it is as if the problem doesnt exist.
-FGM is often practiced silently behind closed doors.
-It is happening far from the more educated urban centers of power where activists and politicians are seated.
-FGM is a controversial sensitive issue and unless there is international attention and funding, it is not seen locally as a priority by an overwhelming male political class.
 Kwa kuwa hatuzungumzi kuhusu jambo hili, ni kama vile tatizo hili halipo kabisa.
 Ukeketaji unafanyika kimya kimya nyuma ya milango iliyofungwa.
 Inatokea huko mbali na watu walioelimika mijini ambapo ndipo wanaharakati na wanasiasa wanakaa.
@@ -952,14 +766,10 @@ Ukeketaji ni jambo tata na labda  jumuiya ya kimataifa zitoe msaada wa fedha na
 Kuvunja miiko na kuongea kuhusu ukeketaji huwafanya watetea haki za Binadamu kushambuliwa kwa lugha za matusi na chuki.
 Nchini Oman, mwanaharakati wa haki za wanawake Habiba al Hinai, mwanzilishi wa Taasisi ya Haki za Binadamu  Omani  alifanya utafiti mdogo mwaka  2017 huko Omani na akagundua kuwa asilimia 78 ya wanawake wamekeketwa.
 Baada ya kuchapisha matokeo ya utafiti wake mtandaoni, Habiba alipokea mashambulizi na vitisho:
-I posted my results online and the response was huge.
-I was attacked by religious conservatives who say female circumcision is a form of Islamic worship.
 Niliweka matokeo ya utafiti wanhu mtandaoni na mwitikio ulikuwa mkubwa.
 Nimeshambuliwa na waafidhina wa kidini ambao walisema kuwa ukeketaji ni sehemu ya ibada ya Waislam.
 Huko Omani, ambapo ukeketaji hautambuliki rasmi, hakuna ulinzi kwa wahanga.
 Habiba aliongeza haya katika taarifa yake:
-How can you ask a survivor to speak out against FGM and then face all the consequences criticism and online defamation, her family and her tribe may disown her, maybe her husband will divorce her  without proper support.
-I dont expect these women to speak out and face society.
 Ni jinsi gani unaweza kumwambia manusura aongee kuhusu ukeketaji na kisha akumbane na madhara yote haya ikiwamo kukosolewa, kutukanwana hata familia au ukoo wame unaweza kumtenga kabisa, pengine hata mumewe anaweza kumtaliki- kama hakuna namna rasmi ya kuunga mkono.
 Sitarajii wanawake hawa kusimama na kuzungumza lwa ujasiri na kuikabili jamii.
 Kutokomeza Ukeketaji: Iko Taratibu sana, Haijitoshelezi
@@ -980,18 +790,10 @@ Makala 22
 Picha ya Abubakar Idris Dadiyata, imetumika kwa ruhusa kutoka kwa The SignalNg.
 Abubakar Idris Dadiyata, mhadhiri na mkosoaji mashuhuri wa serikali ya Nigeria alitekwa nyumbani kwake mnamo mwezi Agosti 1, 2019, huko Barnawa jirani na Kaduna, Kaskazini Magharibi mwa  Nigeria.
 Mwaka mmoja baada ya kutekwa kwake bado Dadiyata hajapatikana.
-Abubakar Idris (Didiyata) was abducted from his home in Kaduna state, Nigeria.
-His whereabouts still not known.
-His family and friends are demanding answer to the question: where is @dadiyata?
-Abubakar is a victim of enforced disappearance.
-#DayoftheDisappeared #FreeDadiyata.
-pic.twitter.com/3DtPxMVK3C
-Amnesty Int.
-Nigeria (@AmnestyNigeria) August 30, 2019
 Abubakar Idris (Didiyata) alitekwa nyumbani kwake katika jimbo la Kaduna, Nigeria.
-Nyendo zake bado hazijafahamika na familia yake  na marafiki wanataka majibu ya maswali yao ambayo ni: yuko wapi @dadiyata?
+Nyendo zake bado hazijafahamika.
+Familia yake  na marafiki wanataka majibu ya maswali yao ambayo ni: yuko wapi @dadiyata?
 Abubakar ni mhanga wa kupotezwa #SikuYaKupotea #MwachieniHuruDadiyata.
-pic.twitter.com/3DtPxMVK3C
 Dadiyata alikuwa mkufunzi katika chuo Kikuu cha Umma cha Dutsinma, katika Jimbo la Katsina.
 Kama mwanachama wa chama cha upinzani cha Watu na Demokrasia (People's Democratic Party) mara zote Dadiyata alikwaruzana na wanachama wa Chama tawala cha Maendeleo Kwa Watu Wote (All Progressive Congress party) katika mitandao ya jamii.
 Soma Zaidi: Hofu yatanda dhidi ya utekaji wa mkosoaji wa serikali ya Nigeria
@@ -1010,36 +812,18 @@ Kwa vyovyote ni kinyume na ni mtazamo finyu kutaka kuamini kwamba kwa kuwa alite
 Hata hivyo, kukana kuhusika kwa Usalama wa Taifa na serikali ya jimbo la Kaduna hakuondoi sononeko la mke wa  Dadiyata na watoto wao wawili wala hairejeshi uhuru wake.
 Maombi ya kutaka kuachiliwa kwa Dadiyata bado yanaendelea kurushwa katika kurasa za Twitter yakiwa na hashtagi ya #MwakaMmojaBilaDadiyata, ikiwa ni dai la Uhuru wake kutoka kwa Wanaijeria.
 Bulama Bukarti alilalamikia maumivu ambayo uharamia huu umeisababishia familia ya Dadiyata:
-Its unfathomable how a Nigerian would disappear just like that.
-We must continue to do everything we can to get Dadiyata reunited with his family.
-There must be no place for this kind of impunity.
-Those that abducted Dadiyata will pay the price.
-If not now, definitely later.
-Bulama Bukarti (@bulamabukarti) August 1, 2020
 Inashangaza jinsi Mnaijeria anaweza kupotea namna hiyo.
 Lazima tuendelee kufanya kila liwezekanalo kumuunganisha Dadiyata na familia yake.
 Hakuna nafasi ya uharamia wa namna hii.
-Hao waliomteka Dadiyata watakuja kuilipa gharama, kama sio sasa basi lazima iwe baadaye.
+Hao waliomteka Dadiyata watakuja kuilipa gharama.
+Kama sio sasa basi lazima iwe baadaye.
 Mtumiaji huyu wa Twitter alighafilika alipoyasikia mahojiano ya mke wa Dadiyata:
-I was shattered to hear Dadiyatas wife speak to @bbchausa, this morning.
-All she is demanding is for his holders to forgive him and let him come back to his family; especially his little children.
-#OneYearWithOutDadiyata
-Anders (@Ameenu_Kutama) August 1, 2020
 Nilighafilika kwa kumsikia mke wa  Dadiyata akihojiana na @bbchausa, asubuhi hii.
 Kitu pekee anachoomba ni watekaji wamsamehe na kumruhusu mumewe arudi kuungana na familia yake, hasa watoto wake wadogo.
-#MwakaMmojaBilaDadiyata
 Akin Akíntáyọ haelewi jinsi  Dadiyata anaweza  kupotea bila kujulikana alipo kwa mwaka mzima:
-One question, how can Dadiyata and his car disappear without trace for a year in Nigeria and the government be just so nonchalant about it, seeking exculpation rather than taking full responsibility for finding him, especially when they were a target of his criticism?
-https://t.co/pIvl5q6vgt
-Akin Akíntáyọ #European (@forakin) September 1, 2020
 Swali moja ninalojiuliza ni jinsi gani Dadiyata na gari lake walivyopotea bila kuacha alama kwa mwaka mzima tena ndani ya Naijeria; na wala serikali haina wasiwasi juu ya jambo hilo, zaidi inatafuta kujiosha badala ya kuchukua wajibu wa kumtafuta kwa kuwa alikuwa mlengwa kwao kwa sababu ya ukosoaji wake?
-https://t.co/pIvl5q6vgt
 Bahati mbaya ni kama vile hakuna mtu anayejali kumtafuta mkosoaji huyo:
 Kinyume chake taasisi za serikali zote za jimbo na serikali kuu zinapambana kuepuka  lawama kutokufanya chochote alisema mwanaharakati wa Haki za Binadamu Professor Chidi Odinkalu katika mahojiano yake  na Vyral Africa:
-Besides saying that they dont know where he is.
-Nobody has really made the effort to tell us what they have done to find him and how it is that they cant account for him.
-It tells you how so little we matter as citizens.
-The least we can do is ask where Dadiyata is and why cant our government find him.
 Zaidi ya kusema kuwa hawajui alipo, hakuna mtu ameonesha  jitihada za kutuambia wamefanya nini hasa ili kumpata  na ni jinsi gani hawatakiwi kuhusishwa naye.
 Hii inakuonesha ni jinsi gani hatuna maana kama raia wadogo.
 Kidogo tunachoweza kufanya ni kuuliza yuko wapi Dadiyata na ni kwa nini serikali yetu haimtafuti?
