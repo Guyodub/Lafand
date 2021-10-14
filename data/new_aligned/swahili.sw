@@ -840,26 +840,14 @@ Kwa sababu ya mlipuko wa gonjwa la Korona, wanafunzi wanaomaliza shule pekee ndi
 Serikali kuu na ile ya jimbo la Kaduna zimebaki kimya  kuhusu majaaliwa ya wanafunzi hao waliotekwa pamoja ma mwalimu wao.
 Ni Siku Ya Kawaida Nchini Nigeria
 Mtumiaji wa Twitter, Ndi Kato alisema tukio hili ni la kufadhaisha Taifa:
-Today in Kaduna state, children in exit classes who were told to resume school were kidnapped by armed gunmen.
-One was reportedly killed.
-Small boy, his life cut short.
-The others have been taken away and we may never hear of them again.
-This should devastate any nation
-Ndi Kato (@YarKafanchan) August 24, 2020
 Leo katika jimbo la Kaduna, watoto walio katika madarasa ya kumaliza ambao waliamriwa kuendelea na masomo wametekwa na watu wenye silaha.
-Mtu mmoja ameripotiwa kuuawa, maisha ya kijana mdogo yamefupishwa, na wengine wameondoka nao na pengine hatutawaona tena.
-Hili lazima lilifadhaishe Taifa lolote..
+Mtu mmoja ameripotiwa kuuawa, maisha ya kijana mdogo yamefupishwa, 
+Wengine wameondoka nao na pengine hatutawaona tena.
+Hili lazima lilifadhaishe Taifa lolote.
 Lakini bado ni siku ya kawaida Naijeria alilalama mtumiaji wa Twitter,  Chima Chigozie:
-Some school children were kidnapped in kaduna, one of the school boys was killed
-along the line.
-The boys life was cut short, the school children are being held in fear.
-This should spike the nation but NO, it's a normal day in Nigeria.
-Chima Chigozie (@CallMeGozie) August 25, 2020
 Baadhi ya wanafunzi wametekwa huko Kaduna, mmoja wa wanafunzi wa kiume ameuawa wakati wa tukio hilo.
 Maisha ya mvulana huyo yamefupishwa, hili lilipaswa kulishtua Taifa, lakini HAPANA, hii ni siku ya kawaida nchini Naijeria.
 Jaja anazilaumu siasa kwa kusababisha umma kukosa huruma na hasira dhidi ya utekaji huu wa wanafunzi:
-The abducted Kaduna Boys will not get the same support and attention as the Chibok Girls because firstly, they are boys, and secondly, GEJ isn't President.
-Jamal (@JajaPhD) August 26, 2020
 Wavulana wa Kaduna waliotekwa hawatapata huruma waliyoipata wasichana wa Chibok kwa sababu kwanza ni wavulana na pili Goodluck Jonathan (GEJ ) sio Rais.
 Goodluck Ebele Jonathan (GEJ) alikuwa Rais, wakati wasichana 276 kutoka katika shule ya serikali walipotekwa na wanamgambo wa  Boko Haram, kutoka Kaskazini Mashariki mwa mji wa Chiboko mnapo mwezi Aprili 2014.
 Utekaji huu ulisababisha kuwepo kwa mchakato ulioenea dunia nzima kukiwepo na hashtagi ya #WarudisheniMabintiZetu iliyoitikiwa na mamilioni ya watu mitandaoni.
