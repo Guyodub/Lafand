@@ -901,10 +901,6 @@ Polisi wamefanya Ukamataji wa pili ndani ya siku mbili chini ya Sheria ya Usalam
 Mwandishi Imtiaz Mahmood alikamatwa kwa kesi iliyo chini ya sheria ya Habari na Mawasiliano siku ya Jumatano asubuhi.
 #UhuruwaKujieleza #ICTLawhttps://t.co/eH8H38unCr
 Mwandishi Meher Afroz Shao aliandika  huko Facebook:
--               !
-..!
-.
-: -                !
 Anaipenda milima na watu ambao wanaishi pale.
 Huandika kuhusu haki zao.
 Sijawahi kuona maneno ya uchochezi katika uandishi wake.
@@ -939,11 +935,9 @@ Makubaliano haya ya amani ya Kihistoria yalisainiwa hapo Agosti 31, katika mji
 Pia jambo hili la kusisimua limegubikwa na kipindi cha mafuriko ya Kihistoria ambayo yameathiri baadhi ya maeneo ya Sudani, yakisababisha kuendelea kuporomoka kwa uchumi ambao tayari ulikuwa umeshadorora.
 Hata hivyo bado raia wa Sudani mitandaoni walisherehekea habari hizo mitandaoni.
 Bloga wa Kisudani Waleed Ahmed aliandika:
-..
 Leo tunajitolea, tunarudi nyumbani.
 Video ambayo inaonesha jeshi (Sudan Liberation Movement (SLMAA) likiongozwa na Minawi likitangaza kuweka silaha chini hapo Disemba 16, 2019, ili kuunga mkono harakati za mapinduzi.
 Mini Arko Minawi, kiongozi wa SLMA, aliandika:
-.
 Mini Arko Minawi.
 Utiaji saini wa jana utaiweka Sudani katika mwendo mpya, katika vyama na kwa watu wa Sudani, mashirika na vyama vya kijamii katika ushirikiano na marafiki na kanda jirani.
 Lazima tutengeneze jukwaa madhubuti kwa ajili ya historia mpya ya nchi yetu.
@@ -959,7 +953,7 @@ Tukio linalotokea mara moja kila baada ya miaka 5-9 sio jambo la Kihistoria ni m
 Makubaliano ya Amani ya Abuja  2006
 Makubaliano ya Amani ya Doha  2011
 Makubaliano ya Amani ya Juba   2020
-Bora tusubiri kabla ya  kusherehekea #Sudan #Darfur#_
+Bora tusubiri kabla ya  kusherehekea
 Makubaliano Hayajakamilika
 Pamoja na uwepo wa tukio hili la kusisimua, makundi mawili ya waasi hayajatia saini makubaliano haya.Kikundi cha SLMA kiliongozwa na Abdul Wahid al-Nur, na Chama cha harakati za Uhuru wa Wasudani kaskazini  (SPLM-N), kinachoongozwa na Abdelaziz al-Hilu, wote walijitoa kwa sababu ya kutokujibiwa kwa baadhi ya maswali kuhusu mfumo wa uendeshaji wa jeshi la muungano na utambulisho wa nchi.
 Siku tatu baada ya kusainiwa kwa makubaliano ya amani Waziri Mkuu wa Sudani alisafiri kwenda Addis Ababa, Ethiopia, kuonana na al-Hilu kujadili kuhusu ya mgongano huo kulingana na Usuluhishi wa Sudani
@@ -984,7 +978,6 @@ Hapo Septemba 3, gavana wa jimbo la Sinnar,  Ustadhi Elmahi Sulieman alitangaz
 Kimo cha maji ya Mto Nile usiku huu kimeongezeka kutokana ma mvua kubwa ambazo zimesababisha kuvunjika kwa vizuizi na kuta za ulinzi ambavyo ni bwawa dogo lililojengwa na magunia yaliyojazwa udongo za mji wa Singa na maeneo ya Umm Benin, na maji yameanza kufurika katika mji na katika makazi ya watu.
 Hivyo basi tunatoa maelekezo kwa mamlaka zote za serikali na mashirika binafsi kujitokeza na kuja kusaidia kuwaokoa wananchi mapema iwezekanavyo na pia kuwapatia hifadhi, chakula na matibabu.
 Hali ni ya kutisha:
-|
 Katika Jimbo la Sinnar | mji wa Singa,  hali ni ya kutisha baada ya mvua kuvunja ukuta wake wa kizuizi hivyo kuruhusu maji kutoka Mto Nile kuingia mjini.
 Vijana wa Kisudani kutoka kisiwa cha Tuti walijenga ukuta wa kuzuia maji ya mafuriko kuingia ndani ya kisiwa chao.
 Kilikuwa kitendo cha kishujaa, alisimulia Hassan Shaggag:
@@ -1714,9 +1707,6 @@ Picha na Nightscream, CC  3.0 na Wikimedia Commons.
 Ni masaa 24 tu tangu  Binyavanga Wainaina Mwandish Mkenya kutoweka katika ulimwengu huu, lakini uwepo na athari yake vinaendelea kurindima duniani kote.
 Msema kweli, mwandishi shoga mu-wazi  alilaumu mapatano na kutia changamoto serikali akichokoza kwa uandishi wa kimapinduzi ambao ungefungua mlango kwa maelfu ya waandishi wanaotamani kubadilika katika kuandika na kuelezea namna Afrika ilivyo.
 Mwandishi, mwalimu na mwanaharakati wa LGBTQ, Binyavanga Wainaina mwenye umri wa miaka 48, alifariki siku ya Jumanne tarehe 22, Mei, Nairobi, Kenya, baada ya kuugua kwa muda mfupi.
-Today's got me thinking: what will your life mean when it's all over?
-Binyavanga's death has got me thinking about who I was about five or so years ago, and also who he was to us as young enthusiastic Africans hungry for a different paradigm of our continent and our selves.
-Fungai Machirori (@fungaijustbeing) May 22, 2019
 Leo nimefikiria: Maisha yako yatakuwa na maana gani yanapoondoka?
 Kifo cha Binyavanga kimenifanya nifikirie kuhusu nilivyokuwa miaka mitano au mingi iliyopita na pia alikuwaje kwetu kama kijana mwenye tashwishi shauku na njaa ya mabadiliko mbalimbali juu ya bara letu na kwetu pia.
 Fungai Machirori (@fungaijustbeing) May 22, 2019
@@ -1745,9 +1735,6 @@ Wainaina aliona aseme kuwa yeye ni shoga kwa mama yake alikuwa anakaribia kufa.
 Makala yake ilifika kwa muda muafaka kama kampeni dhidi ya mkutano mkubwa wa kupambana na ushoga na sheria dhidi ya ushoga ilikuwa imependekezwa nchini Uganda na baadae Tanzania ambapo vitendo vya ushoga ni jinai.
 Soma zaidi: Msimamo wa Tanzania kuhusu ushoga kuzima agenda ya kisiasa
 Hata hivyo, tofauti na waandishi wengine waliokuwa uhamishoni,  Wainaina alirudi nyumbani kama Nanjala Nyabola anavyoelezea BBC kupitia Twitter, anasema hiyo ilikuwa muhimu:
-For those of us who grew up with "the best Kenyan writers" (whatever that means) living in exile, jailed and persecuted, or poor and under appreciated, or censored heavily, he came back and that was major.
-He was a complex man, but I think for this he deserves endless gratitude.
-Nanjala Nyabola (@Nanjala1) May 22, 2019
 Kwa wale miongoni mwetu ambao walikua pamoja na  waandishi maarufu wa kikenya wanaoishi uhamishoni, waliotiwa gerezani, maskini au wasiopongezwa au kukataliwa vibaya mno, yeye alirudi nyumbani na hilo lilikuwa jambo muhimu sana .
 Alikuwa mtu asiyeleweka lakini kwa hili anastahili shukrani daima.
 Tunatakiwa kusema fikra zetu
@@ -1769,23 +1756,15 @@ Wakati alitikisa bila huruma mikataba ya kijamii Kenya   alivyojitokeza hadhara
 Wainaina alikuwa mtu  mtata ambaye alipambana akiwa na msongo na mara nyingi alipigana sana kutokana na  kuwa mtu mashuhuri shoga lilionekana ni jukumu lake tata katika jamii kama mtu wa watu.
 Alikuwa na mashabiki lakini alikumbana na ukosoaji kutoka kwa mwandishi mashuhuri Shailja Patel, ambaye alimshtumu Wainaina kuwa mtu mwenye sumu ya kuwachukia watu wa jinsia moja wenye mahusiano ya kimapenzi.
 Mtumiaji wa Twitter, Néo Músangi anasimulia mapungufu ys tabia ya Wainaina katika ujumbe wake kupitia Twitter:
-i do not have sufficient energy to engage now but, i am grieving binya, as the dearest of my friends.
-in all my queerness and feminist-ing.
-i  am eternally sorry that he hurt others.
-i am sorry that he human-ed in those ways.
-he would hate us sanitising him.
-https://t.co/B5524fwBeh
-néo músangi (@SinoxoloMusangi) May 22, 2019
 Sina nguvu za kutosha lakini ninamlilia Binya kama rafiki yangu kipenzi katika ugeni na utetezi wangu.
 Ninasikitika sana kwamba aliumiza wengine.
-Ninasikitika kwamba alikosea kama binadamu, angetuchukia tukimsafisha.
+Ninasikitika kwamba alikosea kama binadamu.
+Angetuchukia tukimsafisha.
 Mwandishi Bwesigye Mwsigire, mkurugenzi wa Writivism Festival nchini Uganda, pia  alielezea mkanganyiko huu   kupitia Facebook:
 mtindo wake wa maisha ilikuwa ni tatizo.
-His style was a transgression.
-Nzuri na kuachia makosa Beautiful and freeing transgression.
+Nzuri na kuachia makosa.
 Watu tunaoshikilia kwa sababu ya kazi na mawazo yao ni watu tu.
-[T]he people we obsess over because of their work and ideas are people after all.
-Ni binadamu They are human.
+Ni binadamu.
 Tupo tayari kuwapenda katika changamoto zao Are we ever ready to love them in their complexity?
 Kwa sasa, mengi yamezungumzwa juu yake.
 hakuna haja ya kurudia yaliyosemwa.
@@ -1794,27 +1773,13 @@ Hii aiondoi maumivu mtu anayoyasikia kwa kifo chake.
 Kuna Binyavanga Wainaina mmoja tu.
 Ni mhenga kwa sasa.
 Tusherehekee maisha yake.
-.
 Kipaji cha udadisi
-A queer icon, Binya  kama alivyokuwa akijulikana sana   often received torrents of vitriolic anti-gay rhetoric that only spiked online as the news of his death spread across various channels.
 Mwanaharakati Mkenya Boniface Mwangi atuma ujumbe kupitia Twitter baada ya kutuma ujumbe wa kusifia Wainaina kupitia Facebook; chuki na maoni ya ushoga zilifuata ujumbe wake.
-that after writing a Facebook tribute to Wainaina, hateful, homophobic comments derailed his message:  Wainaina alikuwa mtu mwenye kipaji cha udadisi ambaye inapaswa akumbukwe:
-I did a very short Facebook post on #RIPBinyavanga and the comments https://t.co/yZ3MoWBnD7 are the vilest l have ever read.
-Even the thieves who steal our taxes and kill people don't get as much hate.
-Truth is, Binya was a creative genius and he will be read and be remembered.
-pic.twitter.com/dmuMQKVw2c
-Boniface Mwangi (@bonifacemwangi) May 22, 2019
+Wainaina alikuwa mtu mwenye kipaji cha udadisi ambaye inapaswa akumbukwe:
 Nilituma ujumbe mfupi kupitia Facebook juu ya kifo cha Binyavanga, #RIPBinyavanga kulikuwa na maoni mabaya na aibu sana sijawahi kusoma.
 Hata wezi ambao hutuibia kodi na kuua watu hawapati chuki kubwa kama ile.
 Ukweli ni, Binya alikuwa na akili na kipaji cha udadisi na ataendelea kusomwa na kukumbukwa
 Mganda ambaye ni mtetezi wa haki za akina mama na mwandishi Rosebell Kagumire alitonesha kile alichojifunza kutoka kwa ushupavu wa Wainaina wa kusema wazi:
-Do not allow the fear.
-Don't limit yourself.
-Do speak that which needs to be said.
-Better yet write it down.
-Live your truth and with your heart.
-That when you finally finally breathe your last there will be millions of words you brought so much meaning into.#RIPBinyavanga
-Rosebell Kagumire  (@RosebellK) May 22, 2019
 Msiruhusu woga.
 Msijizuie ninyi wenyewe.
 Ongeeni kile kinachohitajika kusemwa.
@@ -1831,23 +1796,11 @@ Leo naandika asante
 Mkenya Yvonne Adhiambo Owuor ambaye ni mwandishi wa habari na mwandishi wa Dust, na kwa kweli rafiki wa Wainaina, anahitimisha kwa maombolezo ya mwisho:
 Nani alikuambia uondoke?
 kutoka kwenye mwili wako usiku bila kuacha anuani mpya?
-Face tilted, eyes piercing, he said, "You have exactly 3 seconds to reorganise this crap."
-You, there.
-You!
-Who told you you could leave?
-Sneak out of your body at night without leaving a new address?
-To whom does one now go in fear and trembling with first draft manuscripts?
-pic.twitter.com/DSawF6KGhY
-Yvonne Adhiambo Owuor (@AdhiamboKE) May 22, 2019
-Uso umeinama, macho yanachoma, alisema.
-Una sekunde 3 tu za kurekebisha manung'uniko wewe kule.
+Uso umeinama, macho yanachoma, alisema, Una sekunde 3 tu za kurekebisha manung'uniko wewe kule.
 Wewe nani alikuambia uondoke?
 Kutoka mwilini mwako bila kuacha anuani mpya?
 Ni kwa nani mtu anaweza kwenda kwa hofu na kutetemeka akiwa maandishi ya kujaribia?
 Sasa yeye ni miongoni mwa watu mashuhuri, unaweza kuungana na sayari ya Binya ukiwa na kumbukumb kubwa ya kazi yake.
-Sina nguvu za kutosha lakini ninamlilia Binya kama rafiki yangu mpendwa katika ugeni na utetezi wangu.
-Ninasikitika sana kwamba aliumiza wengine.
-Ninasikitika kwamba alikosea kama binadamu, angetuchukia tukimsafisha.
 
 Makala 41
 Ukurasa wa mbele wa gazeti la de Angola kuhusu zabuni iliyoshinda ya kampuni ya Telstar.
@@ -1859,43 +1812,25 @@ Kutokana na taarifa mtandao wa Angola, ushindi wa Manuel João Carneiro ulitolew
 Gazeti la Observador lilitaarifu kwamba makampuni 27 yalishiriki katika mchakato wa kuomba zabuni ulifunguliwa na Wizara ya mawasiliano na Teknolojia ya habari chini ya José Carvalho da Rocha.
 Kutokana na gazeti la Angola tarehe 25 Aprili, João Lourenço alisaini taratibu ambazo ziliweka sheria mpya kwa ajili ya kufungua mwaliko wa zabuni.
 Baada ya matokeo ya zabuni ya kwanza kuwekwa wazi kwa umma, wananchi wengi wa Angola walihoji uadilifu katika mchakato huo.
-Wengine walikwenda mbali kwa kusema kwamba mshindi Telstar hajawahi kuwa na tovuti haya yalisemwa na Skit Van Darken, mhariri na muongozaji wa vipindi kupitia Facebook:
-A Telstar  Telecomunicações, Lda, constituída a 26 de Janeiro de 2018, com capital de 200.000 Kwanzasde acordo com o Diário da República, cujos accionistas são o general Manuel João Carneiro (90% do capital), na reforma, e António Cardoso Mateus (10%).
-O accionista maioritário tem ligações à empresa Mundo Startel, uma sociedade de capitais anónimos, registada na INACOM, o regulador das telecomunicações, com licença de telefonia fixa, entretanto expirada.
-Uma empresa que nem se quer website tem!
-EU NÃO ACREDITO SE QUER QUE EXISTIRAM OUTROS CONCORRENTES
-ESSE PAÍS É UMA DESGRAÇA
-Tafsiri: Telstar  Telecommunications, Ltd, ilianzishwa tarehe 26 Januari 2018, na mtaji wa Kwanza 200,000 kutokana na gazeti la Diário da República, ambalo wadau wake ni  the general Manuel João Carneiro (asilimia 90) na  António Cardoso Mateus (asilimia 10).
+Wengine walikwenda mbali kwa kusema kwamba mshindi Telstar hajawahi kuwa na tovuti.
+Haya yalisemwa na Skit Van Darken, mhariri na muongozaji wa vipindi kupitia Facebook:
+Telstar  Telecommunications, Ltd, ilianzishwa tarehe 26 Januari 2018, na mtaji wa Kwanza 200,000 kutokana na gazeti la Diário da República, ambalo wadau wake ni  the general Manuel João Carneiro (asilimia 90) na  António Cardoso Mateus (asilimia 10).
 Mshikadau mkubwa ana uhusiano na kampuni ya Mundo Startel, kampuni yenye dhima inayojitosheleza, iliyosajiliwa INACOM, mdhibiti wa mawasiliano akiwa na leseni ingawa imeshapita muda wake.
 kampuni ambayo haina hata tovuti!
 SIAMINI HATA KIDOGO KWAMBA KULIKUWA NA WASHINDANI WENGINE
 NCHI HII NI AiBU
 kwa sasa, Joaquim Lunda, mwandishi wa habari na mtangazaji wa mara kwa mara katika mitandao ya kijamii, alisifia kitendo cha Rais na hata nilifikilia kuwa waziri mhusika alikimbia hatari ya kufukuzwa kwa kushindwa huku:
-Agradeço e é de louvar a decisão tomada pelo Presidente da República, João Lourenço em anular o concurso público que atribuiu à empresa angolana Telstar a licença para a quarta operadora de telecomunicações em Angola.
-Havia muitas reticências e muitos pontos por esclarecer no assunto.
-Não se reconhece idoneidade numa empresa que foi criada em 2018 c/ capital social de 200 mil kwanzas em ser lhe atribuído a tal empreitada.
-Tenho a plena certeza que os dias do Ministro das Telecomunicações e das Tecnologias de Informação, José Carvalho de Rocha, estão contados.
-Após o desaire que foi o ANGOSAT 1, agora mais este que testemunhamos hoje, duvido se o Dread vai resistir.
-Apreciemos os CenáriosNas Calmas!
-!
 Tafsiri Ninshukuru na ni kitendo cha kupongezwa, maamuzi yaliyochukuliwa na Rais wa Jamhuri, João Lourenço, kufuta zabuni ya serikali ambayo kampuni ya Angola ya Telstar ilishinda leseni ya kuwa mwendeshaji wa mawasiliano katika Angola the licence for the fourth telecommunications operator in Angola.
 kulikuwa na watu wengi kutoridhishwa na mambo mengi ya muhimu ya kuweka wazi mazuiyoThere were many reservations and a lot of points to clarify around the issue.
 Mtu haoni tija katika kampuni ambayo iliundwa mwaka 2018 na mtaji wa Kwanza elfu 200, kupewa tuzo ya zabuni.
 Nina uhakika kabisa kuwa siku za waziri wa mawasiliano na teknolojia ya habari zinahesabika.
 Baada ya kushindwa na  ANGOSAT 1, sasa na hiki tunachoshuhudia leo, nina wasiwasi kama Hofu kama itafanya lolote.
-.
-Tufurahie mchezo huo kimya kimya!
-!
+Tufurahie mchezo huo kimya kimya!!
 Uamuzi wa Rais ulikuja baada waziri yule yule aliyeongoza mwaka 2017, mradi wa setilaiti Angosat 1,   anaingia kwenye matatizo   tena.
 Adriano Sapiñala, makamu wa chama kikuu cha upinzani yeye anaona tatizo linaonesha mfarakano katika serikali:
-JLo tem de andar a combinar bem com os seus auxiliares porque ontem o Ministro de tutela dizia que o tempo das reclamações tinha terminado e por isso a Telstar teria avançado com os passos subsequentes sendo ela vencedora do concurso fraudulento e hoje JLo vem e anula o concurso!!
-Vocês comunicam assim tão mal?
-Agora ou o Ministro coloca o seu cargo à disposição (demitindo-de) ou então JLo tem de o exonerar porque se anulou o concurso é porque não correu bem e para não beliscar ninguém inocente, que se apurem responsabilidades!
-!
-Tafsiri: JLo [João Lourenço] anapaswa kupanga vizuri timu yake kwa sababu jana waziri mwenye dhaman alikuwa anasema kwamba muda wa malalamiko umeisha na kwa hiyo Telstar ingeendelea na hatua inayofuata kutokana na kwamba ilikuwa mshindi wa zabuni ya ulaghai na leo JLo anajitokeza na kufuta zabuni!
+JLo [João Lourenço] anapaswa kupanga vizuri timu yake kwa sababu jana waziri mwenye dhaman alikuwa anasema kwamba muda wa malalamiko umeisha na kwa hiyo Telstar ingeendelea na hatua inayofuata kutokana na kwamba ilikuwa mshindi wa zabuni ya ulaghai na leo JLo anajitokeza na kufuta zabuni!
 Mawasiliano si mazuri?
-Sasa labda waziri aweke msimamo wa (kujihuzuru) au JLo anapaswa kumfukuza kwa sababu kama amefuta zabuni ni kwa sababu mchakato wake haukuwa mzuri na ili isiathiri mtu yeyote safi lazima watu wawajibike!
-!
+Sasa labda waziri aweke msimamo wa (kujihuzuru) au JLo anapaswa kumfukuza kwa sababu kama amefuta zabuni ni kwa sababu mchakato wake haukuwa mzuri na ili isiathiri mtu yeyote safi lazima watu wawajibike!!
 
 Makala 42
 Blanka Nagy akizungumza katika maandamano ya Januari 2019.
@@ -1921,7 +1856,8 @@ Joost (@almodozo) April 5, 2019
 Mimi na Wakili wangu tunafikiria kuwashitaki chanzo cha habari kilichochapisha nakala ya matokeo yangu kutoka shuleni, Nagy aliwaambia Atlatszo katika mahojiano.
 Alisema kuwa Origo hawakuwa na haki ya kuchapisha matokeo yake.
 Yeye na wakili wake wanadhani kuwa Origo hawakuwa na haki hata ya kuyaona matokeo yake walipoyawakilisha mahakamani.
-Na shutuma zao za hivi karibuni sio za kweli pia, Nady alisema Sifeli somo langu la Historia, tofauti na walichokisema.
+Na shutuma zao za hivi karibuni sio za kweli pia, Nady alisema.
+Sifeli somo langu la Historia, tofauti na walichokisema.
 Nina matokeo mazuri  alama zangu ni zaidi ya 2 (ambayo ni sawasawa na daraja C).
 Wanachosema ni uongo.
 Ningeaibika kama ingekuwa ni kweli kwa sababu katika familia yangu kulikuwepo na mwalimu wa Historia miongoni mwa babu zangu, alimalizia kusema.
@@ -1932,8 +1868,6 @@ Blanka Nagy mwanafunzi wa shule ya upili: Fidesz anatia kinyaa, mzandiki, mbaya 
 Kikundi hiki kiovu cha majambazi, serikali hii ya wachache, wanaojaza mifuko yao kwa ajili ya maisha yao ya uzeeni wakati ninyi mnataabika kwa Umaskini mkiwa wastaafu.
 Alisema ukweli.
 HII ndiyo Hungary.
-https://t.co/N8ar0prXj6
-Zsuzsa Gál (@JulieSueGal) April 6, 2019
 Kukashfu na kutoa taarifa za uongo ndizo silaha pekee za vyombo vinavyounga mkono serikali ya Hungary.
 Baadhi ya mamlaka za upinzani zimejibu kwa kuvishtaki vyombo hivyo vya habari kwa kukashfu.
 Kulingana na takwimu za hivi karibuni zilizokusanywa na Atlatszo, vyanzo vikuu vya propaganda vimeshindwa kesi nyingi, na viliamriwa na mahakama kusahihisha taarifa mara 109 kwa mwaka 2018.
@@ -1953,11 +1887,6 @@ Soma zaidi: Sisi ni Wahanga tunaowasaidia wahanga': Wakinakili uvunjaji wa Haki
 Makadirio ya chini ya majeruhi, waliotambuliwa na serikali Agosti 2018 imeongezeka na kufika 197.
 Hata hivyo, Shirika la Haki za Binadamu, limekaridia kuwepo kwa vifo 322 mpaka ilipofika Septemba 18 2018, ambapo vifo vingi vilikuwa kwa kupigwa risasi kichwani, shingoni na kifuani.
 Mwanablogu Ana Siú aliandika kwenye Medium hivi karibuni kuhusu uzoefu wake katika maandamano ya Aprili 2018.:
-A través de una transmisión en vivo en Instagram, vi a una amiga de la universidad ser atacada por turbas.
-Escuché cómo ella gritaba y luchaba por no salir lastimada [] Finalmente, el motorizado la soltó, pero se llevó consigo el celular sin saber que seguía transmitiendo.
-Entonces dijo: vamooos, vamooos.
-Hay que llevar estos celulares a revisarlos.
-Esto siguió como por 20 minutos.
 Nilimuona rafiki yangu wa chuoni akiwa anashambuliwa na genge kupitia Instagram Mubashara.
 Nilimsikia akipiga kelele na akipambana kuepuka kuumizwa [] Mwishowe, mwanaume aliyemshambulia akiwa kwenye pikipiki alimwacha lakini alichukua simu yake.
 Hakujua kuwa bado anaonekana mubashara.
@@ -1965,11 +1894,6 @@ Kisha akasema, tuondoke!
 Tunatakiwa kuzichukua hizi simu zikakaguliwe.
 Tukio hilo liliendelea kwa dakika 20.
 Pia aliangazia kuhusu maandamano ya Mei 30, ambapo yalikuwa maandamano ya kihistoria yaliyoitishwa katika tarehe ambayo Nicaragua husherehekea siku ya Mama ambapo watu 15 waliuawa.
-:
-Este día cambió la forma en que vivíamos las protestas.
-Los que estábamos en esa marcha multitudinaria vimos cómo asesinaron a jóvenes.
-Fue la primera vez que atacaron con balas de plomo a una marcha masiva.
-Nunca me había sentido tan cerca de la muerte como esa tarde.
 Siku ile tulibadili mitazamo yetu kuhusu maandamano.
 Baadhi yetu tuliokuwa katika maandamano yale tuliona jinsi walivyokuwa wanawaua vijana.
 Ni mara ya kwanza polisi  kushambulia maandamano makubwa kama yale kwa risasi za moto.
@@ -1980,18 +1904,19 @@ Serikali iliwashambulia waandamanaji waliotengeneza vizuizi vya kujilinda na kuj
 Waandamanaji walizidi kujihusisha na vurugu na mapigano na kufikia Agosti 2018 vilikuwa vimetokea vifo 22 vya maafisa wa polisi, na hii ni kulingana na takwimu za serikali..
 Katikati ya 2018, polisi walianzisha walichokiita operación limpieza (Operesheni ya kusafisha) kuharibu vizuizi na kuwashtaki watuhumiwa walioshukiwa kujihusisha navyo.
 Taarifa zinasema kuwa vyombo vya usalama vilifanya hivyo vikishirikiana na Vikundi vya wanamgambo.
-Wanafunzi wengi, viongozi wa harakati za wakulima, wapigania haki na wanahabari walilengwa katika kampeni hiyo hatari na wengi wao wameshtakiwa, na baadhi ya watumishi wa afya waliohudumia majeruhi wakati wa maandamano wamepata misukosuko kwa kile walichokifanya.
+Wanafunzi wengi, viongozi wa harakati za wakulima, wapigania haki na wanahabari walilengwa katika kampeni hiyo hatari na wengi wao wameshtakiwa.
+Na baadhi ya watumishi wa afya waliohudumia majeruhi wakati wa maandamano wamepata misukosuko kwa kile walichokifanya.
 Chama cha Madaktari wa Nicaragua wamesema kuwa angalau madaktari 240  walifukuzwa kazi katika hospitali za umma kama njia ya kuwakomoa.
 Soma zaidi: Waandamanaji wa Nicaragua na waandishi wa habari wakumbana na mashambulizi makali mitaani na kwenye mitandao.
 Hapo Septemba maandamano yalifanywa kuwa sio halali tena, na shughuli zozote kwa sasa katika mitaa zinahitaji kibali maalum kutoka kwa mamlaka, ambapo mara nyingi vibali hivyo hukataliwa..
-Hapo Februari 27, 2019, meza ya  mazungumzo ilirejelewa kati ya serikali na chama cha upinzani, Alianza Cívica por la Justicia y la Democracia (Muungano wa Haki na Demokrasia kwa Raia), ikifuatiwa na kuachiliwa huru kwa mamia ya watu kutoka gerezani.. Ukilinganisha na mazungumzo ya kipindi kilichopita, kikao hiki hakikujumuisha viongozi wa harakati za wakulima na wanafunzi, kwa sababu baadhi yao wako kifungoni, na wengine wapo uhamishoni.
+Hapo Februari 27, 2019, meza ya  mazungumzo ilirejelewa kati ya serikali na chama cha upinzani, Alianza Cívica por la Justicia y la Democracia (Muungano wa Haki na Demokrasia kwa Raia), ikifuatiwa na kuachiliwa huru kwa mamia ya watu kutoka gerezani.
+Ukilinganisha na mazungumzo ya kipindi kilichopita, kikao hiki hakikujumuisha viongozi wa harakati za wakulima na wanafunzi, kwa sababu baadhi yao wako kifungoni, na wengine wapo uhamishoni.
 Sio Rais mpya pekeeni mwanzo mpya
 Kwa kuwa mgogoro huu wa nchi unaingia mwaka wa pili sasa, wahka na wasiwasi wa kesho ya Nicaragua umebebwa na hashtagi #SOSNicaragua, ambayo hutolewa kila siku pamoja na madai, picha za waathirika na vilio juu ya wanafunzi walio magerezani na familia zao.
 Soma zaidi: Wanaharakati wa Diaspora wa Nicaragua wabeba mzigo mara mbili
 Chanzo cha habari cha Nicaragua, Niú waliwahoji waandamanaji walioongoza maandano ya Februari katika maeneo ya jirani na Costa Rica na walielezea ugumu wa maisha waliyo nayo huko uhamishoni.
 Alejandro Donaire, mwanafunzi alisema kuwa alikimbia nchini baada ya kushiriki maandamano ya amani, aliiambia Niú jinsi ilivyo vigumu kujisikia kuwa sehemu ya jamii na maisha ya kawaida, baada ya kutumia muda mrefu kwa  kuishi kwa kujificha, kukimbia na kuandamana.
 Madelaine Caracas, msemaji wa kikundi cha wanafunzi kinachofahamika kama Ushirikiano wa Wanafunzi kwa Demokrasia, pia alishirikisha Niú kiu yake ya kutaka kuona mabadiliko ya Nicaragua ambayo yatakuwa ni zaidi ya Ortega kuondoka:
-[Tenemos que] erradicar autoritarismos, machismos, caudillismo y demás males que han penetrado en la cultura política del país [] Ahora, más que nunca, estamos seguros de que Ortega se va este año [] este año estaré en Nicaragua y tengo [esa seguridad] porque (Ortega) está ahogado internacionalmente, está ahogado económicamente y también porque la parte insurreccionada que se levantó en abril está hoy, más que nunca, más organizada.
 [Tunataka] kuuondoa udikteta, ukandamizaji wa kijinsia, ubinafsi na madhaifu mengine ambayo yamejipenyeza katika utamaduni wa siasa za nchi.
 Tunaamini zaidi kuwa Ortega ataondoka mwaka huu na kwamba nitarudi Nicaragua mwaka huu.
 Na nina hakika kwa sababu Ortega kwa sasa hasikiki katika anga za kimataifa na za kiuchumi na pia kwa sababu wale wote walioshiriki maandamano ya Aprili wamejiandaa kikamilifu kwa sasa.
@@ -2015,17 +1940,13 @@ Katika mwezi Machi 2019, jamii za wazawa walifunga   barabara kuu katika mkoa 
 Tarehe 25 Aprili waliungana na maandamano ya jamii zingine ili kuongoza  maandamano ya kitaifa.
 Pamoja na vitisho kwa haki za wazawa, waandamanaji  wanapinga dhidi ya kukatwa kwa bajeti ya elimu na utekelezaji unaosuasua wa makubaliano ya amani ya mwaka 2016 ambayo Duque ambaye ana mwaka mmoja madarakani ndiye msemaji mkuu.
 Wazawa wameyaita maandamano hayo mingas, neno la lugha ya Quechua lenye maana ya kazi ya wote linalotumika sana katika maandamno katika Amerika ya Kusini.
-#ParoNacional | Comunidades indígenas, campesinos, campesinas y afros de Tado, se movilizan desde tempranas horas a lo largo de la vía Pereira-Quibdo en el marco del Paro Nacional #SeValeProtestar pic.twitter.com/YNOOB1oxNd
-Colombia Informa (@Col_Informa) April 25, 2019
-Tafsiri: #Maandamano ya kitaifa | Jamii za wazawa, wakulima na watu weusi wa Tado wanahamasishana mapema kuanzia masaa ya  asubuhi kuwa barabarani kutoka Pereira kuelekea Quibdo kama sehemu ya maandamano ya kitaifa # Ni fahari kuandamana
+#Maandamano ya kitaifa | Jamii za wazawa, wakulima na watu weusi wa Tado wanahamasishana mapema kuanzia masaa ya  asubuhi kuwa barabarani kutoka Pereira kuelekea Quibdo kama sehemu ya maandamano ya kitaifa # Ni fahari kuandamana
 Mpango wa maendeleo wa Taifa unahusisha mageuzi katika sekta mbalimbali kama elimu, nishati na kilimo.
 Wakati Duque  anadai    mpango huo utawasaidia na kuwainua wakolombia milioni 3.4 kutoka katika umaskini, wachambuzi wanaona kuwa utawafaidisha hasa makampuni binafsi.
 Viongozi wa wazawa minga   wanahusisha      sana na masuala ya mpango ambao unaweza kuleta changamoto kwenye haki zao bila kuwa na ushauri mzuri wa miradi ya maendeleo unaohusu mashamba yao.
 Wakati serikali imekubali kuongea na viongozi wa wazawa kuhusu mpango huo, makubaliano ya mwisho bado hayajafikiwa.
 Kutokana na gazeti la El Espectador, ukubwa wa ardhi ambao serikali inataka kutenga kwa ajili ya wazawa ni pungufu ya kile jamii inachohitaji:
-La diferencia entre lo que ofrece el gobierno de Iván Duque y lo que piden las comunidades indígenas para despejar la vía Panamericana es abismal.
-El Ejecutivo habla de 1 500 hectáreas para resolver las necesidades de todas las organizaciones que integran la minga, mientras que el requerimiento de los organizadores de la protesta es de 40 000 hectáreas
-Tafsiri: Tofauti kati ya kile ambacho serikali ya Iván Duque inatoa na kile ambacho jamii za wazawa wanakiomba kwa ajili ya kufungua barabara kuu ya Panamericana ni kidogo mno.
+Tofauti kati ya kile ambacho serikali ya Iván Duque inatoa na kile ambacho jamii za wazawa wanakiomba kwa ajili ya kufungua barabara kuu ya Panamericana ni kidogo mno.
 Rais anazungumzia keta 1,500 kutatua mahitaji ya taasisi zote ambazo zinaunda minga, ambapo mahitaji ya taasisi ambazo zinaandamana ni hekta 40,000.
 MAKUBALIANO YA AMANI
 Yalisainiwa kati ya Rais wa zamani Juan Manuel Santos na viongozi wa majeshi la ukombozi ya Kolombia ambalo ni jeshi kubwa la msituni , Makubaliano ya amani ya 2016  yalimaliza msuguano uliodumu kwa miongo mitano nchini humo na kutangazwa kusitishwa kwa mapingano na wanachama wa FARC ya zamani .
@@ -2036,21 +1957,15 @@ Hata hivyo, utekelezaji kamili wa makubaliano umetelekezwa kwa kuwa sekta nyingi
 Wakati, vikundi vidogo vidogo vyenye silaha vinaendelea katika maeneo ya nchi na wameanza vita vya kutawala maeneo yalikuwa yanatawaliwa na FARC.
 Matokeo yake idadi ya viongozi wa jamii za vijijini wanaouwawa imeongezeka tangu kusainiwa kwa makubaliano.
 Wakati tarakimu zinatofautiana kutegemea namna kiongozi wa jamii anavyotafsiriwa, ofisi ya mkuu wa itifaki  imetaja  kuwa viongozi wa jamii 460 wameuwawa kati ya mwaka 2016 na tarehe 31 Machi, 2019.
-Duque pamoja na mshirika wake mkuu, Rais wa zamani Álvaro Uribe, ni miongoni mwa wanaokashifu sana makuabaliano ya amani katika miezi ya hivi karibuni, amejaribu kudhoofisha nguvu ya chombo maalumu  (JEP) cha utekelezaji  wa mapatano ya amani kilichoundwa na mwanajeshi wa msituni na serikali.
+Duque pamoja na mshirika wake mkuu, Rais wa zamani Álvaro Uribe, ni miongoni mwa wanaokashifu sana makuabaliano ya amani.
+Katika miezi ya hivi karibuni, amejaribu kudhoofisha nguvu ya chombo maalumu  (JEP) cha utekelezaji  wa mapatano ya amani kilichoundwa na mwanajeshi wa msituni na serikali.
 Makundi mengi yamekasirika  kwa hatua hizo ambazo wanasema zinaweza kudidimiza makubaliano ya kweli.
 Watu walishirikishana sababu zilizowafanya waungane kwenye maandamano tarehe 25 Aprili  wanaenda kuandamana kwa kuwa nii kazi ya taifa ya pamoja kwa maisha
-#VamosAlParoPor la Minga Indígena, porque exijimos protección para los líderes sociales, los excombatientes y en respaldo a la JEP y a la implementación de los acuerdos de paz.
-Por mejores condiciones laborales para el magisterio y las centrales obreras.
-@C_Pueblos @cutcolombia pic.twitter.com/3wFAsyTeDZ
-Juan Camilo (@JUANCAELBROKY) April 25, 2019
-Tafsiri: Tunaenda kuandamana kwa ajili ya umoja wa wazawa kwa sababu tuanahitaji kuwalinda viom=ngozi wa jamii, wakulima wapiganaji katika kuunga mkono JEP na utekelezaji wa makubaliano ya amani.
+Tunaenda kuandamana kwa ajili ya umoja wa wazawa kwa sababu tuanahitaji kuwalinda viom=ngozi wa jamii, wakulima wapiganaji katika kuunga mkono JEP na utekelezaji wa makubaliano ya amani.
 Pia, kuwepo na mazaingira bora ya walimu na wafanyakazi wa serikali kuu.
-La Pulla ambayo ni redio kupitia  YouTube inayojihusisha na masuala ya kisiasa.
-Katika mgogoro huu unaokuwa ilifanya uchunguzi wa kina wa video yenye kichwa cha habari Hiki ndicho huwa kinatokea pale serikali inaposahau watu wake wakichunguza historia ndefu ya serikali kutowajali katika maeneo ya nchi, hasa idara ya  Cauca, Nariño, La Guajira, na Catatumbo.
+La Pulla ambayo ni redio kupitia  YouTube inayojihusisha na masuala ya kisiasa iliingia Katika mgogoro huu unaokuwa ilifanya uchunguzi wa kina wa video yenye kichwa cha habari Hiki ndicho huwa kinatokea pale serikali inaposahau watu wake wakichunguza historia ndefu ya serikali kutowajali katika maeneo ya nchi, hasa idara ya  Cauca, Nariño, La Guajira, na Catatumbo.
 Mwandishi wa habari anaeleza:
-La minga nos recuerda que eso no es el único lugar donde viven incumpliendo la gente y le hacen pistola cada vez que pueda.
-Vemos cuatro regiones del país que el estado ignora por completa.
-Tafsiri: Umoja unatukumbusha kwamba watu hawawezi kuishi bila kutekelezewa ahadi na serikali ikiwapiga muda wote inavyoweza.
+Umoja unatukumbusha kwamba watu hawawezi kuishi bila kutekelezewa ahadi na serikali ikiwapiga muda wote inavyoweza.
 Tunaona mikoa minne ambayo serikali imeisahau moja kwa moja.
 Hakuna suluhusho la kudumu lililotolewa kwa mahitaji ya waandamanaji, kwa hiyo maandamano yanaweza kuendelea katika miezi inayokuja.
 
@@ -2096,7 +2011,8 @@ Wakati wa majira ya joto, Kočner alikamatwa kwa makosa ya kifedha na alichunguz
 Sababu za mauaji ni kazi za uhandishi wa habari za mlengwa, mwendesha mashtaka maalum, ambaye hakutajwa jina kwa sababu za kiusalama, aliwaambia wanahabari hapo Machi 15, katika mkutano wa habari karibu na Bratislava.
 Maandamano huko Bratislava, Machi 9 2018 kwa sababu ya mauaji ya Ján Kuciak na Martina Kušnírová.
 Picha na Slavomír Frešo kupitia Wikipedia, CC BY-SA 4.0.
-Mashtaka yalipokelewa na Taasisi za Haki za Vyombo vya Habari na Mawakili wa Haki za Binadamu Huko twita, Mwanakamati ya Kulinda wanahabari Gulnoza Said alisema:
+Mashtaka yalipokelewa na Taasisi za Haki za Vyombo vya Habari na Mawakili wa Haki za Binadamu
+Huko twita, Mwanakamati ya Kulinda wanahabari Gulnoza Said alisema:
 Tunapokea habari kuwa mamlaka za Slovakia zimemshtaki mtuhumiwa aliyechora mpango wa kumuua mwanahabari za uchunguzi#JánKuciak.
 Hii ni hatua muhimu na ya kipekee katika mauaji ya wanahabari.
 Tunaamini mamlaka zitatimiza ahadi yake ya kuwaleta wahusika wote mbele ya sheria, hivyo basi kuwafanya wanahabari wote kuwa salama dhidi ya uhalifu nchini Slovakia.
@@ -2115,7 +2031,6 @@ Lakini ICJK iliweka wazi kupitia twita jinsi baadhi ya mamlaka hazitoi ushirikia
 Leo saa saba mchana, mkutano wa waandishi wa habari kuhusu upelelezi juu ya kifo cha Martina na Jan utafanyika katika ofisi za Mwendesha mashtaka maalum.
 Hatutakuwa pale.
 Kulingana na mashtaka, sisi sio wanahabari ni raia wadadisi tu ambao tunaweza kusoma tu gazetini.
-#justice4jan
 Kituo cha upeleleze cha Jan Kuciak (@icjkuciaka) March 14, 2019
 Pamoja na ukweli kwamba mamlaka sasa zimewashtaki wahusika wa mpango wa mauaji, wanahabari na mawakili wa habari wanasisitiza kuwa bado haujapatikana ufumbuzi wa maswali kuhusiana na kesi kama vile tetesi za kuhusika kwa mwanasiasa mkubwa.
 Hasa hasa mawakili wanania ya kufahamu waziri mkuu wa zamani Fico na Robert Krajmer, Mkuu wa idara ya kupambana na rushwa na kitengo cha uhalifu nchini Slovakia wanajua nini kuhusu mauaji.
@@ -2140,11 +2055,6 @@ Kipengele cha kisiasa katika ziara hiyo kinafunika umuhimu wake kidini.
 Kama mkuu wa nchi, Papa amepangiwa kuonana na waziri mkuu na rais anayemaliza muda wake , ambaye madaraka yake yatakoma siku tano baadaye.
 Wamakedonia wanaona ziara hii kama ishara ya kutambuliwa na nchi za Magharibi na kuinua jitihada za serikali kuiweka nchi karibu na uanachama wa NATO na Umoja wa Ulaya.
 Hisia hizi zinapatikana huko twita katika chapisho la jenerali mstaafu wa polisi Stojanche Angelov, ambapo alitoa maoni katika ziara ya maandalizi ya Mkuu wa Taasisi ya Usalama wa Raia ya Makedonia kwa Vatican.
-,        ,        !
-.
-!
-pic.twitter.com/zF2m2lvzL3
-Stojanche Angelov (@StojanceAngelov) April 17, 2019
 Asante kwa siasa za hekima na za kijasiri zilizoamuliwa na serikali hii, nchi yetu ndogo inasonga mbele kwa kasi kubwa.
 Mkurugenzi wa Taasisi ya Usalama wa Raia, Sasho Tasevski aliandaa usalama wa hali ya juu kwa ajili ya Papa Fransis atakapokuwa hapa Skopje.
 Stevo [Pendarovski] kwa urais!
@@ -2152,8 +2062,6 @@ Mwezi mmoja kabla ya safari ya Papa, habari za Vatican mfumo wa habari wa Holy S
 Ni lugha ya 34 inayopatikana katika chombo hicho.
 Askofu wa Skopje, Askofu Kiro Stojanov alisema hili ni tunda la awali la ziara ya kitume ya Papa Francis.
 Kabla ya safari ya Kitume ya#PapaFrancis kuelekea #MakedoniaKaskazini hapo Mei 7, @VaticanNews waongeza ukurasa unaoandikwa kwa Lugha ya Kimakedonia.
-https://t.co/2obxroAMcx
-Vatican News (@VaticanNews) April 8, 2019
 Septemba, Papa atatembelea Msumbiji, Madagascar na Mauritius.
 Global Voices imeandika mrejesho kutoka Msumbiji kuhusu ziara hiyo.
 
@@ -2164,8 +2072,6 @@ Video imeshirikishwa huko YouTube na Agence France Press kwa Kihispania.
 Aprili 5, kikundi cha WaColombia wapatao 20 na umoja wa wanaharakati umewasilisha ombi rasmi kwa mahakama ya Kimataifa ya makosa ya jinai (ICC) kupeleleza uhalifu kuhusu mauaji makubwa ya viongozi wa kijamii  nchini mwao.
 Umoja huo na wanaowaunga mkono wamewasilisha barua wenyewe huko The Hague baada ya kuandamana kwa juma moja huko Paris huku wakisimama katika miji tofauti tofauti ya Ufaransa na Ubelgiji katika njia zote walizokuwa wakiandamana.
 Picha inayofuata ni ya kusanyiko lililofanyika huko Paris:
-Homenaje a los 472 líderes sociales asesinados en Colombia, los caminantes de la Haya hicieron trapo con los nombres de los 472 #OjaláLeRinda al gobierno su política de seguridad y esta cifra no aumente #PorLosLideresMarchamosALaHaya #MarchamosALaHaya #YoApoyoLaMarchaALaHaya pic.twitter.com/nIkuFE33KO
-Hermisaurio  (@Hermisaurio2) April 2, 2019
 Heshima kwa ajili ya viongozi wa kijamii 472 waliouawa nchini Colombia, watembeaji kuelekea The Hague wametengeneza bango la kitambaa lenye majina yao wote.
 Tunaamini serikali ina mambo ya kutosha kuhusu sera yao ya ulinzi na idadi hii haitaendelea kuongezeka.
 Maandamano yalianzishwa na Umoja wa Wacolombia walio Uholanzi  na vikundi vingine kuunga mkono baadaye.
@@ -2181,15 +2087,14 @@ Moja kati ya maelekezo yaliyowekwa na Mkataba wa amani  ni kuwa FARC watakabidh
 Lakini FARC wameacha ombwe la mamlaka tangu waachie maeneo yao ya zamani ambayo kwa sasa yanashikiliwa aidha na vikundi vya wanamgambo na waasi ambao hawakubaliani na mchakato wa amani.
 Viongozi wa kijamii wanalengwa kwa sababu wanatetea jamii zao dhidi ya vikundi hivyo ambavyo mara nyingi huongozwa na wauza dawa za kulevya au wachimbaji haramu wa madini katika maeneo wanayoyashikilia.
 Kulingana na Carlos Guevara, ambaye anaongoza taasisi ya Somos Defensores (sisi ni walinzi),  mara nyingi viongozi wa kijamii huuawa wakiwa majumbani mwao, mbele ya familia zao na mara zote hukosa msaada kutoka kwa mamlaka wanapotafuta haki:
-las agresiones contra personas que se dedican a defender de los derechos humanos en Colombia [está al nivel de] una crisis humanitaria [] los están matando porque están impulsando quitar una economía considerada ilegal y que beneficia a los narcotraficantes y grupos armados.
-Y el Gobierno no está tomando medidas para proteger a esos líderes
 Ukatili dhidi ya watu waliojitolea kutetea haki za binadamu nchini Colombia umefikia viwango vya janga la kibinadamu, wamekuwa wakiuawa kwa sababu ya kupambana katoka katika uchumi ambao ni haramu na unaowanufaisha wauzaji wa dawa za kulevya na vikundi vya wanamgambo wenye silaha.
 Serikali haichukui hatua yoyote kuwalinda viongozi hao
 Wakati huo huo, Kongamano la kitaifa la taasisi za Kicolombia ilionesha jambo la msingi kuhusu mauaji hayo ambalo limekuwa likiwekwa pembeni: ukweli kwamba viongozi wengi wa kijamii wanatoka katika jamii zisizo na watu wengi.
 Kwa kuongezea, viongozi wanawake wanateseka zaidi kwa kuwepo kwa tabaka lingine la ukatili, kwa sababu wanahusishwa na aina nyingine za ukatili unaolenga jinsia.
 Mtandao wa twita nchini Colombia mara zote hutumia hashitagi ya #NosEstánMatando (wanatuua) kwa sababu ya kuzungumzia mauaji ya viongozi wa kijamii.
 Kwa maandamano ya kwenda ICC wanaharakati wanatarajia kuamsha mtazamo wa kimataifa kuhusu hatma yao.
-Wakati huo huo, idadi inaendelea kuongezeja tangu kuanza kwa mwaka 2019, viongozi 73 wameshatishiwa katika eneo la idara ya Boyacá pekee.
+Wakati huo huo, idadi inaendelea kuongezeja.
+Tangu kuanza kwa mwaka 2019, viongozi 73 wameshatishiwa katika eneo la idara ya Boyacá pekee.
 
 Makala 49
 Bruno Saraiva alishinda tuzo nchini Hong Kong | picha ilitolewa na Bruno (20.04.2019)
@@ -2207,27 +2112,15 @@ Kunisha msuli ni zoezi endelevu la ukinzani kutawala na kuendeleza misuli kwa ma
 Mtu anayejiunga katika shughuli hiyo anaitwa mtunisha misuli.
 Katika mashindano mtunisha misuli husimama katika mstari na kuonesha mikao mbalimbali ili jopo la waamuzi liwapime na kuwaweka katika matabaka ya uzuri kwa kuzingatia vigezo kama hali zao, misuli na ulinganifu.
 Saraiva alielezea furaha yake ya kushinda tuzo huko Hong Kong kwa kutuma ujumbe kupitia Instagram:
-Obrigado pela vitória senhor.
-É com muita alegria que tenho o prazer de anunciar e compartilhar com todos vocês a minha vitória na categoria Classic Physique e tendo vencido o overall na competição global clássica em Hong Kong.
-Tafsiri: Nakushukuru kwa ushindi, Bwana.
+Nakushukuru kwa ushindi, Bwana.
 Ninayo furaha kubwa ya kutangaza na kushirikiana nanyi kwa ushindi wangu katika kundi bora la watunisha misuli na kushinda ushindi wa jumla katika mashindano ya kimataifa ya kutunisha misuli nchini Hong Kong.
 Katika  ujumbe mwingine , Bruno alielezea vikwazo au ugumu aliokutana nao kabla ya kwenda nchini Hong Kong:
-Por favor meu amigo/a leia esta mensagem com muito carinho, porque essa é a mais pura realidade, não tenho vergonha de dizer e sei que muitos vão se emocionar: quando estava pra vir a Hong Kong pra competir andei em vários sítios batendo as portas pedindo apoio, falei com varios amigos que alguns eu tinha a certeza que pudessem ajudar, e as respostas de alguns eram:
-1.
-Bruno tu não vas conseguir ou seja não tens chances de ganhar e nem de ficar entre os melhores;
-2.
-Outros diziam que não me podiam ajudar porque seria deitar fora o dinheiro;
-3.
-Outros ate disseram Bruno você deve fumar muita maconha.
-Tafsiri; Tafadhali rafiki yangu soma ujumbe huu kwa ukarimu kwa sababu ni uhalisia.
-sina soni kuuelezea na najua wengi watahamaki sana.
+Tafadhali rafiki yangu soma ujumbe huu kwa ukarimu kwa sababu ni uhalisia.
+Sina soni kuuelezea na najua wengi watahamaki sana.
 Nilipokuwa nakaribia kuja Hong Kong kumalizia nilipita sehemu nyingi nikipiga hodi na kuomba msaada, niliongea na marafiki zangu wengi ambao wengi niliamini watanisaidia na majibu yao yalikuwa haya:
-1.
-Bruno, hutashinda na huna nafasi ya kushinda au kumaliza miongoni mwa wale bora;
-2.
-Wengine walisema hawawezi kunisaidia kwa sababu watakuwa wanapoteza fedha yao;
-3.
-Wengine hata waliniambia Bruno, lazima unavuta bangi.
+1.Bruno, hutashinda na huna nafasi ya kushinda au kumaliza miongoni mwa wale bora;
+2.Wengine walisema hawawezi kunisaidia kwa sababu watakuwa wanapoteza fedha yao;
+3.Wengine hata waliniambia Bruno, lazima unavuta bangi.
 
 Makala 50
 Ould Mkhaitir alihukumiwa kifo mwaka 2014 kutokana na maoni aliyoyatoa katika kipande cha habari kilichochapishwa mtandaoni.
@@ -2265,9 +2158,6 @@ Shawkan anapaswa kufanya hivi kila siku kwa miaka mitano baada ya kuachiliwa kwa
 Ninataka kuwa huru ili niweze kuyarudia maisha yangu ya kawaida, Shawkan aliiambia Sauti ya Ujerumani-Deutsche Welle Baada ya kuachiliwa kwake  katika kipindi chake cha uangalizi.
 Uko Twitter na Instagram, mwanahabari huyo amekuwa akitafakari na kushirikisha kuhusu maisha yake chini ya sheria hizi zinazombana na masaa yake ya uhuru kuanzia saa 12 asubuhi mpaka saa 12 jioni.
 Machi 31, aliandika kuhusu yeye kutembelea mapiramidi huko Giza.
-..
-.#pyramids #Egypt#halffreesom#from6to6 pic.twitter.com/wS1iGfoUxd
-Shawkan (@ShawkanZeid) March 31, 2019
 Mapiramidi yako kwa nyuma.
 Matembezi katika eneo la karibu na kituo cha uangalizi (kituo cha polisi ambapo anatakiwa kulala usiku) kwa sababu ya (ukosefu Wa) muda.
 Aprili 6 akitumia hashitagi ya _# (Nusu Uhuru) alibandika picha huko Instagram, aliyopiga akiwa kwenye pikipiki.
@@ -2285,7 +2175,8 @@ Katika bandiko jingine aliandika: Sijui namna nzuri ya kuelezea hisia za kumuona
 Lakini pia sijui jinsi ya kuuelezea ukatili wa kumuacha katikati ya mafunzo yake ili niwahi kwenye ukaguzi
 Dada yake Alaa, Mona Seif, ambaye pia ni mwanaharakati wa Haki za Binadamu, alifananisha masharti ya kifungo cha kaka yake kila siku usiku kama vile Bughudha ya faragha.
 Alaa hutakiwa kujipeleka kwenye Kituo cha polisi cha Dokki kila siku saa 12 jioni na humwachilia huru kila siku saa 12 asubuhi.
-Anaporipoti kituoni, humtenga na wengine katika kibanda kidogo cha mbao kilicho ndani ya kituo cha polisi na humfungia humo kwa masaa 12.
+Anaporipoti kituoni, humtenga na wengine katika kibanda kidogo cha mbao kilicho ndani ya kituo cha polisi.
+Humfungia humo kwa masaa 12.
 Hizi taratibu mbaya kabisa kuliko zile alizovumilia akiwa gerezani kwa miaka mitano.
 Alaa kwa sasa anatumia nusu siku yake kifungoni katika kituo cha polisi na anaitazama miaka hiyo mitano ya jinamizi hili
 Alaa ametambua kuwa kuna hatari ya kuongezewa muda wa kifungo gerezani ikiwa ataendelea kuzizungumzia taratibu hizo.
@@ -2293,10 +2184,6 @@ Katika usiku wa Aprili 9, maafisa wa usalama walimtishia kumrudisha gerezani iki
 Ahmed Maher, mwanaharakati za kisiasa aliyekuwa na harakati za vijana Aprili 6, alitumikia miaka mitatu gerezani kwa kufanya maandamano haramu.
 Aliachiliwa huru  Januari 2017 na aliwekwa chini ya uangalizi wa polisi kwa kipindi sawa na kile alichokaa gerezani.
 Huko Twitter, alielezea taratibu za wakati huo:
-.
-.
-https://t.co/vIARjRLS3K
-Ahmed Maher (@Ahmed_Maher08) April 4, 2019
 Chini ya uangalizi wa polisi, tulipokuwa tunalala palikuwa pachafu kuliko gerezani na kulikuwa na uholela uliopitiliza ingawa kulingana na sheria, hawakuwa na haki ya kutufungia kwenye vituo vya polisi au kutunyima watoto wetu, kazi zetu, masomo na maisha yetu ya kawaida.
 Kulingana na sheria, uangalizi unatakiwa uwe wa Kistaarabu na wa kkibinadamu lakini ni wazi kuwa msingi wake ni kiu ya kuumiza na kudhalilisha
 Kitendo hiki cha kuwafungia wafungwa wa zamani wakati wa usiku ni kutumia madaraka vibaya.
