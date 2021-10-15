@@ -3030,50 +3030,38 @@ Serikali ya Bashir ilitumia mbinu kandamizi kuzima maandamano hayo.
 Zaidi ya waandamanaji 40 wameuawa, mamia wakiwekwa vizuizini na kuteswa.
 Pamoja na mashambulizi ya kikatili, wanawake hawakuwa nyuma kwa kujiweka imara katikati ya moyo wa maandamano hayo.
 Hakuna kiwango cha vipigo au vizuizi vingeweza kutufanya tuache maandamano.
-Wanawake hawa na wengine kama hawa, wanaongoza maandamano makubwa dhidi ya Rais wa Sudan Omar Al Bashiri.#MaandamanoSudan l #SudanUprising pic.twitter.com/CWBr45Nbhn
-BBC News Africa (@BBCAfrica) April 6, 2019
+Wanawake hawa na wengine kama hawa, wanaongoza maandamano makubwa dhidi ya Rais wa Sudan Omar Al Bashiri.#MaandamanoSudan
 Leo nchini Sudan tunaandamana kwa ajili ya wanawake.
 Wanawake waliovifungoni.
 Wanawake Wanamapinduzi.
 Wanawake waliokandamizwa.
 Wanawake ambao ni wakimbizi.
 Wanawake walioharibiwa na vita, walibakwa, waliopigwa na kunyanyaswa.
-Wanawake ambao wanasauti kubwa na ya ujasiri kwa ajili ya nchi iliyojengwa kwa ajili ya wanaume.#__ #10 #_ #SudanUprising
-Qutoufy (@Qutoufy) February 10, 2019
+Wanawake ambao wanasauti kubwa na ya ujasiri kwa ajili ya nchi iliyojengwa kwa ajili ya wanaume.
 Waliongoza maandamano hayo wakiimba Zagrouda, namna ya ushangiliaji ambao hufanywa na wanawake katika ulimwengu wa Waarabu kuonesha furaha.
 Zagrouda (au wimbo wa wanawake) umekuwa ndio ishara ya kuita watu katika maandamano yoyotehuko mitaani kwa sasa.
 Watu wakisikia sauti hizi za wanawake, wanajua ni sauti ya mapinduzi na ndio muda wa kuanza maandamano.
-#Maandamano_Sudan pic.twitter.com/E2RasMe6tF
-Nandini (@nandi_naira) March 21, 2019
 Wakati wa mwezi Machi, wanawake walivaa nguo nyeupe za kitamaduni,  thobe katika kuwaunga mkono waandamanaji na haki za wanawake.
 Majukwaa ya mitandao ya kijamii yalijaa picha za waandamanaji wa kike wakiwa wamevaa nguo nyeupe, wakitumia hashitagi #Maandamanomeupe (#_)
 Heri ya Siku ya Wanawake Kimataifa
 .
 Familia ya Kitovu cha mabadiliko Khartoum
-.#IWD19 #kitovuchamabadiliko #kitovuchamabadilikokhartoum #MaandamanoMeupe pic.twitter.com/HnJicvsLDQ
-Kitovu cha mabadiliko Khartoum (@ImpactHubKRT) March 8, 2019
 Wanawake ambao huandamana mara nyingi hupambana na ukatili wa polisi.
 Mamlaka zimeshawafyatulia gesi za kutoa machozi na risasi za moto na walishawahi kuwatishia kuwabaka.
 Imeripotiwa wanawake wanapigwa, wanawekwa alama usoni na nywele zao kukatwa wakiwa ndani ya vituo vya mahabusu.
 Kila siku video mpya za wanawake wa Kisudani wakiwa wanapigwa na kudhalilishwa zimekuwa zikisambazwa katika mitandao ya jamii:
-Ukatili wa kutisha dhidi ya wazee na wanawake unaofanywa na polisi huko Kaskazini mwa Khartoum#MaandamanoSudan #Maandamano_Sudan pic.twitter.com/usTEXp1c3f
-MaandamanoSudan (@uprising_sudan) January 14, 2019
+Ukatili wa kutisha dhidi ya wazee na wanawake unaofanywa na polisi huko Kaskazini mwa Khartoum
 Lakini pia hashitagi hizo hizo zimekuwa zikitumika kuonesha ushujaa wa wanawake wa Sudan.
 #UngamkonoSudan
 Video ikimuonesha msichana wa Kisudani akirusha kopo la gesi ya machozi kuwarudishia vyombo vya Ulinzi.
 #WasichanawaKisudani na wanawake wameonesha ujasiri kinyume na matarajio wakati wa #MaandamanoSudan.
-#__ #14 pic.twitter.com/84XbERPwyg
-IUNGE MKONO SUDANI (@All4Sudan) March 14, 2019
 Wiki hii, picha na video kutoka kwenye maandamano imesambaa mitandaoni.
 Msichana wa miaka 22, mwanafunzi wa uhandisi anayeitwa Alaa Salah aliinua mkono wake wa kuume huku akiongoza umati wa watu kuimba Thawra (Kiarabu linamaanisha Mapinduzi).
 Video na picha zingeweza kuishia kuenea mtandoni lakini wanaharakati wa Sudani wameanza kumwita Kandaka, jina walilopewa malkia wa Wanubi wa Sudani ya kale.
 Simfahamu jina lake, lakini huyu mwanamke katika #Sudan anaongoza maandamano, akiwa amesimama juu ya gari na akihimiza kuhusu mabadiliko dhidi ya dikteta Bashir.
 Hapa akiimba Thawra (Mapinduzi).
-Kumbuka sauti hii: pic.twitter.com/0JG31Tp4rZ
-Joyce Karam (@Joyce_Karam) April 9, 2019
 Michoro iliyoshirikiswa katika mitandao ya kijamii imemgeuza Salah kuwa Mnara wa Uhuru wa Sudan.
-Siku moja nikajaliwa kupata #mtotowakike, ninataka awe kama Salah #AlaaSalah mwenye miaka 22 na mwanafunzi wa Uhandisi akiimba na kuongoza maandamano huko #Khartoum kwa sasa amekuwa alama ya #Mapinduzi #Sudan na amekuwa sauti ya #MapinduziYaWanawake wa #Sudan #UpendoWaWanawake #Amani pic.twitter.com/pWxqJvCKN1
-Houda Henniche (@HoudaHenniche) April 10, 2019
+Siku moja nikajaliwa kupata #mtotowakike, ninataka awe kama Salah #AlaaSalah mwenye miaka 22 na mwanafunzi wa Uhandisi akiimba na kuongoza maandamano huko #Khartoum kwa sasa amekuwa alama ya #Mapinduzi #Sudan na amekuwa sauti ya #MapinduziYaWanawake wa #Sudan #UpendoWaWanawake #Amani
 Kutoka mtaani mpaka Runingani
 Nyuma ya runinga, ni vikundi vya Facebook ambavyo vilishawahi kutawaliwa na mijadala kuhusu ndoa na michepuko, kwa sasa vinatumika kuonesha ukatili wa polisi.
 Wanawake katika makundi haya wametoa video na picha za mamlaka katili za ulinzi.
@@ -3083,7 +3071,7 @@ Mamlaka za Sudani zimejaribu kuzima mitandao ya kijamii nchini, lakini wanawake 
 Mapinduzi hayawezi kukamilika bila sanaa:
 Pitia bandiko hili huko Instagram
 Heri ya Siku ya wanawake Kwa wanawake wote na wanamapinduzi popote walipo .. Shikilieni   ; )
-Bandiko limeshirikishwa na  Alaa Satir (@alaasatir) on Mar 8, 2019 at 9:27am PST
+Bandiko limeshirikishwa na  Alaa Satir (@alaasatir)
 Wachoraji wa kike, wapiga picha na wanamuziki walitengeneza kazi za sanaa kupongeza waandamanaji mtaani.
 Walitumia sanaa kuenzi uvumilivu wa watu, hasa wanawake.
 Walitumia sanaa kutunza matukio na picha za wahanga na kuonesha uhalisia wa kuishi chini ya mamlaka kandamizi.
@@ -3110,45 +3098,19 @@ Picha ya mafuriko katika nchi ya Msumbiji, iliyotumwa kwenye mitandao ya kijamii
 Kimbunga aina Idai kinachosababishwa na hali ya kitropiki kimeacha uharibifu mkubwa na vifo baada ya kuzikumba nchi za kusini mwa Afrika za Msumbiji, Malawi na Zimbambwe.
 Hadi sasa inakadiriwa katika nchi hizo  watu 162 wamepoteza Maisha katika kimbunga hicho.
 Kimefanya uharibifu mkubwa karibu jiji lote la Beira, nchini Msumbiji.
-#UPDATE A cyclone that slammed into Mozambique last week has damaged or destroyed 90 percent of the city of #Beira, the Red Cross says, as the death toll in the country and neighbouring Zimbabwe rose to 157 https://t.co/vZYLj71n4A #CycloneIdai pic.twitter.com/LiWR2MWIsY
-AFP news agency (@AFP) March 18, 2019
-Shirika la Msalaba Mwekundu limesema, kimbunga ambacho kilichopiga Msumbiji wiki iliyopita kimeharibu asilimia 90 ya mji wa Beira, na vifo vinaendelea kuongeza katika nchi hiyo na nchi jirani ya Zimbabwe vimefikia hadi vifo 157
-Hii ni ramani ya mahali ambapo kimbunga hicho kimeharibu:
-Sofala, Manica, Zambezia and Inhambane provinces in #Mozambique have been hardest hit by #CycloneIdai
-Initial reports indicate significant damage to Beira and surrounding areas, including destroyed houses.https://t.co/dAj2RpQKar pic.twitter.com/1eTv9wdmso
-OCHA Southern & Eastern Africa (@UNOCHA_ROSEA) March 16, 2019
 Inakadiliwa  watu 89  wamekufa katika nchi ya Zimbabwe tu, huku kukiwa na hofu ya takwimu ya juu katika eneo la Manicaland ya wilaya  Chimanimani ambayo ipo kilometa  406 mMashariki mwa mji mkuu wa Harare, Zimbabwe huku nyumba na madaraja yakiwa yamebebwa na dhoruba iliyoanza Ijumaa.
-Some people still attempt to cross this bridge in Chimanimani #Zimbabwe despite the danger Cyclone #Idai pic.twitter.com/sVC6dDW6jr
-harumutasa/aljazeera (@harumutasa) March 17, 2019
 Kutokana na taarifa ya serikali zaidi ya watu 300 hawaonikani
 Umoja wa Mataifa katika Zimbabwe ulisema kuwa zaidi ya watu 8,000 wameathiliwa na mafuriko katika pande za mashariki mwa nchi hiyo.
 Inasikitisha Maisha ya wtu yamepotea na mali zimeharibiwa, Umoja wa Mataifa Zimbambwe ulituma ujumbe wake kupitia twiita:
-#UN in #Zimbabwe is on the ground in Chimanimani district and other areas to support ~8,000ppl affected by flooding & landslides caused by #Cycloneidai.
-Sadly, lives have been lost & properties destroyed.
-Please take heed to SMS & media alerts by Civil Protection
-UN Zimbabwe (@UNZimbabwe) March 16, 2019
 Kutokana na taarifa ya serikali, kimbunga Idai kilipiga sana mji wa Ngangu katika Chimanimani ambapo watu wengi wamepoteza maisha.
 Zaidi ya nyumba elfu moja ziliharibiwa kwa kuangukiwa na udongo na mawe.
 Kimbuka hicho kilitokea katika bahari ya Hindi na kuambatana na mvua nyingi iliyoanza kunyesha Msumbiji Alhamisi ikiambatana na upepo uliovuma kwa mwendokasi wa kilometa 160 kwa saa, inalipotiwa ulisababisha mawimbi ya bahari yenye ukubwa wa meta  kwenda juu.
-We have no idea how much damage Cyclone Idai has caused  human and otherwise  especially in the area around Beira.
-Roads are blocked, power lines are down, cell phones are offline.
-It could be much worse than we know so far.
-https://t.co/sOpkTvbZ6W
-Simon Allison (@simonallison) March 18, 2019
 Jeshi  na polisi vimetumika kusaidia katika uokoaji wa majeruhi.
-Kutokana na taarifa ya Waziri,  mvua imeacha kuonyesha na hali ya kuonekana wazi ni nzuri  na hii itasaidia jeshi la anga kutumia helikopita kuokoa watu zaidi,
-The Airforce of Zimbabwe and the Zimbabwe National Army are on the ground saving lives.
-President @edmnangagwa has deployed an Elite Team from the ZDF, CIO & other security forces to deliver aid & rescue victims of Cyclone Idai
-Military Engineers will also assist in rebuilding pic.twitter.com/5D35YO7RRx
-Kudzai Mutisi (@KMutisi) March 17, 2019
+Kutokana na taarifa ya Waziri,  mvua imeacha kuonyesha na hali ya kuonekana wazi ni nzuri  na hii itasaidia jeshi la anga kutumia helikopita kuokoa watu zaidi.
 July Moyo, Waziri wa mambo ya ndani alisema  kwamba miili inaonekana ikiwa inaelea katika mito na hakuna linguine linaloweza kufanyika kwa sasa.
 Barabara, madaraja na miundombinu ya simu kwa sasa vimekatika na mamia ya nyumba zimeharibika.
 Paolo Cernuschi, Mkurugenzi wa nchi wa shirika la msalaba mwekundu International (IRC) katika Zimbabwe alisema timu ya IRC katika Zimbabwe inajaribu kuzifikia jamii zilizoathiriwa na Kimbunga lakini uharibifu wa miundombinu ni mkubwa sana na timu hiyo imeshindwa kufika Chimanimani au Chipinge.
 Kuna matengenezo ya haraka ya barabara yanaendelea, kwa hiyo tutajaribu tena kesho Asubuhi, alisema Cernuschi.
-Our @theIRC teams here in #Zimbabwe are trying to reach the communities affected by #CycloneIDAI but the infrastructure damage is severe and our teams couldnt reach Chimanimani nor Chipinge.
-Urgent road repairs in progress, so well try again in the morning.
-pic.twitter.com/82VZATHION
-Paolo Cernuschi (@PaoloCernuschi) March 17, 2019
 Siku ya Jumapili asubuhi, serikali ya Zimbambe ilikutana na Kamati ya wizara zote, na baadayae iliunda Kamati ndogodogo 10 zitakazoshughulikia maeneo yaliyoharibiwa sana.
 Kamati zitashughulikia maeneo ya chakula, rasilimali fedha, usalama na malazi, usafiri, maji na usafi wa mazingira.
 Afisa wa Idara ya huduma za hali ya hewa alisema kwamba kimbunga kilidhoofishwa na kuhamia kutoka mashariki kuelekea maeneo ya kusini ya Zimbabwe.
@@ -3170,21 +3132,12 @@ Kutokana na Tume Huru ya Uchaguzi,  Tshisekedi  alipata asilimia 38.5  ya kura w
 Mahudhurio ya wapiga kura yalikuwa ni asilimia 47.6 chini ya nusu ya wapiga kura wote.
 Baada ya kutangazwa, shangwe za sherehe zilianzia makao makuu ya chama katika mji mkuu Kinshasa.
 Miongoni mwa marais wa nchi za Afrika; Rais wa Afrika ya Kusini Cyrill Ramaphosa alimpongeza Tshisekedi na Rais wa Jamhuri ya Muungano wa Tanzania John Magufuli alituma ujumbe wake wa kumpongeza kupitia twiita.
-Following the judgement by the High Constitutional Court.
-I congratulate HE.
-Felix Tshisekedi on his election as President of the DRC.
-While congratulating all the Congolese, I beseech you to maintain peace and affirm my commitment to furthering our historic and brotherly ties.
-Dr John Magufuli (@MagufuliJP) January 20, 2019
 Ingawa kulikuwa na kutokukubaliana na matokeo ya uchaguzi miongoni mwa wanachama wa Umoja wa Afrika, Umoja huo (AU) umempongeza na kumkaribisha Tshisekedi ambaye alitoa hotuba yake ya kwanza kwa umoja huo tarehe 10 Februari kushukuru ukaribisho.
 Lakini miezi miwili baada ya uchaguzi huo wa mgogoro, wengi wanahofia kwamba kubadilishana madaraka kulifanywa kwa umakini kuhakikisha kwamba  Kabila anaendelea kuwa madarakani  kupitia makubaliano aliyoyafanya na Tshisekedi.
-I welcome U.S sanctions on individuals for their responsibility in fabricating electoral results.
-In a spirit of consistency, I encourage the U.S to extend sanctions to those who willfully benefited from the very corruption it is sanctioning and to those who orchestrated it.
-#DRC
-Martin Fayulu (@MartinFayulu) February 23, 2019
 Tshisekedi ni nani?
 Félix Antoine Tshilombo Tshisekedi alizaliwa Léopoldville tarehe  13 Juni, 1963.
 Baba yake ni Etienne Tshisekedi, ambaye alitawala sana siasa za Kongo kama mwanzilishi wa chama cha  UDPS  ambacho ni chama kikubwa cha upinzani.
-Kutokana na siasa za upinzani za baba yake, familia uliwekwa   uhamishoni kwa nguvu katika mji walimokuwa wanaishi wa Kasai miaka ya 1980.
+Kutokana na siasa za upinzani za baba yake, familia uliwekwa   uhamishoni kwa nguvu katika mji walimokuwa wanaishi wa Kasai miaka ya 1980. 
 Baadaye Tshisekedi alisafiri na baba yake kuelekea Ubelgiji , ambapo alihitimu stashahda ya uhasibu mwaka 1987.
 Kati ya miaka ya 1991-2001 alipata shahada mbalimbali na kufanya kazi katika idara ya masoko.
 Wakati yuko Ubelgiji aliingia kwenye siasa kama baba yake na akawa Katibu wa Taifa wa mahusiano ya Kimataifa wa chama cha UDPS  mwaka 2008.
@@ -3218,7 +3171,6 @@ Tunaweza kushuhudia mwanzo wa siasa za mihili ya dola kudhibitiana ili kuzuia ma
 Yajayo ya Jamhuri wa Kidemokrasia ya Kongo Yanakwazwa na historia yake mbaya
 Jamhuri ya Kidemokrasia ya Kongo ilipata uhuru mwaka 1960.
 Tangu hapo, wananchi wamekuwa wahanga wa ukiukwaji wa haki za binadamu kama vile mauaji holela, mateso na ukiiukwaji wa kijinsia pamoja na ubakaji na utekaji.
-.
 Mradi wa kukusanya taarifa ya migogoro Uppsala ilihitimisha kuwa serikali ya Laurent kabila ilishuhudia miaka mitatu yenye kiwango cha hali ya juu ya vifo vilivyosababishwa na migogoro, mwaka 1998 kulikuwa na vifo vipatavyo 13,884, mwaka 1999, vifo 8,019 na mwaka 2000  kulikuwa na vifo 7,537.
 Je, serikali mpya ijayo ya Felix Tshisekedi itamaliza machafuko au itayachochea?
 Tusubiri.
@@ -3235,25 +3187,19 @@ Mbinu yao isiyo ya kawaida katika kufanya uandishi wa habari za kiuchunguzi zili
 Hivi karibuni Divela alihusika katika habari ya kiuchunguzi ambayo iliweka wazi habari juu ya Rais wa zamani wa shirikisho la mpira la Ghana Kwesi Nyantakyi ambaye pia alikwa ni mjumbe wa Halmashauri kuu ya FIFA ya kutuhumiwa kupokea rushwa ya dola za kimarekani 65,000.
 Baraza la maamuzi la FIFA lilimuhukumu Nyantakyi  Maisha  kutojishughulisha na masuala yanahusu mpira wa miguu.
 Anas alitangaza kuuawa kwa Divela kupitia twita ambayo iliambatana na video inayoonesha mjumbe wa bunge la Ghana Kennedy Agyapong akiongea mbashara kwenye runinga mwezi Mei 2018:
-Sad news, but we shall not be silenced.
-Rest in peace, Ahmed.
-#JournalismIsNotACrime #SayNoToCorruption pic.twitter.com/Gk2Jdgo6Sn
-Anas Aremeyaw Anas (@anasglobal) January 17, 2019
 Mwezi  September 2018, Divela aliiambia Kamati ya Kulinda Waandishi wa Habari  kupitia  WhatsApp kwamba baadhi ya watu wenye nguvu  katika nchi ya Ghna walikuwa wanamtafuta ili kumdhuru baada ya sura yake kuonekana kwenye kituo cha runinga cha NET 2 TV mwezi Mei 2018 na Agyapong.
 Tangu sura yangu ionekane na umma ulinichukia [] watu wengi wamejaribu [kunishambulia].
 Vitendo hivi vya jinai juu yetu ni vya watu ambao [] wana nguvu katika Ghana na wanaweza kufanya lolote na kutokamatwa.
 Ni kweli, ilizungumzwa katika baadhi ya mitaa kwamba mtu yule yule ambaye alichapisha [sura yangu] alisema alikuwa anafanya lolote liwezekanalo aniue  .
 Maneno ya mbunge yana nguvu
 Agyapong, ambaye ni mwanachama wa chama tawala kipya cha Wazalendo, amekuwa mbunge kwa miaka 19.
-Katika mapambano yake dhidi ya rushwa, Agyapong anajulikana kwa kutengeneza mashtaka ya rushwa dhidi ya wanasiasa ambao ni wala rushwa.
-hasa wale wa ndani ya chama chake .
+Katika mapambano yake dhidi ya rushwa, Agyapong anajulikana kwa kutengeneza mashtaka ya rushwa dhidi ya wanasiasa ambao ni wala rushwa hasa wale wa ndani ya chama chake .
 Mjadala ulipamba moto hasa kuhusu maoni ya Agyapong aliyoyatoa mbashara kwenye runinga kama ndiyo yamepelekea kuuawa kwa Divela:
 Kijana huyo ni hatari sana.
 Anaishi hapa Madina.
 Kama ukikutana naye mahali, pasua masikio yake.
 Kama akitokea maeneo haya, nawaambia, mpigeni.
-Agyapong alithibitisha matendo yake na alisema maoni yake hayakumaanisha kusababisha madhara wala mvutano.
-Divela  aliyasema hayo akiwa na mfanyakazi anayefanya kazia na Agypong.
+Agyapong alithibitisha matendo yake na alisema maoni yake hayakumaanisha kusababisha madhara wala mvutano. Divela  aliyasema hayo akiwa na mfanyakazi anayefanya kazia na Agypong.
 Katika  video nyingine  , Agyapong anapendekeza kwamba Anas ni mshukiwa  mkuu katika kifo cha Divela.
 Aliahidi kulipa  zawadi ya fedha ya Ghana ipatayo 100,000  (about sawa na US dollars)  kwa yeyote ambaye atakayewapata wauwaji wa Divela iwe uthibitisho kuwa hakushiriki katika mauaji yake.
 Agyapong aliondoka Ghana baada ya jeshi la polisi kumhoji   alikanusha vikali  kuwa haikimbii Ghana au hakuthibishwa kuwa mshukiwa.
@@ -3300,14 +3246,9 @@ Mabadiliko hayo ni matokeo ya makubaliano mazito na yaliyochukua muda marefu  ka
 Wakati Rais hajaondoa sheria ambayo itaendana na mabadiliko haya, hata hivyo inaaminika kuwa atafanya hivyo.
 
 Makala 76
-Katika hotuba yake ya mwaka kwa taifa, Vladimir Putin amewaahidi warusi mtandao wnye kasi zaidi na wakuaminika.
-wataalamu wanasema Kuwa hakika hautatolewa bure.
-// TASS/kremlin.ru under CC2.0
+Katika hotuba yake ya mwaka kwa taifa, Vladimir Putin amewaahidi warusi mtandao wnye kasi zaidi na wakuaminika wataalamu wanasema Kuwa hakika hautatolewa bure.
 Februari 20, Vladimir Putin alihutubia bunge la urusi katika  hotuba yake ya mwaka kwa taifa.
 Ameahidi uwekezaji mkubwa katika miradi ya kijamii na miundombinu hasa kwenye msingi wa teknolojia ya habari:
-,   ,      .
-.
-,      , 5G.
 Mwaka huu lazima tuwe na mpango madhubuti wa kuendeleza miundombinu ya kiuchumi ya kidigitali, ikiwemo mitandao ya simu, na utunzaji wa taarifa na kasi kubwa ya usambazaji.
 Hapa pia, tunapaswa kuangalia mbele.
 Kazi ya miaka michache ijayo ni kutoa upatikanaji wa mtandao wenye kasi kubwa kwa wote na kuanza kutumia mitandao ya simu yenye nguvu ya masafa ya 5G.
@@ -3320,8 +3261,6 @@ Agora inasema njia zaidi ambayo imekuwa ikitumika ni sheria na kanuni ambazo zin
 Zaidi ya mara moja, watoaji wa huduma za mtandao walilazimishwa kuzuia upatikanji wa tovuti za kuchapisha habari juu kesi mahakamani, au kuweka wazi rushwa serikalini.
 Katika kesi iliyohusu kigogo mkubwa watoa huduma walilazimika kuzuia upatikanaji wa tovuti ya Alexey Navalny, ambaye ni mwanaharakati mashuhuri wa upinzani na mpiga kampeni ya kuzuia rushwa.
 Ripoti ya Agora inasema:
-,      ,        .
-,  , ,
 Mamlaka zimeanzisha njia za kuzuia huduma mtandaoni ambazo wanaziona kama vichocheo vya maandamano ya watu wengi,inakuwa ni sharti la kufuata sheria za nchi wakati wanapotekeleza ukandamizaji huu.
 Kazi za kulinda na kudhibiti maudhui mtandaoni kufanywa na taasisi binafsi haipunguzi tu  uhalibifu, bali pia huhakikisha uendeshaji na utumiaji mzuri.
 Pia Agora inaona kuna ongezeko kubwa la vikwazo juu ya kutuma maudhui kwa mtu: jumla ya maudhui 662,842 yalidhibitiwa mwaka 2018, ukilinganisha na maudhui 115,706 katika mwaka 2017.
@@ -3337,7 +3276,7 @@ Taarifa ya Google inaonesha kuwa maombi ya serikali ya Urusi ya kuondoa maudhui 
 Pongezi kwa Google, kwa kutokubalina na maombi 94 ya serikali ya Urusi ambayo yaliainishwa kama ukosoaji kwa serikali.
 Pia Google hutoa baadhi ya mifano ya maudhui wanayoyaondoa, na sehemu muhimu ambayo ni hatarishi kwa umma: matangazo kwa ajili ya kamari haramu ambayo hufedhehesha watu waliochuma ruba (sarafu ya urusi) kwa taabu, propaganda mbaya ya ubaguzi,  masoko ya madawa ya kulevya mtandaoni yanayouza madawa hatari, n.k..
 Lakini Google walikubaliana na maombi ya kuondoa video za wanaharakati  waliokuwa wakiitisha maandamano dhidi ya rushwa kwa sababu maandamno haya yalitamkwa kiholela kuwa yamezuiliwa na kwa hiyo ni uvunjaji wa sheria ya katazo iliyolenga kukandamiza upinzani wa umma.
-Twitter, Google and Facebook wote wameonesha nia ya kuondoa maudhui au kutopatikana kwa watumiaji wa Urusi  kutokana na kupokea maombi kutoka kwenye mamlaka ya Urusi ili kutii sheria za nchi.
+Twitter, Google na Facebook wote wameonesha nia ya kuondoa maudhui au kutopatikana kwa watumiaji wa Urusi  kutokana na kupokea maombi kutoka kwenye mamlaka ya Urusi ili kutii sheria za nchi.
 Kuna dalili kidogo sana kampuni hayo kuangalia chanzo cha kizuizi kwa baadhi ya sheria hizi au hata kupima maombi haya dhidi ya katiba ya Urusi.
 Taarifa nyingine iliyotolewa na jamii inayolinda mtandao  (OZI) inaonesha giza nene katika utabiri wake: Ina kichwa cha habari Mwaka Mpya usio na matumaini, na inaonesha anguko kubwa na la muda mrefu la uhuru wa kutoa maoni mtandaoni tangu kuanza kwa vigezo mwaka 2016.
 OZI inaorodhesha matukio saba ambayo yaliadhiri uhuru wa kuongea mwezi Januari: kuanzia baadhi ya vifungu vipya vya sheria hadi mashauri ya kihistoria, kama vile mashtaka  ya Yana Antonova, bigwa wa upasuaji wa Watoto wa Krasnodar, ambaye alishtakiwa kwa kutumiwa video na Open Russia, mtandao wa kijamii wa kiharakati uliotangazwa kuwa taasisi isiyofaa.
@@ -3350,7 +3289,6 @@ Hata hivyo miswada yote ilipitishwa iliposomwa kwa mara kwanza, shukrani kwa cha
 Inaonekana serikali ya Urusu inatumaini nguvu yake ya kudhibiti shughuli za mtandaoni-kiasi kwamba sasa inawahakikishia utoaji na upatikanaji wa mtandao kwa Warusi wote, bila kuhofia mabaya yanayoweza kutokea.
 
 Makala 77
-Jolovan Wham, kupitia Twitter.
 Ujumbe ufuatao uliandikwa na Holmes Chan na kuchapishwa na vyombo vya habari vya Hong Kong tarehe 21 ya mwezi Februari, 2019.
 Toleo lililohaririwa lilichapishwa tena na Global Voices chini ya maudhui ya mkataba wa ushirikiano.
 Jolovan Wham, mwanaharati Msingapore amehukumiwa kifungo cha siku 16 kwenda jela kwa kukataa kulipa faini kwa kosa la kufanya mazungumzo ya wazi na Joshua Wong, mwanaharakati wa kidemokrasia kupitia mtandao wa Skype mwaka 2016.
@@ -3417,8 +3355,7 @@ Vyama vikuu vya siasa vya Naijeria vya Chama cha Maendeleo kwa wote na Chama cha
 Raisi wa Nigeria Muhammad Buhari.
 Picha ya Creative Commons
 Muhammadu Buhari
-Mgombea anayemaliza muda wake kutoka chama cha Maendeleo kwa watu wote.
-Buhari alishinda kiti cha Uraisi mwaka 2011 baada ya kumshinda rais wa zamani Goodluck Jonathan.
+Mgombea anayemaliza muda wake kutoka chama cha Maendeleo kwa watu wote. Buhari alishinda kiti cha Uraisi mwaka 2011 baada ya kumshinda rais wa zamani Goodluck Jonathan. 
 Kuibuka kwa Buhari madarakani kulitokana na uadilifu wake na kudhaniwa kuwa angeweza kutokomeza rushwa na wanamgambo wa Boko Haram.
 Hata hivyo, chini ya uongozi wake Nigeria imeendelea kushuhudia uvunjifu wa amani na migogoro baina ya wafugaji na wakulima ambapo wafugaji kutoka kaskazini wamesogea kusini zaidi wakitafuta ardhi ya malisho.
 Pia, haki za binadamu zimevunjwa sana katika utawala wake, ukatili na rushwa vimeonekana katika ngazi za juu za serikali.
