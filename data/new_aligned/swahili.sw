@@ -2258,15 +2258,10 @@ Wakabi ni mtendaji mkuu  wa muungano wa sera ya TEHEMA kimataifa Mashariki na ku
 Wakabi alifukuzwa na kupelekwa Uganda baada ya masaa kadhaa ya mahojiano ambapo alinyimwa kuwasiliana na mwanasheria.
 Wanasheria kutoka muungano wa watetezi wa haki za Binadamu Tanzania walijaribu kumtetea lakini waliambiwa tu kwamba Wakabi anarudishwa Uganda kwa sababu ya maslahi ya taifa:
 UPDATE: Baada ya masaa ya mahojiano, Dkt.
-Wakabi amerudishwa  Uganda Jioni hii this evening.
 Hata hivyo, wanasheria walishindwa kujua chanzo cha kuzuiliwa na kufukuzwa.
 Waliaarifu kuwa mamlaka zilikataa asiingie nchini Tanzania kwa sababu ya maslahi ya taifa.
 pic.twitter.com/FfEPJTMiz2
 CIPESA (@cipesaug) April 25, 2019
-Baada ya masaa ya mahojiano, Dkt.
-Wakabi amerudishwa Uganda Jioni hii.
-Hata hivyo, wanasheria walishindwa kujua chanzo cha kuzuiliwa na kufukuzwa.
-Waliaarifu kuwa mamlaka zilikataa asiingie nchini kwa sababu ya maslahi ya taifa
 Ingawa tatizo liliisha baada ya masaa machache lakini lilisababisha fadhaa na mshangao mkubwa kwa wanasheria wa haki za binadamu ambao wameonesha wasiwasi juu ya namna Tanzania inavyoshughulikia wanaharakati na waandishi wa habari.
 Novemba mwaka jana Angela Quintal na Muthoki Mumo wote wakiwa wajumbe wa Kamati ya kutetea waandishi habari walishikiliwa  na pasipoti zao kwa masaa kadhaa Dar es Salaam, Tanzania.
 Je, Tanzania ina mpango wa makusudi wa kunyamanzisha watetezi wa haki za binadamu kwa kuwanyanyasa ili kuwazuia kuja nchini?
@@ -2274,9 +2269,6 @@ Mwishoni mwa mwaka jana alikuwa @pressfreedoms @angelaquintal and @muthokimumo s
 Hii haiwezi kutunyamanzisha!
 #FreeDrWakabi
 Felicia Anthonio (@FelAnthonio) April 25, 2019
-Je, Tanzania ina mpango wa makusudi wa kunyamanzisha watetezi wa haki za binadamu kwa kuwanyanyasa ili kuwazuia kuja nchini?
-Mwishoni mwa mwaka jana alikuwa sio Dkt Wakabi?
-Hii haiwezi kutunyamanzisha!
 Shirika la haki za binadamu la Human Rights Watch lilieleza kuwa Tanzania chini ya uongozi wa Rais John Magufuli limeshuhudia  kushuka kwa hali ya juu katika uhuru wa kutoa maoni, kukusanyika na kukutana.
 Mwaka  2015, Jamhuri ya Tanzania ilitangaza rasmi sheria ya makosa mtandaoni .
 Ndani ya mwaka ambao sheria hiyo ilipitishwa   watanzania 14  walikamatwa na kushitakiwa kwa sheria hiyo kwa kumtukana Rais kupitia mitandao ya kijamii.
@@ -2292,8 +2284,7 @@ Ili kusaidia kufanikisha hilo, hakusita kushawishi wafuasi wake kufanya vurugu.
 Katika uchambuzi uliochapishwa na gazeti la Horizon Guinée, mwandishi wa bahari Sonny Camara anayeishi Conakry (mji mkuu wa nchi hiyo), alilipoti sehemu za hotuba ambayo Rais alihutubia tarehe 24 Machi, 2019:
 Nitakuwa ninavua kofia yangu ya Urais.
 Nitavaa kofia ya uanaharakati kwa sababu sasa niko tayari kupambana dhidi  ya watu hawa [katika upinzani] [] mwe tayari kukabiliana [] Hakuna mtu yeyote katika Guinea atakayenizuia kuwauliza watu wangu wanachokitaka  [kwa ajili ya nchi] [] Kama [Upinzani] wanataka kushinda kirahisi, muwe tayari kuwashinda ili wajue hamuogopi kitu chochote.
-Condé alichaguliwa kuwa Rais wa Guinea mwaka 2010.
-Ni Rais wa kwanza kuchaguliwa kidemokrasia katika historia ya nchi hiyo.
+Condé alichaguliwa kuwa Rais wa Guinea mwaka 2010. Ni Rais wa kwanza kuchaguliwa kidemokrasia katika historia ya nchi hiyo.
 Hata hivyo, uchaguzi wa mwaka 2010 ulikuwa na malalamiko kutoka kwa waangalizi wa uchaguzi ikiwepo kituo cha Carter ambapo ililipotiwa kuwa karibu kura milioni moja zilipotea katika uhesabuji wa mwisho.
 Condé alichaguliwa tena mwaka 2015 kwa asilimia karibu 58 ya kura zote.
 mwaka 2016.
@@ -2331,10 +2322,6 @@ Kila mahali nchini Guinea, Watu wanaongea wakipinga mihula mitatu.
 Kama ilivyokuwa mapema katika Coyah [Mkoa wa Kindia ambayo ni makao makuu ya polisi] vijana wanne walilipotiwa kukamatwa kutokana na maelekezo ya wafuasi wa mihula mitatu.
 Hakuna kitisho kitasimamisha wananchi wa Guinea katika suala la Demokrasia.
 Mtumiaji mashuhuri wa Facebook , Alimou Sow alichagua kejeli  kama njia ya kutoa maoni kuhusu suala hili, akidokeza upepo mkali ambao uliipiga Conakry usiku wa tarehe 2 Aprili:
-Il paraît que dans la mythologie grecque Eole était le dieu des vents (d'où l'adjectif éolien).
-Alors à Eole la Guinée cette nuit pour emporter, non pas seulement des affiches démagogiques mais également ceux qui les posent et promeuvent le 3ème #Nambara [Problèmes].
-Autant en emporte le vent.
-Bon #ennui
 Inaonekana kwamba katika Ugiriki mythology Aeolus alikuwa mungu wa upepo (ambapo Aeolian ni kivumishi).
 Kwa hiyo, Aeolus wa Guinea alikwenda usiku ule kuvuma, sio tu kwenye picha cha mfitini, bali hata wale walioiweka picha hiyo na kushabikia muhula wa tatu ni matatizo.
 Ameenda na upepo.
@@ -2347,9 +2334,8 @@ Emília Nhalevilo, Mkuu wa chuo kikuu cha Púnguè.
 Picha na  Emília Nhalevilo, na imetumiwa kwa idhini .
 Mwezi  Machi 2019, Profesa wa Msumbiji Emília Nhalevilo aliteuliwa kuwa mkuu wa chuo kikuu kilichoanzishwa hivi karibuni cha Púnguè , hivyo kuwa mwanamke wa kwanza kabisa kuongoza chuo kikuu cha umma katika  nchi hii ya kiafrika.
 Aliteuliwa  na Rais Filipe Nyusi, lakini maamuzi hayo juu ya chuo hicho kilichoanzishwa hivi karibuni yalitangazwa na halmshauri ya mawaziri  tarehe 29 mwezi Januari.
-Kisheria, Nhalevilo ataendelea kuwepo ofisini kwa muda wa miaka minne.
-Nhalevilo ambaye ni Daktari alizaliwa Nampula ambalo ni jimbo maarufu Msumbiji.
-Ana shahada ya uzamili ya Elimu kutoka chuo kikuu cha Perth, Uastralia na shahada ya elimu ya sayansi kutoka chuo kikuu cha Pedagogical  (UP).
+Kisheria, Nhalevilo ataendelea kuwepo ofisini kwa muda wa miaka minne. 
+Nhalevilo ambaye ni Daktari alizaliwa Nampula ambalo ni jimbo maarufu Msumbiji. Ana shahada ya uzamili ya Elimu kutoka chuo kikuu cha Perth, Uastralia na shahada ya elimu ya sayansi kutoka chuo kikuu cha Pedagogical  (UP).
 Kuanzia mwaka 2005 hadi 2007, alifanya kazi kama Profesa katika Chuo kikuu cha Teknolojia cha Curtin kilichopo Australia.
 Mwaka 2008, Nhalevilo alikuwa mkuu  wa idara ya kemia pale Chuo kikuu cha Pedagogical, na halafu akateuliwa kuwa mkurugenzi msaidizi  wa kituo cha mafunzo ya Msumbiji na elimu ya dunia, kituo cha utafiti katika taasisi hiyo.
 Mwaka 2017, alikuwa mjumbe wa program ya matembezi ya wanafunzi ya Fulbright  katika shule ya utamaduni, elimu na Maendeleo ya rasilimali watu cha chuo kikuu cha New York, Marekani.
@@ -2396,15 +2382,10 @@ Ninawakabidhi katika rehema za Mungu wote walioathiriwa pamoja  na familia zao.
 Balaa lilisababishwa na mojawapo ya vimbunga vibaya sana vilivyowahi kupiga katika eneo la kusini, lilipiga mji wa Beira katikati ya Msumbiji tarehe 14, Machi na halafu katika nchi jirani za Zimbabwe na Malawi.
 Zaidi ya watu 300 walikufa katika nchi hizi mbili.
 Tangu balaa hilo,  nchi ipo katika hali ya hatari ambalo limeifanya serikali kupitia tena kalenda ya uchaguzi na kuahirisha muda wa uandikishaji wa wapiga kura.
-Katikati ya balaa, serikali inajaribu kupanga namna ya kuwaokoa kwa kuwatafutia makazi ya kuishi maelfu ya watu baada ya madhara yaKimbunga Idai.
-Rais Nyusi alitoa taarifa mbashara kwa taifa kutangaza kwamba Papa anatazamia kutembelea Msumbiji mwezi Septemba.
+Katikati ya balaa, serikali inajaribu kupanga namna ya kuwaokoa kwa kuwatafutia makazi ya kuishi maelfu ya watu baada ya madhara yaKimbunga Idai. Rais Nyusi alitoa taarifa mbashara kwa taifa kutangaza kwamba Papa anatazamia kutembelea Msumbiji mwezi Septemba.
 Kutoeleza vizuri ni vibaya.
 Zenaida Machado (@zenaidamz)
 Ukweli ni kwamba uchaguzi kufanyika baada tu ya kutembelewa na Papa kumeibua maswali kutoka kwa wananchi ambao wanaona kuwa kutakuwa na athari katika mchakato wa kupiga kampeni:
-Eh claro que a vinda do Papa Francisco em Setembro joga a favor da #Frelimo e Filipe #Nyusi.
-Directa ou indirectamente a visita será politicamente aproveitada.
-Seria bom que fosse adiada para Novembro, isto eh, depois da confusão das eleições gerais agendadas para 15 de Outubro.
-Alexandre (@AllexandreMZ) 27 mars 2019
 Ni wazi kuwa ujio wa Papa Francis mwezi Septemba unampendelea Filipe Nyusi na Frelimo.
 Matembezi yake yanaweza kumfaidisha kisiasa  moja kwa moja au la.
 Ingekuwa vizuri kama ungeahirishwa hadi mwezi Novemba baadala ya mkanganyiko wa uchaguzi mkuu ulipangwa tarehe 15 Oktoba.
@@ -2417,7 +2398,7 @@ Kama kujibu hilo, mwandishi wa habari wa Colombia aliye nyuma ya chaneli ya YouT
 Kati ya mambo mengine, video hiyo inaonesha vipengele vya majanga na takwimu za vipindi vibaya zaidi katika historia ya Colombia kama vile kuuawa kwa mkurugenzi wa zamani wa  El Espectador, Guillermo Cano Disemba 17, 1986, na shambulizi la bomu  karibu na ofisi zao Disemba 1989.
 Ni kawaida katika nchi nyingine kuona watu na fulana zake, wakihamasishwa na tamthilia kutoka Netflix kama vile Narcos.
 Na watu wanapokuja Colombia hulipa fedha nyingi sana ili kwenda kutalii na kuona na kufurahia mafanikio yake makubwa.
-[] Shujaa huyu aliyehamasisha watu wengi kukimbilia fedha za biashara ya dawa za kulevya [kama] njiwa wanavyokimbilia punje za mahindi na kusababisha uchumi wa nchi kuwa chungu kidogo cha kutakatisha fedha kutoka katika uuzaji wa dawa za kulevya.
+Shujaa huyu aliyehamasisha watu wengi kukimbilia fedha za biashara ya dawa za kulevya [kama] njiwa wanavyokimbilia punje za mahindi na kusababisha uchumi wa nchi kuwa chungu kidogo cha kutakatisha fedha kutoka katika uuzaji wa dawa za kulevya.
 Shujaa huyu alikuwa sio rafiki wa watu: alifanya mashambulizi 623, aliwaachia raia 1710 maumivu na aliuwa watu 402.
 Shujaa huyu alitulazimisha kulikimbia kila sanduku lililotelekezwa mtaani au katika gari lililoegeshwa bila kuwemo mtu ndani yake [tukifikiri] kuwa [litakuwa] ni bomu lingine moja.
 Shujaa huyu alitulazimisha kujifungia ndani, kumshuku kila mtu na kujihami kwa moto na vurugu.
@@ -2443,16 +2424,12 @@ Mwaka 2017, mwanasheria Pamela Helena de Oliveira Amaral aliapa kumshitaki jaji
 Pamela alikuwa amevaa gauni refu la bluu ambalo lilikuwa likionesha mabega yake.
 Jaji Eugênio Cesário aliondoka ukumbini na alirudi baada ya Pamela kuazima nguo ya kujifunika kutoka kwa mfanyakazi mwingine wa kike.
 Pamela alisema katika mahojiano katika kipindi kile kuwa:
-Eu fiquei estarrecida, sem entender.
-Não assimilei até agora.
-Foi humilhante, vergonhoso e constrangedor o que ele me fez passar na frente dos meus colegas.
-A sala estava cheia de estudantes e advogados.
 Nilishangazwa na kuchanganyikiwa.
 Bado sijaelewa kwa ujumla.
 Alichofanya nipitie kilinidhalilisha na kutia aibu mbele ya wenzangu.
 Ukumbi ulikuwa umejaa wanafunzi na wanasheria wengine.
 Katika chapisho lenye kichwa Nguvu ya Msichana na Nguvu ya Mavazi: uanamke katika siasa, mwanablogu Nawsheen Rumjaun alichambua jinsi watu wanavyopenda kuchukulia uchaguzi wa nguo kwa wanawake katika mazingira ya kisiasa:
-[] Idadi ya wanawake wenye nguvu inaongezeka, lakini bado ni ngumu sana kuwa mwanamke katika siasa.
+Idadi ya wanawake wenye nguvu inaongezeka, lakini bado ni ngumu sana kuwa mwanamke katika siasa.
 Nguo wanazochagua zinageuka kuwa silaha ya kuweka misingi ya mamlaka yao katika ulimwengu huu wa wanaume.
 Katika siasa hakuna muongozo wa mavazi lakini kuna sheria bubu kwamba wanaume watavaa suti na wanawake watavaa nguo za heshima.
 Wale wanaovuka mstari ule ulio kati ya kile kinachodhaniwa kuwa ni ya heshima na isiyo ya heshima wapo katika hatari ya kulaumiwa kwa sababu ya mavazi yao.
@@ -2462,30 +2439,18 @@ Katika mahojiano na Universa, tovuti ya nyumbani inayojihusisha na masuala ya w
 Pia aliweka video katika ukurasa wake wa Facebook akijibu mashambulizi hayo.
 Hata hivyo, maoni katika video hiyo yalikuwa yamejaa matusi.
 Mtumiaji mwenye jina Vitor alisema:
-Com todo respeito, mas você se esqueceu em qual ambiente trabalhará nos próximos dias?
-Formalidade por favor.
-Tenha respeito!
-Decoro parlamentar.
 Kwa heshima kubwa, je umesahau ni katika mazingira gani utakuwa unafanya kazi siku chache zijazo?
 Ustaarabu tafadhali.
 Kuwa na heshima!
 Jamala wa Bunge.
 Mtumiaji mwingine mwanamke anayeitwa Yelena Sier, alipokea maoni 252 ndani ya maoni yake ambapo alimkosoa mwanasiasa huyo:
-Geral não entende!!
-Ninguém vai no hospital com biquíni, as crianças não vão a escola de pijama, os homens não vão comprar pão só de cueca, ninguém vai fazer uma cirurgia com qualquer roupa, ninguém vai para uma festa de 15 anos ou um casamento de pijama, etc cada ocasião uma traje adequado, nas empresas existem uniformes e assim por diante, e todo mundo sabe disso.
-A questão não é a roupa que a mulher usa ou deixa de usar, mas para cada local um traje adequado.
 Watu hawaelewi!!
 Hakuna mtu huenda hospitali akiwa amevaa bikini, watoto hawaendi shuleni wakiwa wamevaa nguo za kulalia, wanaume hawaendi kununua mkate wakiwa wamevaa nguo za ndani na hakuna mtu anaweza fanya upasuaji akiwa amevaa nguo holela, hakuna mtu anaweza kwenda harusini akiwa amevaa nguo za kulala n.k Kila tukio lina mavazi yake rasmi, katika makampuni kuna sare na kadhalika na kila mmoja anajua hilo.
 Jambo la msingi hapa sio ni kitu gani mwanamke amevaa au hakuvaa lakini kila sehemu ina mavazi yake rasmi.
 Katika chapisho lingine tofauti Rosimere Furtado alitetea  haki ya Ana Paula kuvaa kama atakavyo:
-Parabéns pela discussão levantada!
-Enquanto uma Deputada com vestes comportadissima levanta discussões perseguindo Educadores e afirmando que a Educação não necessita de investimento financeiro, a senhora levanta discussão sobre a importância da mulher na política, sobre feminicidio, sobre causas que independe da cor ou traje.
-Em um mundo onde a mente é deturpada e a sexualidade é esarcebada, qualquer decote é uma guerra!!
-!
 Hongereni kwa kuibua suala hili!
 Wakati mwakilishi wa jimbo akiwa katika mavazi ya heshima ya hali ya juu akiwakisoa waalimu  na akisema kuwa elimu haihitaji uwekezaji wa fedha, mmeanzisha mjadala wa umuhimu wa wanawake katika siasa na sababu ambazo ni uhuru wa rangi au mavazi.
 Katika ulimwengu ambapo fikra haziwakilishwi ipasavyo jinsia hukosolewa na nguo ya kuonesha kidogo huwa sababu ya vita!
-!
 Ana Paula aliwajibu wanaomshambulia kwa kuwakumbusha historia yake: kabla hajachaguliwa kuwa mbunge, alishachaguliwa mara mbili kuwa meya wa mji wa Bombinhas na aliiacha ofisi ikiwa na ufanisi wa kukubalika kwa asilimia 90.
 Ana Paula pia aliposti katika ukurasa wa Facebook mahojiano ambapo alisema: Wanawake wapo katika siasa na jamii inatakiwa ianze kuwazoea kama walivyo.
 Kuna mambo mengi ya msingi kwa bunge la wawakilishi kujadili.
@@ -2589,16 +2554,10 @@ Mahojiano  aliyoyafanya Rais wa Angola João Lourenço na RTP,  Kituo cha Tele
 Katika mahojiano ya dakika 30 yaliyorushwa Machi 4, mwanahabari wa Kireno kwa RTP Áfrika alirejea ripoti ya UNICEF iliyosema kuwa wananchi wanakufa kwa njaa nchini Angola.
 Rais Lourenço alikataa kuwepo kwa njaa nchini mwake, wakati akikubali kuwa kuna utapiamlo.
 Alisema:
-A nossa luta é lutar para reduzir os índices de pobreza, devido aos longos anos de conflito armado.
-Hoje há oferta de bens alimentares em Angola, não se pode dizer que existe hoje fome em Angola, é uma questão de alguma má nutrição.
 Mapambano yetu ni kupunguza kiwango cha umaskini uliotokana na kipindi kirefu cha vita.
 Kwa sasa kuna chakula Angola, huwezi kusema kuna njaa [kali] kwa sasa, ni suala la utapiamlo kidogo tu.
 Rais João Lourenço  alisema haya siku chache kabla ya kutembelewa na Rais wa Ureno Marcelo Rebelo de Sousa, na siku chache kabla ya Kasisi wa Kikatoliki na mwanaharakati wa haki za binadamu kukosoa vifo vya Waangola kwa sababu ya njaa katika maeneo yanayokabiliwa na ukame.
 Mwanaharakati Manuel Mapanda anayefahamika zaidi kama Dago Nível, alihoji  kuhusu kauli ya Rais :
-Como é que o senhor vai dizer que não existe fome em Angola?
-Não leu a Denúncia do padre Jacinto Wacussanga sobre a morte de um Angolano por fome?
-Será que nos Gambos e no Curoca já não há fome?
-Assim que Jlo assumiu a presidência a maioria dos Angolanos passou a ter a cesta básica, e a fome foi eliminada?
 Inakuwaje mwanaume anaenda kusema hakuna njaa Angola?
 Hakusoma ukosoaji wa Kasisi Jacinto Wacussanga kuhusu vifo vya Waangola kwa sababu ya njaa?
 Ina maana huko Gambos na  Curoca hakuna tena njaa?
@@ -2614,19 +2573,14 @@ Mwaka 2018,  Regional Forum for University Development (FORDU), Jukwaa la Maen
 Makala hiyo ilionesha idadi kubwa ya watu wakitafuta chakula katika majalala katika maeneo ya katikati ya mji wa Huambo eneo ambalo makala hii ililenga na katika makao makuu ya nchi Luanda.
 Picha za skrini kutoka katika makala hiyo, inapatikana katika DVD pekee | Picha ya mmiliki Simão Hossi  imetumika kwa ruhusa
 Huko JM.
-Notícias, ukurasa wa Facebook maalum kwa ajili ya kushirikishana habari kulikuwa na ukosoaji wa wazi dhidi ya maoni ya Rais:
-Precisamos reconhecer que ainda há muita gente em Angola vivendo á [sic] margem da sociedade, problema que dificilmente se resolverá se não haver uma promoção de programas de inclusão social credíveis, onde é cobrado e prestado contas.
-E não com este nascer de uma nova elite de gatunos tipo quem não se safou no outro tempo, que aproveite á [sic] brecha agora em que o artista principal e financeiro da nação é o J.Lourenço.
-Olha que os principais desafios estão ai mesmo diante dos vossos próprios olhos, em vencer os problemas nas áreas da saúde, educação, habitação, etc, que pelo menos já deveriam dar alguns sinais mesmo que tímidos, mais [sic] nada se vê .
-Tunahitaji kutambua kuwa bado wapo watu wengi amba
-o wanaishi maisha magumu nchini Angola, tatizo ambalo ni vigumu kulitatua ikiwa hakutakuwa na mpango wa kuaminika wa kukuza ushirikishwaji  wa jamii ambapo ndipo  inawajibika.
+Tunahitaji kutambua kuwa bado wapo watu wengi ambao wanaishi maisha magumu nchini Angola, tatizo ambalo ni vigumu kulitatua ikiwa hakutakuwa na mpango wa kuaminika wa kukuza ushirikishwaji  wa jamii ambapo ndipo  inawajibika.
 Na sio kwa kuzaliwa kwa wasomi wapya wahuni wanaochukua fursa kwa kuwa mlango uko wazi kwa sasa kwa kuwa jemedari mkuu na mwezeshaji wa nchi ni J.Lourenço.
-Ziangalie chamgamoto kuu ziko mbele ya macho yako, kukabiliana na matatizo katika sekta za afya, elimu,  nyumba n.k.
-ambapo ingetakiwa iwe imeshaanza kuonesha dalili tayari hata kidogo, lakini hakuna chochote kinachoonekana.
+Ziangalie chamgamoto kuu ziko mbele ya macho yako, kukabiliana na matatizo katika sekta za afya, elimu,  nyumba n.k. ambapo ingetakiwa iwe imeshaanza kuonesha dalili tayari hata kidogo, lakini hakuna chochote kinachoonekana.
 
 Makala 62
 Picha  Waziri wa Nchi Teknolojia, Habari na Mawasiliano Idah Nantaba iliyopigwa kwenye video ya Youtube ambaye alinusurika kuuwawa katika jaribio la mauaji.
-Tarehe 24, mwezi Machi, 2019,  ilitangazwa habari kuwa Waziri wa nchi Teknolojia, Habari na Mawasilano Mheshimiwa Idah Nantaba amenusurika na  jaribio la mauaji  na kwamba askari wa Uganda wamebahatika kumpiga na kumuua mmoja wa washambuliaji katika mji mdogo wa Nagojje ulipo kilometa 53 Mashariki mwa mji mkuu Kampala.
+Tarehe 24, mwezi Machi, 2019,  ilitangazwa habari kuwa Waziri wa nchi Teknolojia, Habari na Mawasilano Mheshimiwa Idah Nantaba amenusurika na  jaribio la mauaji. 
+Askari wa Uganda wamebahatika kumpiga na kumuua mmoja wa washambuliaji katika mji mdogo wa Nagojje ulipo kilometa 53 Mashariki mwa mji mkuu Kampala.
 Kwa zaidi ya miaka mitano iliyopita, matukio mbalimbali ya mauaji ya viongozi vigogo wa kisiasa, kidini au kijeshi yamesababisha kuwepo kwa hukumu chache halisi  au taarifa sahihi kuhusu matukio hayo.
 Wananchi wa Uganda walirahisishiwa kwa mara kwanza kwa kusikia kwamba askari wamechukua hatua za haraka.
 Hata hivyo, habari ya kuchanganya imeibuka kuhusu mtu hasa aliyeuawa.
@@ -2647,13 +2601,13 @@ Uchunguzi mbovu
 Mshangao uliofuata, askari walituma ujumbe kupitia tweeter kwamba kumpiga risasi ilikuwa ni halali kwa sababu watu waliokuwa wanaendesha pikipiki walikataa kusalimu amri:
 Risasi kadhaa zilipigwa kuelekea upande wao ili waweze kusalimu amri lakini ilikuwa bure.
 Katika harakati hizo Sebbulime Ronald mkazi wa Kijiji cha Nakabugo, katika kata ya Nakabugo, kaunti dogo ya Pakiso iliyopo kaunti ya Busiro katika wilaya ya Wakiso alipigwa risasi na kuuawa katika purukushani
+tarehe 24 Machi 2019, Jeshi la polisi Uganda lilisema; 
 Waliongeza kusema kuwa mshukiwa wa pili alitoweka na wanahofia kuwa ni hatari kwa kuwa ana silaha, angawa askari polisi hawakuthibitisha hilo.
-tarehe 24 Machi 2019, Jeshi la polisi Uganda lilisema; Askari polisi wanaendelea kutafuta kwa kutumia mbwa eneo alipo mshukiwa wa pili ambaye anaogopwa kuwa na silaha na ni hatari.
+Askari polisi wanaendelea kutafuta kwa kutumia mbwa eneo alipo mshukiwa wa pili ambaye anaogopwa kuwa na silaha na ni hatari.
 Tunataka kuutaarifu umma kuwa waziri, ingawa anahofu yupo salama na hakushambuliwa kama ilivyolipotiwa na vyombo vya habari.
 Mzungumzaji wa jeshi la polisi Fred Enanga alisema kwamba waziri, mashahidi na maafisa polisi waliohusika katika kupurkushani wangetoa kauli wakati wanaendea kuchunguza kumbukumbu zilizomo kwenye simu ya Ssebulime pamoja na karatasi za usajiri wa pikipiki yake..
 Irene Nakazibwe ambaye ni dada yake na marehemu anasistiza kuwa kaka yake alikuwa katika nafasi na muda usiyosahihi.
-Katika mahojiano, Nakazibwe alisema, kwa kweli Ssebulime alikuwa anaelekea shule ya sekondari ya Mt.
-Andrews kutembelea  watoto wake wawili wanaosoma kidato cha kwanza na cha tatu.
+Katika mahojiano, Nakazibwe alisema, kwa kweli Ssebulime alikuwa anaelekea shule ya sekondari ya Mt. Andrews kutembelea  watoto wake wawili wanaosoma kidato cha kwanza na cha tatu.
 Waliongelea suala la kufanya matembezi hayo mapema siku ile.
 Ssebulime alifiwa na mke wake mwaka 2012 na amekuwa akitunza watoto wake wanne akiwa ndiye mzazi pekee.
 Haijulikani kwa nini alijaribu kuwakimbia askari polisi wakati ana kitambulisho cha taifa na leseni ya udereva.
@@ -2666,18 +2620,13 @@ Boda-boda Wazimu
 Kifo cha Ssebulime kimeibua hisia tofauti miongoni mwa waendesha pikipiki au pikipiki za kukodiwa ambao ni usafiri rahisi.
 Angalau vifo vinavyohusisha vigogo watano  wakiwemo wakuu wa jeshi, Wabunge, viongozi wa dini vimetokea katika miaka mitatu iliyopita  vyote vikisababishwa na  kuwagonga waendesha pikipiki .
 Hii imewafanya waendesha pikipiki na maofisa wakubwa kuwa makini zaidi.
-Mtumiaji wa Twitter, Ganda Gannyana anafikiri kuwa sababu ya Ssebulime kuuwa bila kuchukuwa tahadhali yakutosha inatokana na maelekezo yaliyotolewa baada ya kuuawa kwa mheshimiwa Mbunge Ibrahim Abiriga  Rais Yoweri Museveni alisema pindi kiongozi anapomhisi  mtu yeyote anamfuatilia akiwa na nia mbaya, wanapaswa kumuondoa mtu huyo.
-:
+Mtumiaji wa Twitter, Ganda Gannyana anafikiri kuwa sababu ya Ssebulime kuuwa bila kuchukuwa tahadhali yakutosha inatokana na maelekezo yaliyotolewa baada ya kuuawa kwa mheshimiwa Mbunge Ibrahim Abiriga  
+Rais Yoweri Museveni alisema pindi kiongozi anapomhisi  mtu yeyote anamfuatilia akiwa na nia mbaya, wanapaswa kumuondoa mtu huyo.
 Yalikuwa maelekezo ya kipuuzi kutoka kwa Kaguta Museveni kwa kumhisi tu yeyote anakufatilia muondoe kwanza halafu waliobaki tutawaondoa baadaye.
-Sasa unaonaNow see!?
+Sasa unaona
 Mtu asiyekuwa na hatia  Ssebulime Ronald amechinjwa.
 kupigwa risasi ukiwa umefungwa pingu; hayo ni makusudi
 GandaGannyana (@IAmSegawa) March 26, 2019
-Mtumiaji wa Twita Ganda Gannyana anasema; Yalikuwa maelekezo ya kipuuzi kutoka kwa Kaguta Museveni kwa kumhisi tu yeyote anakufatilia muondoe kwanza halafu waliobaki tutawaondoa baadaye.
-Sasa unaonaNow see!?
-Mtu asiyekuwa na hatia.
-Ssebulime Ronald amechinjwa.
-kupigwa risasi ukiwa umefungwa pingu; hayo ni makusudi
 Mtumiaji wa Twitter Kyeyune Moses anaona mkanganyiko kwenye kifo cha Ssebulime:
 Habari ya Ronald Ssebulime ni kubwa sana.
 Kuna habari tofauti kuhusu nani aliyemuua anayedhaniwa kuwa mshambuliajina namna alivyoua.
@@ -2687,12 +2636,7 @@ Je, haki itatendeka?
 pic.twitter.com/0Q0fVS8v4Z
 KYEYUNE W. MOSES (@moskyeyune) Tarehe 25, Machi 2019
 Mtumiaji wa Twitter Kyeyune Moses anaona mkanganyiko kwenye kifo cha Ssebulime.Habari ya Ronald Ssebulime ni kubwa sana is bigger than meets the eyes.
-Kuna habari tofauti kuhusu nani aliyemuua anayedhaniwa kuwa mshambuliajina namna alivyoua.
-Lakini habari inayogusa ni kuhusu watoto walioko shuleni sasa.
-Walipoteza mama yao, na baba yao ametoweka sasa.
-Je, haki itatendeka?
 Mtumiaji wa Twitter Angelo Peter alighadhabika kwamba askari polisi walishindwa kutoa ushahidi kuwa Ssebulime ni hatari kabla ya kumuua:
-Mtumiaji wa Twitter Angelo Peter alighadhabika kwamba askari polisi walishindwa kutoa ushahidi kuwa Ssebulime ni hatari kabla ya kumuua: Walipotaka kumfunga Bobi Wine kwa uhaini walionesha bunduki waliyoipata katika chumba chake hotelini ndani ya masaa 24.
 Lakini hawawezi kutuonesha bunduki aliyokuwa nayo Ssebulime kabla hawajamuua.
 Alipongea na waandishi wa bahari kwa ufupi, Nantaba alisimulia habari yake na kuuliza maswali juu ya nani aliyepewa amri ya kumuua Ssebulime.
 Alipendekeza mazingira mazima ya tukio hilo inawezekana yamepangwa na waongozaji wa mauaji wa watu wakubwa  na bado anaamini Ssebulime ameangukia katika jaribio la kumuua:
@@ -2715,8 +2659,7 @@ Ndugu Lowassa amejionyesha kuwa yeye ni mtu muungwana.
 Tumefundishwa kusamehe..na nia yetu ni kujenga nchi mpya, Tanzania yenye Umoja bila siasa za kuleta migogoro.
 Lowassa alithibitisha kuwa   amerudi nyumbani  na hakuna sababu kwa sasa hivi kuwa katika chama cha upinzani.
 Lowassa ni mmoja wa makada wachache waliolelewa na kuandaliwa na chama cha umoja wa kitaifa au TANU ambacho ni miongoni mwa vyama cha kwanza vilivyoundwa kabla Tanzania kupata uhuru kutoka kwa Mwingereza mwaka 1961, na baadaye aliandaliwa na umoja wa Vijana wa CCM kipindi cha mfumo wa chama kimoja.
-Soma zaidi :
-Hata mnenguaji mzuri huondoka jukwaani: Viongozi maarufu Afrika: Katika kipindi cha mpito cha Siasa
+Soma zaidi : Hata mnenguaji mzuri huondoka jukwaani: Viongozi maarufu Afrika: Katika kipindi cha mpito cha Siasa
 Chini ya uangalizi wa CCM, Lowassa aliwahi kuwa mbunge wa jimbo la Monduli kwa miaka 25 na kushika nyadhifa za uwaziri kwa miongo minne.
 Mwaka 2008 kipindi cha Rais wa awamu ya nne Jakaya Kikwete  wakati Lowassa ni waziri mkuu  Lowassa alilazimika  kujihuzuru  baada ya kuhusishwa na udanaganyifu katika sakata la kampuni ya kufua umeme ya RICHMONDI.
 Lowassa alijiunga na CHADEMA tarehe 4 Agosti , 2015, kuelekea uchaguzi mkuu baada ya CCM kumuondoa kwenye orodha ya wagombea urais katika chama hicho.
@@ -2730,15 +2673,13 @@ Mwenezi na msemaji wa CCM, Humphrey Polepole alimpongeza Lowassa kwa maamuzi yak
 kurudi na kuomba msamaha ni uungwana na unyenyevu mkubwa.
 Watu wengine wamesema kuwa kiwango kikubwa cha wanachama kuhama vyama sio jambo zuri kwa siasa kitaifa.
 Naibu Katibu mkuu wa chama cha CUF Tanzania bara, Magdalena Sakaya, alisema kuhama huko ni hatari kwa ustawi wa Demokrasia na inaashiria mkakati wa siri wa kuua upinzani, aliongeza.
-Mkuu wa kitivo cha Falsafa na mafunzo ya Dini, Chuo Kikuu cha Dar es Salaam, Dkt.
-Adolf Mihanjo, aliwaita wanaohama vyama kuwa ni watu ambao hawana itikadi na wanatafuta nafasi za uongozi tu:
+Mkuu wa kitivo cha Falsafa na mafunzo ya Dini, Chuo Kikuu cha Dar es Salaam, Dkt. Adolf Mihanjo, aliwaita wanaohama vyama kuwa ni watu ambao hawana itikadi na wanatafuta nafasi za uongozi tu:
 Watu wameanza kuona kuwa wanaohama vyama wanashawishiwa kwa kupewa rushwa  hii ni hatari.
 Pia, naibu Katibu mkuu wa chama cha CUF visiwa vya Zanzibar, Nassoro Mazrui, alieleza wasiwasi juu ya msitakabali wa siasa za Tanzania kwa muda ujao alisema rushwa  imeghubika siasa za vyama vingi.
 Mwenyekiti wa CHADEMA, Freeman Mbowe anaamini wanaohama vyama wanakuwa wameshawishiwa na CCM kama njia ya kunyamazisha upinzani.
 Hata hivyo, Maulid Mtulia na Godwin Mollel ambao walijiunga na CCM mwaka jana, walisema kuwa wamehama kutokana na kuridhishwa na kazi nzuri inayofanywa na Magufuli.
 Kiongozi wa chama cha upinzani cha ACT-Wazalendo na mbunge wa Kigoma mjini, Zitto Kabwe aliyakataa madai hayo, na kuyaita ni  madai au sababu zilizotupu ambazo hazina vigezo wala ushahidi.
-Dkt.
-Richard Mbunda ambaye ni Profesa wa sayansi ya siasa chuo kikuu cha Dar es Salaam, alionya kuwa ni vigumu kurudisha uhalali pindi unapotoweka.
+Dkt. Richard Mbunda ambaye ni Profesa wa sayansi ya siasa chuo kikuu cha Dar es Salaam, alionya kuwa ni vigumu kurudisha uhalali pindi unapotoweka.
 Wanaohama vyama wanajenga hali ya kupigia kura mtu yeyote ambayo ni janga kwa taifa: Serikali yoyote inaweza kuingizwa kidemokrasia na baadaye inaweza kusababisha uasi wa raia au utawala haramu, alisema.
 Kuminywa kwa nafasi ya kisiasa kwa vyama vya Upinzani
 Tanzania ilihalalisha kuwa na siasa za vyama vingi mwaka 1992 chini ya ibara ya 3 (1) ya katiba.
@@ -2840,25 +2781,16 @@ Wachoraji wakiwa na mshikamano
 Raia mtandaoni wameamua kuchorachora picha za Rais Nkurunziza kama kupinga kupitia alama za tweeter: #Nkurunziza na #Burundi:
 Warundi mtandaoni wanachorachora kwa kupinga kuchorachora picha za Rais Nkurunziza na kukamatwa na kuwekwa kizuizini wasichana watatu ambao ni watoto wa shule ambao walichora kwenye picha ya Rais iliyopo kwenye vitabu.
 Patience Atuhaire (@patuhaire) tarehe 22 Machi, 2019
-#Burundi : des lycéennes en prison pour le gribouillage dun portrait du prédident #Nkurunziza @LewisMudge @hrw @hrw_fr https://t.co/BkAP5PfglK pic.twitter.com/z4HkiFbi3Z
-Warundi mtandaoni wanachorachora kwa kupinga kuchorachora picha za Rais Nkurunziza na kukamatwa na kuwekwa kizuizini wasichana watatu ambao ni watoto wa shule ambao walichora kwenye picha ya Rais iliyopo kwenye vitabu
-Eléonore Abou Ez (@Eleoabouez) March 22, 2019
 Wanafunzi wa sekondari ya juu wapo jela kwa kuchorachora picha ya Rais #Nkurunziza.
 Kama nilifanya hivi kwa#Nkurunzizas #Burundi, Ningeweza kufungwa jela #GribouilleMoi https://t.co/V7nVxKXZ0P pic.twitter.com/ahcO0apSQ7
 Wietske Nijman (@WietskeNijman) March 21, 2019
-#Burundi Thank you @CNN @jeune_afrique @FRANCE24 @RFIAfrique @africanews @lemondefr & others for your solidarity with jailed teenage girls bcz they scribbled @pnkurunziza s picture.
 Utawala wa kimabavu Burundi lazima ujue kuwa jela haielimishi.
 @radio_rpa @RadioInzamba pic.twitter.com/3R9KQ1oz6Y
 NDAYISHEMEZA Denis (@NDAYISHEMEZAD) Tarehe 22, Machi, 2019
-Serikali ya Burundiimewafunga jela Watoto wa shule  kwa madai ya kuchorachora picha za Rais.
+Serikali ya Burundi imewafunga jela Watoto wa shule  kwa madai ya kuchorachora picha za Rais.
 Tumetuma kwa njia ya tweeter picha zetu zilizochorwachorwa kwa mshikamano.
 Walitudhirishia kuchorachora kwenye picha ya Rais wetu, na mimi nimefanya.
 Hapa nina ujasiri sitakamatwa.
-https://t.co/eqrrxussun
-Utawala wa kimabavu wa Burundi lazima ujue kuwa jela haielimishi.
-Serikali ya Burundi imewafunga jela watoto wa shule kwa maai ya kuchorachora picha za Rais.
-Tumetuma kwa njia hii ya Tweeter picha zetu tulizochorachora kwa mshikamano.
-Wametupa ujasiri wa kuchorachora kwenye picha ya Rais wetu, na mimi nimefanya.Hapa nina ujasiri sitakamatwa
 Andrew Stroehlein (@astroehlein)  Tarehe 22 Machi, 2019
 Kuchukuliwa hatua kali ukosoaji
 Serikali ya Burundi imekuwa makini juu ya ukosoaji tangu mwaka 2015, baada ya kushindwa  kwa Mapinduzi yaliyopelekea mapigano wa vikundi vya waasi, ukosoaji  wa ukiukwaji wa haki za binadamu,  vikwazo , vya uchumi ugumu na  migogoro ya wakimbizi .
@@ -2947,7 +2879,7 @@ Wakati mamlaka ya kwanza ya Saudia ilipoanzishwa mwaka 1744, Amiri wa mji mdogo 
 Abd al-Wahhab alianzisha mchakato wa uhafidhina wa kidini uliopitiliza (kwa sasa unafahamika kama Uwahhabi) ukilenga tafsiri yenye msimamo mkali wa Korani na desturi za Mtume.
 Fanack, chombo huru cha habari na tovuti ya uchambuzi iliyojikita kwenye mji wa  MENA, inafafanua  kuwa muungano ulikusudiwa kutengeneza mazingira ya Kiislamu yenye kuongozwa na tafsiri zenye msimamo mkali wa Uislam.
 Mamlaka hii ya kwanza ya Saudia ilianguka miongo kadhaa baadaye na mamlaka ya pili iliundwa mwaka 1824, na ilianguka tena mwaka 1891.
-Mwaka1924 na 1925, familia ya Ibn-Saud iliivamia Mecca na Medina (Miji mitakatifu ya Uislamu) wakisaidiwa kwa ukaribu na wapiganaji wa Wahhabi.
+Mwaka 1924 na 1925, familia ya Ibn-Saud iliivamia Mecca na Medina (Miji mitakatifu ya Uislamu) wakisaidiwa kwa ukaribu na wapiganaji wa Wahhabi.
 Mwaka 1932, Ufalme wa Saudi Arabia ulianzishwa rasmi.
 Tangu hapo, viongozi wa Saudia wameendelea kuitumia dini kutumikia malengo yao ya kisiasa.
 Sauti zinazotaka mjadala rasmi wa kidini zanyamazishwa.
@@ -2956,11 +2888,9 @@ Watoa mihadhara ya kidini wameorodheshwa ili kuwaondosha wale wanaokemea uvunjaj
 Januari 2019, Waziri wa Masuala ya Uislamu Saudia ndugu Abdullatif Ibn Abdulaziz Al-Sheikh alikemea machafuko ya Waarabu ya 2011 na 2012, akiyaelezea kama yenye sumu na uharibifu kwa Waarabu na binadamu wa Kiislamu.
 Katika rejea thabiti ya ukosoaji uliolenga Ufalme baada ya mauaji ya Khashoggi waziri alikemea kile alichokielezea kama  mashambulizi yasiyo ya haki kutoka kwa maadui wa Uislamu na akawatuhumu Waislamu wanaokosoa Ufalme na sera zake kwaa kueneza uchochezi, kuleta mafarakano na uchochezi dhidi ya watawala na viongozi wao.
 Akiangazia kuhusu uhusiano baina ya Uwahhabi na ukandamizaji wa kisiasa, mwanaharakati wa haki za binadamu huko Saudia, Yahya Assiri, ambaye anaishi uhamishoni huko London, alitwiti hapo Januari 13
-..
-#  #                      !
-!
 Yahya Assiri   # (@abo1fares) January 13, 2019
-Ukandamizaji ni mfumo endelevu na (katika nchi yetu) unawezeshwa na dini Wakati Ibn Saud na Ibn Abd al-Wahhab walipoungana, Saudi Arabia na Uwahhabi waliongezeka na kuwa mapacha wakubwa sana.
+Ukandamizaji ni mfumo endelevu na (katika nchi yetu) unawezeshwa na dini 
+Wakati Ibn Saud na Ibn Abd al-Wahhab walipoungana, Saudi Arabia na Uwahhabi waliongezeka na kuwa mapacha wakubwa sana.
 Nchi yetu haitaweza kuhimili labda tutokomeze ukandamizaji wa Saudia na Wahhabi.
 Kama ambavyo tulisema hili, wengine, wenye nia njema walishasema kwamba Uwahhabi ni harakati za kidini wakati kwa ukweli ni harakati za kisiasa.
 Lakini sauti za watu kama vile Assiri zimenyamazishwa nchini Saudi Arabia.
@@ -3002,15 +2932,12 @@ Makala 69
 Kulingana na serikali ya Cuba, madaktari wapatao 20,000 waliwahudumia Wabrazili milioni 113 kwa kipindi cha miaka mitano.
 Picha na: Agência Brasil, CC BY 3.0
 Maelfu ya Wabrazili wanaweza kubaki bila huduma za afya kwa sababu Cuba imeanza kuwaondoa zaidi ya madaktari 8,400 ambao walikuwa wamepangiwa kazi katika miji midogo ya mbali na ya ndani sana ya nchi kwa miaka mitano.
-Katika taarifa ya rasmi ya Novemba 14, Havana ilitangaza kuwa itakatiza makubaliano yake na Brazili kutokana na maoni ya wazi ya Rais Jair Bolsonaro kuhusu mpango huo ambapo wanadhani kuwa yanaonesha vitisho na uonevu.. Mara kadhaa katika kampeni za Urais, Bolsonaro alikosoa utandaji wa madaktari kutoka Cuba na kuukosoa mpango huo.
+Katika taarifa ya rasmi ya Novemba 14, Havana ilitangaza kuwa itakatiza makubaliano yake na Brazili kutokana na maoni ya wazi ya Rais Jair Bolsonaro kuhusu mpango huo ambapo wanadhani kuwa yanaonesha vitisho na uonevu.. 
+Mara kadhaa katika kampeni za Urais, Bolsonaro alikosoa utandaji wa madaktari kutoka Cuba na kuukosoa mpango huo.
 Mpango huo ulizinduliwa mwaka 2013 na rais wa zamani Dilma Rousseff, ukiwa na jina Mais Médicos (Madaktari zaidi) ukiwa na lengo la kupanua upatikanaji wa huduma za afya katika maeneo duni zaidi nchini Brazili ambapo baadhi yake hayajawahi kuwa na mganga mkazi.
 Ilifungua mlango wa ajira katika maeneo hayo ikitoa mshahara wa karibu dola 3,500 kwa mwezi pamoja na posho kwa ajili nyumba na chakula (ukilinganisha na kima cha chini cha mshahara wa Brazili ambapo ni chini ya dola 300 kwa mwezi)
 Mpango huo ulitoa upendeleo kwa madaktari wa Brazili lakini baada ya kuajiriwa kwa asilimia sita tu ya ajira zilizokuwepo, nafasi nyingine zilijazwa na madaktari wa Cuba ambao waliletwa kwa mkataba uliosainiwa na Wizara ya Afya ya Brazili na Havana kwa usimamizi wa shirika la afya duniani chini ya taasisi yake ya Pan American Health Organisation.
 Kwa makubaliano ya mkataba huo, Brazili haiwaajiri madaktari wa Cuba moja kwa moja badala yake inailipa serikali ya Cuba ambayo iliwapa mafunzo, kuwaongoza na kuwafidia madaktari hao kama watumishi wa umma kwa mshahara wa asilimia 25 ya kile Brazili ingewalipa kama ingewaajiri wenyewe.
-Médicos cubanos atendendo brasileiros mais vulneráveis.
-São esses aí que Bolsonaro mandou embora do Brasil com suas declarações desastrosas
-Fotos: Araquém Alcântara.
-pic.twitter.com/ridWZci46y
 rodrigo vianna (@rvianna) November 15, 2018
 Madaktari wa Cuba wakiwahudumia Wabrazili wenye hali mbaya kabisahawa ndio watu Bolsonaro aliowafukuza kwa tamko lake la kikatili.
 Picha na Araquém Alcântara
@@ -3021,7 +2948,6 @@ Katika nyakati zote mbili kama mbunge na katika kampeni zake za uraisi alirudia 
 Aliahidi kuwarudisha madaktari Cuba kwa mkwaju wa kalamu wakawasaidie wanachama wa chama cha wafanyakazi ambao watapelekwa huko Guantanamo hivi karibuni.
 Katika mahojianio kwenye Tv hapo Julai 2018, alisema kuwa hakuna mtu mwenye ushahidi kuwa [madaktari wa Cuba] wana ujuzi wa utabibu.
 Katika taarifa yake rasmi ya kujitoa, Havana ilisema:
-El pueblo brasileño, que hizo del Programa Más Médicos una conquista social, que confió desde el primer momento en los médicos cubanos, aprecia sus virtudes y agradece el respeto, sensibilidad y profesionalidad con que le atendieron, podrá comprender sobre quién cae la responsabilidad de que nuestros médicos no puedan continuar prestando su aporte solidario en ese país.
 Watu wa Brazili walioufanya mpango wa Madaktari Zaidi kufanikiwa, waliowaamini madaktari wa Cuba tangu awali, waliothamini na kuiheshimu huduma hii nyeti na ya kitaalamu wataelewa ni nani anawajibika kwa madaktari wetu kushindwa kuendelea kutoa huduma kwao.
 Bolsonaro alijibu katika mitandao yake ya kijamii kuwa Havana haikutaka kufuata masharti mapya: hawakutaka mshahara wote wapewe madaktari na Diploma zao za udaktari kuhakikiwa nchini Brazili kupitia mitihani.
 Aliuita uamuzi wa Cuba kuwa uamuzi usio wa kuiajibikaji wa dikteta wa Cuba kwa kutokujali madhara yatakayotokea katika maisha ya Wabrazili.
@@ -3092,11 +3018,7 @@ Katika akaunti ya Twita ya Afisa wa Baraza la Bunge la Irak aliwashukuru  wale w
 Makundi ya haki za binadamu na wanaharakati walipokea jibu hilo kwa furaha, lakini bado wana wasiwasi.
 Ushindi mdogo: Kutokana na kampeni iliyofanywa na wanaharakati wa haki za binadamu, waandishi wa habari wa Irak ndani na nje na Mashirika yasio ya kiserikali kufanikiwa kuondolewa kwa rasimu ya uharifu mtandaoni kutoka ratiba ya Bunge .
 hatua inayofuata nikuondolewa kwa rasimu ya sharia kwa pamoja!
-https://t.co/KWaXABej1r
 Raz Salayi (@razsalayi) Tarehe 14 Machi, 2019
-Ushindi mdogo: Kutokana na kampeni iliyofanywa na wanaharakati wa haki za binadamu, waandishi wa habari ndani na nje na Mashirika yasio ya kiserikali kufanikiwa kuondolewa kwa rasimu ya uhalifu mtandaoni kutoka
-ratiba ya Bunge hatua inayofuata nikuondolewa kwa rasimu ya sharia kwa pamoja!
-Tarehe 14 Machi, 2019
 Haijaeleweka vizuri kama Bunge litaufanyia marekebisho mswada huo au kuupanga tena ili ujadiliwe
 
 Makala 71
