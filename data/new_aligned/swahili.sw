@@ -2785,7 +2785,6 @@ Wanafunzi wa sekondari ya juu wapo jela kwa kuchorachora picha ya Rais #Nkurunzi
 Kama nilifanya hivi kwa#Nkurunzizas #Burundi, Ningeweza kufungwa jela #GribouilleMoi https://t.co/V7nVxKXZ0P pic.twitter.com/ahcO0apSQ7
 Wietske Nijman (@WietskeNijman) March 21, 2019
 Utawala wa kimabavu Burundi lazima ujue kuwa jela haielimishi.
-@radio_rpa @RadioInzamba pic.twitter.com/3R9KQ1oz6Y
 NDAYISHEMEZA Denis (@NDAYISHEMEZAD) Tarehe 22, Machi, 2019
 Serikali ya Burundi imewafunga jela Watoto wa shule  kwa madai ya kuchorachora picha za Rais.
 Tumetuma kwa njia ya tweeter picha zetu zilizochorwachorwa kwa mshikamano.
@@ -2888,7 +2887,6 @@ Watoa mihadhara ya kidini wameorodheshwa ili kuwaondosha wale wanaokemea uvunjaj
 Januari 2019, Waziri wa Masuala ya Uislamu Saudia ndugu Abdullatif Ibn Abdulaziz Al-Sheikh alikemea machafuko ya Waarabu ya 2011 na 2012, akiyaelezea kama yenye sumu na uharibifu kwa Waarabu na binadamu wa Kiislamu.
 Katika rejea thabiti ya ukosoaji uliolenga Ufalme baada ya mauaji ya Khashoggi waziri alikemea kile alichokielezea kama  mashambulizi yasiyo ya haki kutoka kwa maadui wa Uislamu na akawatuhumu Waislamu wanaokosoa Ufalme na sera zake kwaa kueneza uchochezi, kuleta mafarakano na uchochezi dhidi ya watawala na viongozi wao.
 Akiangazia kuhusu uhusiano baina ya Uwahhabi na ukandamizaji wa kisiasa, mwanaharakati wa haki za binadamu huko Saudia, Yahya Assiri, ambaye anaishi uhamishoni huko London, alitwiti hapo Januari 13
-Yahya Assiri   # (@abo1fares) January 13, 2019
 Ukandamizaji ni mfumo endelevu na (katika nchi yetu) unawezeshwa na dini 
 Wakati Ibn Saud na Ibn Abd al-Wahhab walipoungana, Saudi Arabia na Uwahhabi waliongezeka na kuwa mapacha wakubwa sana.
 Nchi yetu haitaweza kuhimili labda tutokomeze ukandamizaji wa Saudia na Wahhabi.
@@ -2938,7 +2936,6 @@ Mpango huo ulizinduliwa mwaka 2013 na rais wa zamani Dilma Rousseff, ukiwa na ji
 Ilifungua mlango wa ajira katika maeneo hayo ikitoa mshahara wa karibu dola 3,500 kwa mwezi pamoja na posho kwa ajili nyumba na chakula (ukilinganisha na kima cha chini cha mshahara wa Brazili ambapo ni chini ya dola 300 kwa mwezi)
 Mpango huo ulitoa upendeleo kwa madaktari wa Brazili lakini baada ya kuajiriwa kwa asilimia sita tu ya ajira zilizokuwepo, nafasi nyingine zilijazwa na madaktari wa Cuba ambao waliletwa kwa mkataba uliosainiwa na Wizara ya Afya ya Brazili na Havana kwa usimamizi wa shirika la afya duniani chini ya taasisi yake ya Pan American Health Organisation.
 Kwa makubaliano ya mkataba huo, Brazili haiwaajiri madaktari wa Cuba moja kwa moja badala yake inailipa serikali ya Cuba ambayo iliwapa mafunzo, kuwaongoza na kuwafidia madaktari hao kama watumishi wa umma kwa mshahara wa asilimia 25 ya kile Brazili ingewalipa kama ingewaajiri wenyewe.
-rodrigo vianna (@rvianna) November 15, 2018
 Madaktari wa Cuba wakiwahudumia Wabrazili wenye hali mbaya kabisahawa ndio watu Bolsonaro aliowafukuza kwa tamko lake la kikatili.
 Picha na Araquém Alcântara
 Mpango huo ulikumbana na ukosoaji mwingi tangu walipofika madaktari wa awali.
@@ -2977,9 +2974,6 @@ Utafiti uliofanywa na Chuo cha Federal cha Minas Gerais, ambapo waliohojiwa wago
 Washiriki walionesha upungufu wa miundombinu na ukosefu wa dawa kama matatizo ambayo bado hayajapata ufumbuzi.
 Utafiti mwingine kutoka Fundação Getúlio Vargas (FGV) unaonesha kuwa mpango huu uliiwezesha serikali kupunguza theluthi ya matumizi yake ya watu kulazwa Hospitali.
 Débora Mazetto, mmoja ya wachumi walioongoza utafiti huo aliiambia BBC Brazil:
-Houve uma melhora na qualidade do atendimento à população.
-Imagine uma comunidade que não tinha médicos?
-Com o aumento das consultas em áreas desassistidas, foi possível identificar e tratar doenças com agilidade, evitando internações que poderiam ser de fato evitáveis
 Kumekuwa na maboresho ya huduma zinazotolewa kwa jamii.
 Je unaweza kuifikiria jamii ambayo haijawahi kuwa na daktari kabisa?
 Kuongezeka kwa waajiriwa katika maeneo ambayo yalikuwa yametelekezwa kwanza, imekuwa rahisi kugundua magonjwa na kuyatibu haraka na kuepuka kulazwa kusipo na sababu.
@@ -3015,7 +3009,6 @@ Katika akaunti ya Twita ya Afisa wa Baraza la Bunge la Irak aliwashukuru  wale w
 Makundi ya haki za binadamu na wanaharakati walipokea jibu hilo kwa furaha, lakini bado wana wasiwasi.
 Ushindi mdogo: Kutokana na kampeni iliyofanywa na wanaharakati wa haki za binadamu, waandishi wa habari wa Irak ndani na nje na Mashirika yasio ya kiserikali kufanikiwa kuondolewa kwa rasimu ya uharifu mtandaoni kutoka ratiba ya Bunge .
 hatua inayofuata nikuondolewa kwa rasimu ya sharia kwa pamoja!
-Raz Salayi (@razsalayi) Tarehe 14 Machi, 2019
 Haijaeleweka vizuri kama Bunge litaufanyia marekebisho mswada huo au kuupanga tena ili ujadiliwe
 
 Makala 71
@@ -3025,7 +3018,6 @@ Tangu Disemba 2018, maandamano yaliyoanza kwa sababu ya ongezeko la bei ya mkate
 Mwishowe, siku ya Alhamisi 11 Aprili 2019, Bashir alilazimishwa kujiuzulu.
 AL-BASHIR AMETOKA, TUMEFANIKIWA !!!
 #Sudan
-Alaa Salah (@iAlaaSalah) April 11, 2019
 Serikali ya Bashir ilitumia mbinu kandamizi kuzima maandamano hayo.
 Zaidi ya waandamanaji 40 wameuawa, mamia wakiwekwa vizuizini na kuteswa.
 Pamoja na mashambulizi ya kikatili, wanawake hawakuwa nyuma kwa kujiweka imara katikati ya moyo wa maandamano hayo.
@@ -3043,8 +3035,7 @@ Zagrouda (au wimbo wa wanawake) umekuwa ndio ishara ya kuita watu katika maandam
 Watu wakisikia sauti hizi za wanawake, wanajua ni sauti ya mapinduzi na ndio muda wa kuanza maandamano.
 Wakati wa mwezi Machi, wanawake walivaa nguo nyeupe za kitamaduni,  thobe katika kuwaunga mkono waandamanaji na haki za wanawake.
 Majukwaa ya mitandao ya kijamii yalijaa picha za waandamanaji wa kike wakiwa wamevaa nguo nyeupe, wakitumia hashitagi #Maandamanomeupe (#_)
-Heri ya Siku ya Wanawake Kimataifa
-.
+Heri ya Siku ya Wanawake Kimataifa.
 Familia ya Kitovu cha mabadiliko Khartoum
 Wanawake ambao huandamana mara nyingi hupambana na ukatili wa polisi.
 Mamlaka zimeshawafyatulia gesi za kutoa machozi na risasi za moto na walishawahi kuwatishia kuwabaka.
