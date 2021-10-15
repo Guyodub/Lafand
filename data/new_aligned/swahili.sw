@@ -2988,9 +2988,6 @@ Tangu Novemba 14, zaidi ya madaktari 200 wamesharudi Cuba.
 Ifikapo Disemba 12, Wataalamu wote wa Taasisi ya Pan American Health Organization watakuwa wamesharudi.
 Katika kliniki nyingi za umma, watu wamejikuta wapo wenyewe bila msaada wa kitabibu  kwa wiki nzima iliyopita au waliambiwa daktari atakuwepo kwa wiki mara moja kuanzia sasa.
 Ingawa serikali ya Brazili inadai kuwa asilimia 92 ya nafasi zilizoachwa wazi na Wacuba zimeshazibwa, gazeti la Folha de S. Paulo lilisema kuwa mwisho wa siku, namba hiyo inaweza isimaanishe chochote:
-Em 2017, o Ministério da Saúde abriu concurso para selecionar brasileiros para o Mais Médicos.
-Ao todo, 6.285 se inscreveram para 2.320 vagas, mas só 1.626 apareceram para trabalhar.
-Cerca de 30% deixaram seus postos antes de um ano de serviço.
 Mwaka 2017, Wizara ya Afya ilifungua mlango wa kuchaguwa waBrazili kwa ajili ya mpango wa Madaktari Zaidi.
 Kwa ujumla watu 6,285 waliomba kazi katika nafasi 2,320 zilizokuwepo lakini ni 1,626 ndio walioripoti katika vituo vyao.
 Karibu asilimia 30 waliacha kazi kabla ya kumaliza mwaka mmoja katika nafasi zao.
