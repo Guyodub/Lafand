@@ -3416,7 +3416,6 @@ Katika mahojiano ndani ya video hii, Muhamad ananieleza jinsi anavyojisikia baad
 Makala 81
 Picha ya Skrini kutoka katika video ya Balozi wa Urusi akihutubia katika kituo cha runinga cha Africa Guinee TV huko YouTube [kwa Kifaransa]Hapo Januari 9, 2019, Alexander Bregadze, Balozi wa Shirikisho la Urusi kwa Jamuhuri ya Guinea alituma salamu za Mwaka mpya kumpongeza Rais Alpha Condé, wa nchi hiyo ya Afrika Magharibi.
 Alirekodi video hiyo ya salamu akiwa huko Conakry, mji mkuu, ambapo ndipo ofisi yake ya kidiplomasia ipo-na katika hotuba yake, alilenga jambo la msingi, uwezekano wa Wa-Guinea kubadilisha katiba yao na kumruhusu Rais Condé kugombea kwa kipindi cha tatu baada ya muhula wake kuisha hapo 2020:
-Malheureusement, le principe dalternance qui domine beaucoup de Constitutions dans le monde, mais pas toutes heureusement, impose la mentalité de revanche: Cest notre tour, maintenant cest nous qui devons diriger le pays
 Tangu Guinea imekuwa Guinea ya Alpha Condé, kwa kweli imekuwa katika mwendo.
 Mheshimiwa Rais, wewe ni kielelezo kwa vijana wa nchi hii.
 Bahati mbaya, utaratibu wa kukabidhiana madaraka, ambayo imetawala katiba nyingi duniani, sio wote wanafurahia kuweka msingi wa mtazamo wa kulipa fadhila: Ni muda wetu sasa, lazima tuiendeshe nchi.
@@ -3536,7 +3535,7 @@ Robin Steenberg alishirikisha kumbukumbu ya kusikitisha:
 Ni miaka 10 iliyopita rafiki yangu na familia yake waliangamia katika moto ule wa Jumamosi Nyeusi , Kaskazini mwa Melbourne, Australia.
 Bado naona ni kama jana tu.
 Fikra zetu ziendee familia zote.
-Lala mahala pema peponi rafiki zangu ,(RIP) @TruemanTrades @stocktcm @iObvi8 pic.twitter.com/DtZxTlodD7
+Lala mahala pema peponi rafiki zangu.
 Watu wengi wanaunganisha janga la Jumamosi Nyeusi na hali mbaya ya hewa ya sasa ambayo inaleta madhara katika maeneo mengine ya nchi.
 Janga lingine la asili la mafuriko limeikumba ukanda wa Kaskazini mwa Queensland ikifuatiwa na mvua.
 Blair Drysdale alielezea baadhi ya madhara katika maeneo ya bara:
