@@ -3416,10 +3416,7 @@ Katika mahojiano ndani ya video hii, Muhamad ananieleza jinsi anavyojisikia baad
 Makala 81
 Picha ya Skrini kutoka katika video ya Balozi wa Urusi akihutubia katika kituo cha runinga cha Africa Guinee TV huko YouTube [kwa Kifaransa]Hapo Januari 9, 2019, Alexander Bregadze, Balozi wa Shirikisho la Urusi kwa Jamuhuri ya Guinea alituma salamu za Mwaka mpya kumpongeza Rais Alpha Condé, wa nchi hiyo ya Afrika Magharibi.
 Alirekodi video hiyo ya salamu akiwa huko Conakry, mji mkuu, ambapo ndipo ofisi yake ya kidiplomasia ipo-na katika hotuba yake, alilenga jambo la msingi, uwezekano wa Wa-Guinea kubadilisha katiba yao na kumruhusu Rais Condé kugombea kwa kipindi cha tatu baada ya muhula wake kuisha hapo 2020:
-Depuis que la Guinée est devenue la Guinée dAlpha Condé, elle est vraiment en marche.
-Monsieur le Président vous êtes un exemple phare pour la jeunesse guinéenne.
 Malheureusement, le principe dalternance qui domine beaucoup de Constitutions dans le monde, mais pas toutes heureusement, impose la mentalité de revanche: Cest notre tour, maintenant cest nous qui devons diriger le pays
-Mais les Constitutions ne sont pas ni dogme, ni Bible, ni Coran.
 Tangu Guinea imekuwa Guinea ya Alpha Condé, kwa kweli imekuwa katika mwendo.
 Mheshimiwa Rais, wewe ni kielelezo kwa vijana wa nchi hii.
 Bahati mbaya, utaratibu wa kukabidhiana madaraka, ambayo imetawala katiba nyingi duniani, sio wote wanafurahia kuweka msingi wa mtazamo wa kulipa fadhila: Ni muda wetu sasa, lazima tuiendeshe nchi.
@@ -3429,27 +3426,18 @@ Kulingana na balozi, mambo yote ni sawa ndani ya Guinea.
 Lakini hata hivyo hali halisi inaonesha ukweli mwingine.
 Waalimu waliingia katika mgomo wa pamoja mwaka huu ambao ulidumu kwa miezi mitatu, ukosefu wa ajira umeongezeka maradufu na imegundulika kuwa wahamiaji wengi haramu wanaoingia huko Ulaya kwa mwaka 2018 asili yao ni nchini Guinea, takwimu zikioneshwa wanakaribia watu 13,068.
 Bado balozi aliendelea kusema:
-Sous nos yeux la Guinée devient le pays le plus électrifié de lAfrique.
-Dune année à lautre,  on circule mieux sur les routes entre Conakry et les régions guinéennes.
 Mbele ya macho yetu, Guinea inakuwa nchi iliyosambaa huduma ya umeme zaidi Afrika.
 Mwaka hadi mwaka barabara kati ya Conakry na mikoani zinarahisha usafirishaji.
 Katika makala ya gazeti la Vision Guinée, mwandishi wa habari Pathé Bah aliandika kuwa Ousmane Kaba, mshauri wa mipango wa zamani wa Rais Condé, alifahamika kwa kusimamia maslahi ya umma:
-La Guinée est dans lobscurité, Il ny a pas délectricité dans notre pays.
-Cest pourquoi, je me suis battu pour avoir largent pour construire Kaleta sur le Konkouré.
-On se bat pour avoir beaucoup de barrages sur le Konkouré, parce que cela fait avancer le pays.
 Guinea iko gizani.
 Hakuna umeme katika nchi yetu.
 Ndiyo maana nilipigania fedha za kujenga Kaleta [kinu cha kufulia umeme wa maji] katika mto Konkouré.
 Tunapambana kupata mgawo mkubwa kwa ajili ya Konkouré, kwa sababu unaipeleka nchi mbele.
 Na kwa uchumi wa nchi, waziri wa fedha alikadiria kiwango cha ukuaji kuwa kwa asilimia 5.8 kwa mwaka 2018, kukiwa na mfumuko wa bei wa asilimia 8.
 Benki ya Maendeleo ya Afrika ilihakiki kuwa Guinea imefikia kukua kwa pato la ndani kwa asilimia 6.6 kwa mwaka 2016 na asilimia 6.4 kwa mwaka 2017  lakini hilo halikumzuia balozi kutangaza namba zilizokuzwa tu ili kuonesha uchumi unakua:
-Ces dernières années on a constaté la croissance entre 10,5% en 2016 et de 6 au 7% en 2018 avec le pronostic de 7% en 2019Connaissez-vous beaucoup de pays en Afrique qui font mieux ?
-Kwa miaka michache iliyopita, tumeona ongezeko la kukua kwa uchumi kati ya asilimia 10.5 mwaka 2016 na kuanzia asilimia 6 hasi 7 asilimia kwa mwaka 2018 likiwa na matarajio ya asilimia 7 kwa mwaka 2019.
-Mnafahamu ni nchi ngapi za Afrika zinazofanya vyema?
+Kwa miaka michache iliyopita, tumeona ongezeko la kukua kwa uchumi kati ya asilimia 10.5 mwaka 2016 na kuanzia asilimia 6 hasi 7 asilimia kwa mwaka 2018 likiwa na matarajio ya asilimia 7 kwa mwaka 2019.Mnafahamu ni nchi ngapi za Afrika zinazofanya vyema?
 Balozi aliongezea hali ya barabara katika litania yake ya sifa kwa Raisi.
 Hata hivyo, Alimou Sow, bloga maarufu wa Guinea alishirikisha habari yenye ukinzani katika blogu yake:
-Je suis debout dès potron-minet pour affronter, en solitaire, le tronçon jugé le plus difficile, Conakry-Kindia  135 km que lon accomplissait, il y a quelques années, en un peu moins de deux heures montre en main.
-Maintenant, il faut rajouter deux heures supplémentaires pour crapahuter sur la même distance devenue un parcours de rêve pour un rallye raid de type «Paris-Dakar», tant la route est en piteux état.
 Nimekuwa macho tangu kulipopambazuka nikipambana mwenyewe na barabara inayosadikiwa kuwa korofi zaidi ya kutoka Conakry kwenda Kindia kilomita 135, ambapo miaka michache iliyopita ungetumia chini ya masaa mawili ukipima muda.
 Sasa, lazima uongeze japo saa nyingine mbili kutambaa umbali ule ule, na imegeuka kuwa barabara ya ndoto kwa ajili ya mbio za magari za uvumilivu za à la Paris-Dakar, ni hatari sana kwa hali hiyo ya barabara.
 Mwaka 2016, wanachama wa chama cha mabloga wa Guinea, walianzisha kampeni ya kuamsha uelewa kuhusu hali ya barabara  za nchini na walionesha kukasirishwa kwao kwa kutumia hashtagi #montronsnosroutes [tuoneshe barabara zetu].
@@ -3459,32 +3447,19 @@ Picha ya ufunguzi wa kampeni ya Chama cha Mabloga wa Guinea #montronsnosroutes.
 Imetumika kwa ruhusa.
 Hotuba ya Balozi wa Urusi imeleta fadhaa kwa jamii na jumuiya za kiraia na zile za kidiplomasia.
 Kiongozi wa upinzani wa Guinea, Cellou Dalein Diallo, amekosoa mtazamo wa mwanadiplomasia huyo kwa kuelezea, imenukuliwa na Balla Yombouno katika gazeti la Le Djely:
-Il a été manipulé par Alpha Condé [le Président de la Guinée] lui-même.
-Et nous savons quil est le représentant dune grande nation, dun grand pays qui a participé activement à la décolonisation du continent africain, et qui a eu une relation exemplaire avec la Guinée dans le respect du principe de non-ingérence dans les affaires intérieures [] Nous allons essayer aussi de saisir le gouvernement russe pour faire état de cette prise de position
 Amekuwa akiendeshwa na Condé mwenyewe.
-Na tunajua kuwa yeye ni mwakilishi wa nchi kubwa, nchi yenye nguvu iliyoshiriki kikamilifu katika kuuondoa ukoloni barani Afrika, na ambayo imekuwa na uhusiano wa mfano na Guinea kwa kuheshimu kanuni ya kutokuingilia masuala ya ndani ya nchi.
-Tunapambana kuwasiliana ma serikali ya Urusi ili kuweka msisitizo katika eneo hilo
+Na tunajua kuwa yeye ni mwakilishi wa nchi kubwa, nchi yenye nguvu iliyoshiriki kikamilifu katika kuuondoa ukoloni barani Afrika, na ambayo imekuwa na uhusiano wa mfano na Guinea kwa kuheshimu kanuni ya kutokuingilia masuala ya ndani ya nchi.Tunapambana kuwasiliana ma serikali ya Urusi ili kuweka msisitizo katika eneo hilo
 Akiongea kwa niaba ya wanaharakati wa mashirika ya kijamii, Gabriel Haba, Rais wa Brigedi ya Hatua za Kiraia, alielezea  hasira iliyoamshwa na balozi kwa kuunga mkono huko; mwanahabari Ibrahima Sory Barry aliandika katika mtandao wa Aminata.com:
-La question de lalternance est une question de souveraineté.
-Et la souveraineté appartient au peuple.
-Il nest pas du rôle dun ambassadeur de dicter à la Guinée sa destinée.
-Cest de lingérence dans les affaires internes de notre pays.
 Suala la kupokezana madaraka kisiasa ni suala huru.
 Na uhuru uko kwa wananchi.
 Sio sehemu ya majukumu ya balozi kusimamia majaliwa ya Guinea.
 Hii ni kuingilia mambo ya ndani ya nchi yetu.
 Shirika la Juimiya ya Kiraia Cellule Balai Citoyen (Citizen's Sweep Up) walitoa waraka kwa vyombo vya habari uliokuwa unasomeka hivi kwa sehemu:
-La Guinée vit sous le risque dun embrassement sans précèdent susceptible de découler dun forcing politico-social en faveur dun 3e mandat en violation de lactuelle constitution mais aussi de léthique dans la gouvernance démocratique.
-Cette tentative qui se fait de plus en plus sentir peut être source dune violence politique aux graves violations de droits de lhomme dans notre pays qui peine encore à cicatriser le lourd passif dans cette matière, de lindépendance à nos jours.
 Guinea ipo katika hatari ya aibu ambayo haijawahi kutokea na hii ni endapo kutachomekwa kipindi cha tatu kutokana na msukumo wa kisiasa na kijamii na kuvunja katiba iliyopo na hakika taratibu za utawala wa kidemokrasia.
 Majaribio yanayoonekana kuongezeka yanaweza kuamsha vurugu za kisiasa yakiwa na uvunjifu mkubwa wa haki za binadamu katika nchi yetu, ambayo bado inapambana kujiweka kumbukumbu nzuri na nzito ya urithi tangu uhuru mpaka sasa.
 Huko Facebook, mwandishi na mtoa maoni Ibrahim Marie Sanoh aliandika:
-C'est fort abstrus que ce soit un étranger qui doit saluer les prouesses du pouvoir guinéen et plaider à ce qu'il lui soit accordé d'autres années pour faire du pays le plus électrifié du contient le plus industriel du monde, tandis que le peuple qui l'a investi manifeste une cruelle indifférence et ne pipe mot.
 Ni namna ya kipekee na inayopendeza kuona raia wa kigeni akitoa mchango wake katika uongozi wa Guinea kwa kuomba uongozi huo upewe miaka zaidi ili kuifanya nchi hiyo iwe nchi iliyosambaa umeme kuliko nchi zote za bara lenye viwanda vingi zaidi duniani, wakati watu waliouweka uongozi huo madarakani wanatendwa kikatili na hawana la kusema .
 Wakati huo huo, tabia za mabalozi wengine zilivuta hisia za bloga wa Guinea Nouhou Baldé:
-Cette déclaration est tellement grave que le silence des autres n'est pas à excuser si facilement.
-D'autant que certains de ceux qui ont pris la parole par la suite (l'ambassadeur du Maroc, le représentant de la Banque mondiale) ont dit ne pas dire mieux que le russe.
-Personne ne s'est désolidarisé de cette déclaration et aucune ambassade n'a publié un communiqué
 Azimio hili ni hatari kiasi kwamba ukimya wa mabalozi wengine hauwezi ukachukuliwa kirahisi.
 Wote ni sawa tu hata na wale waliozungumziwa (balozi wa Morocco na mwakilishi wa Benki ya Dunia..) wamesema yaleyale, hivyo ni kusema hawana utofauti na mwenzao,  balozi wa Urusi.
 Hakuna hata mmoja aliyejiengua katika tamko hilo na hakuna ubalozi ulishatoa waraka kuhusu jambo hilo.
@@ -3492,7 +3467,6 @@ Hapo Januari 14, mamlaka za ulinzi zilitawanya  maandamano yaliyoandaliwa nje 
 
 Makala 82
 Rais Mstaafu wa Naijeria Olusegun Obasanjo.
-[Creative Commons (CC BY 2.0)/ Flickr, June 27, 2011.
 ]Wakati Nigeria wakijiandaa na uchaguzi mwingine wa Rais mwezi wa pili, maafisa wa jeshi wastaafu waliogeuka kuwa wanasiasa wamekuwa kielelezo cha kuelewa uelekeo wa siasa za Nigeria.
 Naigeria imekuwa ikiongozwa na labda Jenerali Mstaafu au wale wanaoungwa mkono na majenerali hao tango 1999 pale mfumo wa serikali ya kidemokrasia uliporejea.
 Mgongano wa wazi wa hivi karibuni kati ya Rais wa zamani  Olusegun Obasanjo na Rais anayemaliza muda wake Muhammadu Buhari  wote wakiwa Madikteta wastaafu wa jeshi  una mchango mkubwa katika uchaguzi wa mwezi wa pili.
@@ -3548,40 +3522,32 @@ Kama muokaji unaweza kuona ni kwa kiasi gani napata tabu nikiwa na hofu hizo has
 Lakini pia nitakuwa natafakari juu yangu na kuruhusu kujisikia vyovyote nitakavyojisikia kwa sababu hisia zangu ni sahihi pia.
 Hofu yangu na huzuni ni sahihi pia na imekuwa hivyo mara zote imekuwa hivyo ila nilichelewa kutambua hilo.
 Dianne McNamara aliposti ujumbe pekee wa pili katika ukaunti hii akisema:
-#JumamosiNyeusi #7Feb
 miaka 10 sasa.
 Moyo wangu na roho yangu vilibadilika milele.
 Kama kawaida mawazo yangu yako na wahanga wote wa Jumamosi Nyeusi.
 Nitashukuru milele kwa msaada mimi na familia yangu tuliopokea kutoka kwa walio juu na nje ya milima.
 Nilikuwa na bahati kuliko baadhi ya watu.
-pic.twitter.com/gKHLwlUbpH
-Dianne McNamara (@DianneMcNamara) February 6, 2019
 Mwanasheria wa Melbourne, Georgia alikuwa na miaka kumi na tano wakati huo.
 Aliwakilisha hisia za wengi:
 Ni miaka 10 tangu baba yangu arukie kwenye gari na jirani yetu wakiwahi kwenda kuwaokoa wazazi wa jirani yetu.
 Miaka 10 tangu moto huo huo uyachukue maisha ya watu wengi, makazi mengi na maisha ya wanyama wengi.
 Hatutaisahau #JumamosiNyeusi
-Georgia  (@melbourneswifty) February 6, 2019
 Robin Steenberg alishirikisha kumbukumbu ya kusikitisha:
 Ni miaka 10 iliyopita rafiki yangu na familia yake waliangamia katika moto ule wa Jumamosi Nyeusi , Kaskazini mwa Melbourne, Australia.
 Bado naona ni kama jana tu.
 Fikra zetu ziendee familia zote.
 Lala mahala pema peponi rafiki zangu ,(RIP) @TruemanTrades @stocktcm @iObvi8 pic.twitter.com/DtZxTlodD7
-fxtrader (@robinsteenberg2) February 5, 2019
 Watu wengi wanaunganisha janga la Jumamosi Nyeusi na hali mbaya ya hewa ya sasa ambayo inaleta madhara katika maeneo mengine ya nchi.
 Janga lingine la asili la mafuriko limeikumba ukanda wa Kaskazini mwa Queensland ikifuatiwa na mvua.
 Blair Drysdale alielezea baadhi ya madhara katika maeneo ya bara:
 Hili ni shamba la Julia Creek huko North Queensland, shamba lake lote ni kamahekari 150,000. pic.twitter.com/dv2k6kzqDn
-Blocka (@blairdrysdale77) February 6, 2019
 Hali katika mji wa Pwani wa Townsville hali ilikuwa mbaya pia.
 Kampuni ya uzalishaji video ya Ruptly ilirekodi mafuriko hayo:
 #Townsville umekumbwa na mafuriko kama milango ya bwawa imefunguliwa#Australia pic.twitter.com/zYjFtnIjke
-Ruptly (@Ruptly) February 3, 2019
 Mkazi wa Melbourne Ann Moorfield aliunganisha matukio:
 Nataka kumkumbusha kila mmoja kuwa tulipopatwa ma Jumamosi Nyeusi kulikuwa na mafuriko huko Qld wakati huo huo.
 Kulikuwa na wito kwa wahanga wa mafuriko ya Qld na wahanga hao walisema kuwa fedha itumwe kwa wahanga wa moto wa nyika huko Vic maana walizihitaji zaidi.. hivyo chimba chini zaidi kwa ajili ya wahanga wa mafuriko ya Qld.
 #Townsville
-Ann Moorfield (@AnnMoorfield) February 6, 2019
 Elizabeth Donoghue alichukua picha yenye kichwa cha habari kutoka katika njia ambayo watu wengi wanaielezea kama mtego wa kifo, njia ambayo nimeikwepa hadi leo.
 Uendeshaji huu wa kutisha ulistahili!.
 Aliposti miezi miwili baada ya moto kutokea huko Flickr:
@@ -3591,9 +3557,7 @@ Nimepiga Picha hii katika barabara ambayo wengi huielezea kama mtego wa kifo, ba
 Lakini uendeshaji huu hatari ulistahili!
 Hatimaye, Adrian Cutts aliangazia ukuaji wa mitandao ya kijamii tangu siku ya Jumamosi Nyeusi:
 Kama bahati, kesho pia itakuwa miaka 10 tangu WaAustralia wengi wajue Twita ilikuwa nini.
-Jumamosi Nyeusi ilikuwa mwanzo wa mageuzi
-ya Twita katika nchi hii, kuanzia pale ilipokuwa inachukuliwa kama njia ya mawasiliano isiyo na uhakika na sasa imekuwa sehemu ya maisha yetu.
-Adrian Cutts (@LYBASkw) February 6, 2019
+Jumamosi Nyeusi ilikuwa mwanzo wa mageuzi ya Twita katika nchi hii, kuanzia pale ilipokuwa inachukuliwa kama njia ya mawasiliano isiyo na uhakika na sasa imekuwa sehemu ya maisha yetu.
 
 Makala 84
 Manusura waliopoteza ndugu zao na nyumba zao wakiwa wamejipumzisha kufuatia shambulizi la Juni 5 katika kijiji cha Naunde huko Cabo Delgado, Msumbiji.
@@ -3616,8 +3580,6 @@ Taasisi ya Habari Ukanda wa Kusini mwa Afrika ambayo husimamia haki na shughuli 
 Kuendelea kushikiliwa kwa Abubacar Na jeshi ni uvunjaji wa haki zake pia kukamatwa kwake bila mashtaka rasmi.
 Serikali ya Msumbiji inaweka historia mbaya ya kuvunja haki za uhuru wa kujieleza na Uhuru wa kupata habari katika ukanda huu.
 Shirika la haki za Binadamu Pia walitoa tamko:
-Amade Abubacar é um respeitado jornalista que estava a gravar depoimentos de pessoas que fugiram de ataques mortais em Cabo Delgado quando foi preso pela polícia.
-Esta é a mais recente demonstração de desprezo pela liberdade de expressão e liberdade de imprensa por parte das autoridades moçambicanas, que veem os jornalistas como uma ameaça e os tratam como criminosos.
 Amade Abubacar ni mwandishi anayeheshimika ambaye alikuwa akirekodi shuhuda za watu waliokimbia mashambulizi huko Cabo Delgado alipokamatwa na polisi.
 Hii ni dharau ya hivi karibuni kutoka kwa mamlaka za Msumbiji na zimeelekezwa katika uhuru wa kujieleza na uhuru wa vyombo vya habari [mamlaka] zinawaona wanahabari kama maadui na hivyo wanatendwa kama wahalifu.
 Kampeni hii imeenea pia huko Twita na imeundiwa hashtagi kama vile #MfungueniAmade kutaka uhuru wa Amade.
@@ -3625,11 +3587,9 @@ Kampeni hii imeenea pia huko Twita na imeundiwa hashtagi kama vile #MfungueniAma
 Kuwekwa kizuizini holela haikutosha, wamemtesa na kumlaza huku amevaa pingu katika kambi ya jeshi bila kumpa chakula.
 Hii ni mbaya sana.
 #MfungueniAmade #CaboDelgado
-Cídia Chissungo (@Cidiachissungo) 26 janvier 2019
 Angela Quintal, coordinator wa Mpango wa Afrika kwa Kamati ya Kuwalinda Wanahabari, alimtupia lawama Rais wa Msumbiji:
 #Msumbiji: Leo ni Jan 30, ni siku ya 25 mwandishi wa habari #AmadeAbubacar akiwa bado kizuizini kwa sababu tu ya uandishi wake wa habari.
 Mtu anaweza kudhani kuwa Rais @FNyusi ana mambo mengi sana mkononi kuanza kupoteza rasilimali kwa kumfungia mtu asiye na hatia #MwachieniAmade https://t.co/giF8zFnaCY
-Angela Quintal (@angelaquintal) 30 janvier 2019
 
 Makala 85
 Viwanja vya Nyerere Square jijini Dodoma, makao makuu ya Tanzania, lilipo bunge.
@@ -3638,14 +3598,9 @@ Mnamo Januari 29, wakati  Bunge la Tanzania likiendelea na kikao chake jijini Do
 Tukio hili lilivutia hisia za watu wengi nchini humo na kuibua maswali hasa katika mitandao ya kijamii na magazeti.
 Swali kubwa likiwa: je, kutua kwa bundi kwenye jengo la bunge kulibeba maana yoyote?
 Bundi alionekana mara mbili jana ndani ya ukumbi wa Bunge jijini Dodoma.
-Je, Bundi anapoonekana inaashiria nini?
-pic.twitter.com/RMKzRskrXc
-Mwananchi Newspapers (@MwananchiNews) January 30, 2019
 Ishara mbaya?
 gazeti la kila wiki, The East African, lilipendekeza.
 Mwanablogu wa Uingereza na mchambuzi wa vyombo vya habari, Ben Tylor, alidadisi zaidi:
-The owl that entered parliament signalled the coming death of Tanzanian democracy?
-Ben Taylor (@mtega) January 30, 2019
 Bundi kuingia bungeni kumeashiria ujio wa kifo cha demokrasia ya Tanzania?
 Katuni imechorwa na Samuel Mwamkinga (Joune), imetumiwa kwa ruhusa.
 Mchora katuni wa Tanzania, Samuel Mwamkinga (Joune), aliliweka tukio hilo katika mchoro akilifananisha na neno la Kiingereza kundi la bundi likibeba maana ya Kigiriki kwamba bundi wana hekima (picha imetumiwa kwa ruhusa).
@@ -3666,14 +3621,8 @@ Kabwe aliifananisha sheria hiyo na Muswada wa Huduma za Habari wa 2016, ambao un
 Sasa, Kabwe anaangazia mkanganyiko unaosababishwa na mabadiliko hayo ya Sheria ya Vyama vya Siasa:
 Huwezi kuwa na katiba inayoruhusu uhuru wa watu kukusanyika na kisha uwape mamlaka baadhi ya watu kupokonya uhuru huo.
 Kiongozi wa chama Cha @ACTwazalendo Ndugu @zittokabwe akielezea mahusiano ya Demokrasia na Maendeleo kwa kutumia Takwimu za @WorldBank #PoliticalPartiesBill pic.twitter.com/IwNln6Wl68
-ACT VIJANA TAIFA (@ActVijana) January 29, 2019
-Dying democracy?
 Kuzorota kwa demokrasia Tanzania chini ya utawala wa Rais Magufuli imekuwa mada isiyoisha na hujirudia mara kwa mara kwenye vyombo vya habari, na pia imekuwa ikijitokeza mara kwa mara kwa waandishi wa kejeli.
 Mnano Januari 30, Fatma Karume, Mwenyekiti wa Chama cha Wanasheria wa Tanganyika (TLS), alitwiti katuni ya mchora katuni maarufu wa Kenya Gado (Septemba 22, 2017)akionesha wajibu wa Rais wa Tanzania, Magufuli na kifo cha demokrasia:
-Good morning everyone.
-Have a lovely day.
-pic.twitter.com/RKDe0iX5ZG
-fatma karume aka Shangazi (@fatma_karume) January 30, 2019
 Habari za asubuhi ndugu zangu.
 Muwe na siku njema
 Katika miaka ya karibuni, Tanzania imegeuka kwa kasi  kuwa nchi yenye sheria za kiimla  zinazosababisha kuminywa kwa fursa kwa wanasiasa wa upinzani kufanya siasa sambamba na vyombo vya habari.
@@ -3682,14 +3631,6 @@ Upinzani ni muhimu kwa demorasia hai.
 Upinzani imara huisimamia serikali na kuipa changamoto.
 Katika mazingira ambayo upinzani haupo, ni wazi mahitaji tofauti ya raia hayawezi kuwakilishwa ipasavyo.
 Kwa kutumia twiti 15, mwanafunzi wa udaktari Rachel McLellan aliwapitisha wasomaji wake kwenye ucmabuzi unaoangazia hali inayoweza kujitokeza kufuatia sheria hii mpya, na anaonesha mazingira ambayo chama cha upinzani kinachoonesha uhai kinaweza kujikuta kikibanwa:
-So most of your ways of convincing voters are gone.
-What do you do if you're an opp party?
-Go back to the drawing board and come up with new strategies, right?
-Well, this bill introduces unprecedented oversight powers to the Parties Registrar that make that v difficult 5/n
-Rachael McLellan (@RachaelMcLellan) January 29, 2019
-Hawawezi tena kufanya mikutano kuwashawishi wapiga kura, wamewekewa mazingira ya kufungwa jela kwa kufanya mikutano na waandishi wa habari.
-Muswada huu unazuia vyama vya siasa kutoa elimu ya uraia na shughuli za kuwajengea wananchi uwezo shughuli ambazo ni muhimu kwa vyama vya siasa.
-Inawalazimisha kupata idhini ya serikali ili kupokea misaada ya nje.
 Kwa hiyo njia za kuwashawishi wapiga kura wenu zimezibwa.
 Unafanyaje unapokuwa mpinzani?
 Nenda ubaoni na uje na mbinu mpya, sivyo?
@@ -3707,10 +3648,7 @@ Eneza Upendo na sio Chuki ni kauli mbiu iliyosikika wakati wa maandamano ya kwan
 Ni tamasha ambalo liliwapa fursa jumuiya ya wapenzi wa jinsia moja kutoka nje ya nguo iliyowaficha na kudai haki zao ya kuona fahari ya vile walivvyo na wale waliochagua kuwapenda:
 Eneza Upendo, na sio chuki,
 Hongereni kwa maadhimisho ya kwanza kabisa ya FahariYenu, Guyana!
-#UpendoNiUpendo  pic.twitter.com/lEFxgf5Kja
-Shomeo (@SassBaller) June 4, 2018
 Shamrashamra zilianzia Viwanja vya Mapinduzi katika mji wa Georgetown, na washiriki walikuwa wamevaa nguo zenye rangi za upinde wa mvua na walikuwa wakicheza mziki wa soka wakati wakiandamana kwa mshikamano kupinga chuki na unyanyapaa:
-#Guyana_Pride
 Muda wa fahari katika kusherehekea uwepo wa wananchi wenye kushiriki mapenzi ya jinsia moja nchini Guyana pic.twitter.com/S5PdblZn7b
 Guyana Trans United (@trans_guyana) June 3, 2018
 Mapenzi kinyume na maumbile (ambapo mara nyingi hufahamika kama umende katika nchi nyingi za ki-Carribean) bado ni haramu nchini Guyana, pamoja na ushindi mkubwa katika shauri la Caleb Orozco huko Belize mwaka 2016, na hivi karibuni katika kesi ya Jason Jones huko Trinidad na Tobago, ambapo kesi zote inadhaniwa kuwa ni uhalifu dhidi ya katiba kufanya ngono kinyume na maumbile.
@@ -3747,7 +3685,6 @@ Moja na kusonga mbele!
 Ilifanya maandamano yake ya kwanza ya Jumuiya ya Mashoga.
 Tuamini kuwa kutokuwahukumu ndilo litakalofuatia: https://t.co/KinMuV8YK6 Hongera kwa @SASODGuyana @GuyanaTrans & Chama cha Upinde wa Mvua Guyana.
 MSHIKAMANO
-Peter Tatchell (@PeterTatchell) June 5, 2018
 Maandamano hayo ni moja kati ya mifumo ya jamii kupigania haki sawa.
 Joel Simpson, mkurugenzi mtendaji wa  Chama cha Kijamii kinachopinga Ubaguzi kutokana na namna ya kujamiina (SASOD) aliyeandaa maandamano hayo alikuwa na ujumbe kwa maafisa wa serikaliJumuiya ya Mashoga inatarajia kuona vitendo.
 Hata hivyo, bado kuna upinzani mkubwa.
@@ -3782,20 +3719,17 @@ Polisi  hawawezi kuvamia nyumba za wanahabari na kuwakamata na kuwaweka kizuizi
 Kwanza haioneshi wazi kama mtu aliyeko kizuizini ana lolote la kufanya na makala wanayodhani ni ya kumkashifu Inspekta wa jeshi.
 Daniel Elombah amemshitaki Inspekta Mkuu wa polisi wa Nigeria katika Mahakama kuu huko Abuja kwa kuvunja haki zake msingi.
 Anataka afidiwe Naira bilioni 2 (karibu dola milioni $5.5) kwa kuwekwa kizuzini kinyume cha sheria.
-.
 Vile vile, mawakili watatu wanaotoka Uingereza walitoa hoja kwa Mbunge wa Uingereza, Lyn Brown, Waziri Mkuu, Theresa May na Waziri wa Mambo ya Nje Boris Johnson kuhusu kukamatwa kwa Daniel Elombah kinyume na sheria.
 
 Makala 88
 Waandamanaji (wakiwa katika fulana za njano) katika jimbo la ufaransa la Haute-Saone mwezi Novemba 2018.
 Picha na Obier kupitia Wikimedia.
-CC: AT-NC.
 Tetesi   juu ya kusambaa kwa waandamanaji wa kifaransa waliovalia fulana ya njano katika nchi nyingine za Ulaya ilivuma sana katika mitandao ya kijamii nchini China kabla ya sikukuu ya Krismas.
 Habari hiyo ilitokea baada ya Rais wa Ufaransa Emmanuel Macron kutangaza makubaliano kadhaa  akihutubia juu ya malalamiko ya waandamanaji juu ya sera za uchumi.
 Wakati Macron akitegemea utulivu na amani kurejea, tetesi iliyotengenezwa china ilitabiri tofauti.
 Matoleo mengi ya habari yalisambaa kupitia baadhi akaunti ndogo za kublogu kwenye Weibo na wechat, zikinukuu vyanzo kutoka bidhaa ya muuza jumla katika Yiwumji ambao unajulikana kama mji na kituo cha mauzo ya jumla ambaye alieleza kuwa akiba yao yote ya fulana za njano imeuzwa nchi za nje na mahitaji zaidi ya bidhaa hiyo yanatoka katika nchi za Ulaya kama vile Swedeni, mji wa Prague, Uswisi, n.k.
 Habari hiyo ina maana kuwa waandamanaji wenye fulana za njano walikuwa wanasambaa katika bara zima.
 Hapa kuna toleo moja la habari  ambalo lilisambaa kupitia Weibo na WeChat:
-,,,,,,,,,,2016,5,,2020,,
 [kiwango cha mauzo ya Yiwu ] taarifa ya utafiti wa Yiwu kuhusu mavazi ilionesha kwamba mahitaji kutoka Ulaya ya fulana za najno yameendelea kuongezeka.
 Watengenezaji walifanya kazi hadi masaa ya ziada ili kukabili mahitaji na wafanyabiashara wa nje wa jukwaa la kielekitroniki wanauona mwenendo huo kama ni fursa nzuri ya mauzo.
 Raia wa  mtandaoni nchini china wanaamini kwamba kwa kuzingatia kiwango cha mauzo ya bidhaa ya Yiwu na taarifa yake kubwa, fulana za njano zinaweza kusambaa Sweden, Jamhuri ya Cheksolovakia, Uswisi na Hispania.
@@ -3813,8 +3747,7 @@ Yiwu  ni mji wa kimataifa wa biashara una kiwango kinachojulikana kama kiwango c
 Katika kipindi cha uchaguzi Marekani mwaka 2016, kiwango cha mauzo  ya Yiwu kilikuwa ni mada nzito katika mitandao ya kijamii nchini China juu ya mjadala kuhusu takwimu za mahitaji ya bidhaa za uchaguzi kutoka Yiwu ambazo zilionesha kuwa Donald Trump alikuwa maarufu zaidi ya Hillary Clinton.
 Baada ya uchaguzi, hata vyombo vya habari vya serikali vilitaarifu  kwamba takwimu za mahitaji ya bidhaa kutoka Yiwu na Alibaba yalikuwa ni nguvu ya kutabiria, na raia wengi mtandaoni wa nchi ya china wanaamini kwamba kiwango cha mauzo ya Yiwu kilitabiri sahihi kabisa juu ya uchaguzi wa Marekani.
 Baadhi ya waangalizi wa vyombo vya habari waliharakia kusema kuwa tafsiri hiyo ni tatizo kwa kuwa Clinton alipata kura zaidi ya Trump lakini uchambuzi huo ulipuuzwa..
-Sasa , Global Times ambacho ni chombo cha habari cha serikali kimethibitisha  habari iliyopo mtandaoni na kuripoti kuwa kuna akiba kubwa ya fulana za njano katika mji wa kibiashara na ukubwa wa mauzo yake katika miezi ya hivi karibuni sio mkubwa kama miezi ya mwaka jana.
-zithe.
+Sasa , Global Times ambacho ni chombo cha habari cha serikali kimethibitisha  habari iliyopo mtandaoni na kuripoti kuwa kuna akiba kubwa ya fulana za njano katika mji wa kibiashara na ukubwa wa mauzo yake katika miezi ya hivi karibuni sio mkubwa kama miezi ya mwaka jana.zithe.
 Hata hivyo taarifa ya Global Times haijazuia chochote juu ya  kusambaa kwa taarifa ya kiwango cha mauzo ya Yiwu.
 Kiukweli,  maoni mapya yameibuka  baada ya sikukuu ya Krismas yanayothibitisha kiwango cha mauzo ya Yiwu kuwa na nguvu ya kutabiri.
 Habari iliyochapishwa katika majukwaa ya mitandao mingi ya kijamii yanakiri kuwepo na makosa ya kiasi cha mauzo ya fulana za njano, lakini inaendelea kusistiza kwamba kiwango cha mauzo ya Yiwu imefanikiwa kutabiri matokeo ya uchaguzi wa Urais wa Marekani mwaka 2016 na kombe la dunia la mwaka 2018.
@@ -3836,8 +3769,7 @@ Mara nyingi wasichana wanapelekwa kuolewa  wakiwa na umri mdogo wa miaka13.
 Lakini shule moja katika mji mkuu Sanaa ilipata njia kama tiba ya tatizo hilo.
 Shirika lilisilo la kiserikali Solidarios sin Fronteras (lenye makao yake Hispania na Yemeni) kwa kiasi kikubwa linaendeshwa na wasamalia na hufadhiriwa na michango ya watu   wengine wakichangia kiasi kidogo kama euro moja kwa mwezi, shirika hilo limeanza kutoa kifungua kinywa kwenye shule za wasichana ambao wana umri wa miaka kuanzia sita hadi kumi na sita.
 Kabla ya mradi huo kuanza, moja ya tano ya wasichana hao wamekuwa hawahudhurii masomo.
-Kidogo kidogo, wasichana hao walianza kurudi shuleni, na tangu septemba 2018, wanafunzi wote 525 wanaendelea kuhudhuria madasani.
-Mwanzilishi wa Salidarios alisema.
+Kidogo kidogo, wasichana hao walianza kurudi shuleni, na tangu septemba 2018, wanafunzi wote 525 wanaendelea kuhudhuria madasani.Mwanzilishi wa Salidarios alisema.
 Nimeongea  kupitia Whatsapp na Eva ambaye miaka mingi iliyopita nilikutana naye katika mji wa Barcelona na Faten ambaye yupo Yemeni hawa niwaanzilishi wawili wa shirika hilo.
 Waliniambia namna mradi wao wa kifungua kinywa kwa ajili ya kulinda na kuelimisha  ulivyoanza.
 Pia, waliniomba kutotaja majina yao kamili na jina la shule kwa sababu za usalama.
