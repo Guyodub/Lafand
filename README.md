@@ -22,8 +22,8 @@ With the help of this script, alignment can then be done manually by opening bot
 
 ### Stage Two
 
-Testing the [benchmark Masakhane models](https://github.com/masakhane-io/masakhane-mt/tree/master/benchmarks/en-sw) on the corpus created in stage one above.
+Testing the benchmark Masakhane models for [English to Swahili](https://github.com/masakhane-io/masakhane-mt/tree/master/benchmarks/en-sw) and [Swahili to English](https://github.com/masakhane-io/masakhane-mt/tree/master/benchmarks/sw-en) on the corpus created in stage one above.
 
 ### Stage Three
 
-Train MT model on both [JW300](https://opus.nlpl.eu/JW300.php) data and News Copus.
+Train MT model on both [JW300](https://opus.nlpl.eu/JW300.php) data and [News Copus](https://opus.nlpl.eu/GlobalVoices.php) scrapped from Global Voices.
