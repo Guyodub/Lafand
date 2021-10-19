@@ -21,5 +21,5 @@ def write_files(file_name,flat_text):
     f.close()
 write_files('test.en',train_en)
 write_files('test.sw',train_sw)
-write_files('train.en',test_en)
-write_files('train.sw',test_sw)
+write_files('dev.en',test_en)
+write_files('dev.sw',test_sw)
