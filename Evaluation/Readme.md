@@ -2,8 +2,11 @@
 
 ## Data
 
-- Data from G voices. Data split by 50-50 ratio. 1814 lines each - Dev and Test.
-Domain is news
+- Data from Global voices. 
+
+- Data split by 50-50 ratio. 1814 lines each - Dev and Test.
+
+- Domain is news
 
 ## Model
 
