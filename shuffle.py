@@ -21,10 +21,10 @@ for idx in lst:
     en_lst_new.append(en_list[idx])
 
 #write into .txt files
-with open("./data/merged/shuffled.en", "w", encoding ='utf-8') as output:
+with open("./data/merged/train.en", "w", encoding ='utf-8') as output:
     for item in en_lst_new:
         output.write(str(item)+'\n\n')
         
-with open("./data/merged/shuffled.sw", "w", encoding ='utf-8') as output:
+with open("./data/merged/train.sw", "w", encoding ='utf-8') as output:
     for item in sw_lst_new:
         output.write(str(item)+'\n\n')
