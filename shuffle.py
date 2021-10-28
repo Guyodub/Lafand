@@ -3,8 +3,8 @@ import numpy as np
 import random
 
 #Reading the texts files
-sw_file = open("./data/opus/merged_sw","r", encoding = "utf-8").read()
-en_file = open("./data/opus/merged_en","r", encoding = "utf-8").read()
+sw_file = open("./data/merged/merged.en","r", encoding = "utf-8").read()
+en_file = open("./data/merged/merged.sw","r", encoding = "utf-8").read()
 
 #convert text to list by splittig using empty lines
 sw_list = sw_file.split("\n\n")
@@ -21,10 +21,10 @@ for idx in lst:
     en_lst_new.append(en_list[idx])
 
 #write into .txt files
-with open("./data/new_aligned/shuffled_en.txt", "w", encoding ='utf-8') as output:
+with open("./data/merged/shuffled.en", "w", encoding ='utf-8') as output:
     for item in en_lst_new:
         output.write(str(item)+'\n\n')
         
-with open("./data/new_aligned/shuffled_sw.txt", "w", encoding ='utf-8') as output:
+with open("./data/merged/shuffled.sw", "w", encoding ='utf-8') as output:
     for item in sw_lst_new:
         output.write(str(item)+'\n\n')
