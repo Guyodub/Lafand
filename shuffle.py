@@ -3,8 +3,8 @@ import numpy as np
 import random
 
 #Reading the texts files
-sw_file = open("./data/merged/merged.en","r", encoding = "utf-8").read()
-en_file = open("./data/merged/merged.sw","r", encoding = "utf-8").read()
+sw_file = open("./data/merged/merged.sw","r", encoding = "utf-8").read()
+en_file = open("./data/merged/merged.en","r", encoding = "utf-8").read()
 
 #convert text to list by splittig using empty lines
 sw_list = sw_file.split("\n\n")

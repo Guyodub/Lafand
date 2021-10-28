@@ -12,7 +12,7 @@ file_en_scraped = "./data/jw300/train.en"
 file_sw_scraped = "./data/jw300/train.sw"
 
 #specify the path for the opus data
-file_en_opus = "./data/opus/GlobalVoices.en."
+file_en_opus = "./data/opus/GlobalVoices.en"
 file_sw_opus = "./data/opus/GlobalVoices.sw"
 
 #specify the path to save the merged data
